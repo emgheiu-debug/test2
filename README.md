@@ -7,4 +7,5 @@
 ;> e chắc coi phim heo là chính thôi e<br>
 ;> giờ nhìu đứa xài video AI để lùa gà chơi cờ bạc online e =))<br>
 ;> giờ a hỏi e chứ e là nhà cái e muốn ăn tiền ngta hay ngta ăn tiền mình<br>
-;> lập trình hết ròi e, chơi ở ngoài thì xài đạo cụ, ăn tiền đc cũng éo đem về đc
+;> lập trình hết ròi e, chơi ở ngoài thì xài đạo cụ, ăn tiền đc cũng éo đem về đc<br>
+;> video AI giờ nhìn người giống thật quá e
