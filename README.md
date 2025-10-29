@@ -17,4 +17,4 @@
 ;> số con giò heo khổ, chồng ko nhờ cậy, con thì học dở, đến tuổi nghĩa vụ quân sự, ở nhà trọ ngập lụt, mắc nợ app đen lãi cao, lãi mà trả lâu chắc cũng gần 10% 1 tháng chứ e<br>
 ;> con lồn này hậu vận nó xấu<br>
 ;> nó sao đẻ con ra y z lun e<br>
-;> 
+;> a nào giờ hong có ưa con lồn đen này
