@@ -5,4 +5,5 @@
 ;> khổ đến chỗ ngủ còn ngập lên ngập xuống, chó nhà a mưa còn ngủ ngon lành<br>
 ;> mỗi người có 1 số phận khác nhau e<br>
 ;> nó làm có tiền mướn nhà trọ khác là ngủ đâu có dột, hay nước tràn vô<br>
-;> nhà trọ chắc sập xệ lắm =))
+;> nhà trọ chắc sập xệ lắm =))<br>
+;> kiếp trước ở ác nên gần 50 tuổi còn ở trọ mưa ngập trọ
