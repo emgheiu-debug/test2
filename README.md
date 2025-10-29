@@ -19,4 +19,6 @@
 ;> nó sao đẻ con ra y z lun e<br>
 ;> a nào giờ hong có ưa con lồn đen này<br>
 ;> ưa nó xe tông a liền<br>
-;> 
+;> nó lên mạng xạo lồn iu đương ctay chia quần quài chứ gì e<br>
+;> xạo lồn chưa bồ, chưa bồ chồng con đẻ 2 lứa ròi =))<br>
+;> thôi ngủ ngon nhe e
