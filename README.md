@@ -10,4 +10,5 @@
 <img width="1239" height="264" alt="image" src="https://github.com/user-attachments/assets/3477c5cc-dd96-4c5b-88ce-d2c4a1dfcce9" /><br>
 ;> thấy cũng đúng á e, a hay bị ganh tị lắm<br>
 ;> con giò heo nó hơn nửa đời người mà cũng đéo bằng ai<br>
-;> tính nó xạo lồn, ích kỉ, ganh tị,... nó nhìu tật xấu lắm, a đéo ưa
+;> tính nó xạo lồn, ích kỉ, ganh tị,... nó nhìu tật xấu lắm, a đéo ưa<br>
+;> người đã xấu, tính còn hãm lồn 
