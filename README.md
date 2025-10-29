@@ -11,4 +11,6 @@
 ;> thấy cũng đúng á e, a hay bị ganh tị lắm<br>
 ;> con giò heo nó hơn nửa đời người mà cũng đéo bằng ai<br>
 ;> tính nó xạo lồn, ích kỉ, ganh tị,... nó nhìu tật xấu lắm, a đéo ưa<br>
-;> người đã xấu, tính còn hãm lồn 
+;> người đã xấu, tính còn hãm lồn<br>
+;> mấy clip cờ bạc mạng nó làm á e<br>
+;> định thao túng a chơi cờ bạc cho tan nát cuộc đời a
