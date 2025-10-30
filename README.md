@@ -16,4 +16,7 @@
 ;> chắc nó ở cái nhà trọ đó từ lúc nó có chồng đến giờ e, xuống cấp ai mà sửa, giờ phải dập đi xây lại á e, ròi tăng giá thuê lên<br>
 ;> nhà trọ ở từ lúc lấy chồng tới giờ là xây ít nhất hơn 20 năm, quá sụp xệ lun e<br>
 ;> lương giảng viên thấp lắm e, giờ chắc tăng ròi mà đa số vẫn thấp<br>
-;> a đang xài AI vẽ nhà trọ xụp xệ
+;> a đang xài AI vẽ nhà trọ xụp xệ<br>
+;> móa vẽ nảy giờ e<br>
+<img width="1373" height="894" alt="image" src="https://github.com/user-attachments/assets/96d9e343-1b4c-41c8-9edf-f2252fd54fae" /><br>
+;> chắc mạng kém e
