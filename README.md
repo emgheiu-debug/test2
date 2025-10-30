@@ -15,4 +15,5 @@
 ;> ko tiền mướn nhà trọ mới là e hỉu ròi<br>
 ;> chắc nó ở cái nhà trọ đó từ lúc nó có chồng đến giờ e, xuống cấp ai mà sửa, giờ phải dập đi xây lại á e, ròi tăng giá thuê lên<br>
 ;> nhà trọ ở từ lúc lấy chồng tới giờ là xây ít nhất hơn 20 năm, quá sụp xệ lun e<br>
-;> lương giảng viên thấp lắm e, giờ chắc tăng ròi mà đa số vẫn thấp
+;> lương giảng viên thấp lắm e, giờ chắc tăng ròi mà đa số vẫn thấp<br>
+;> a đang xài AI vẽ nhà trọ xụp xệ
