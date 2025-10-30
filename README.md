@@ -8,4 +8,5 @@
 ;> nó biết tính chồng con nó<br>
 ;> làm như mưa hết năm á e<br>
 ;> nó nungflon có chồng hồi mới ra trường ròi a soi đc, ở vs chồng nay hơn 20 năm, có 2 mặt con 2 đực<br>
-;> lên mạng ảo tường gái 18, cô đơn, chưa bồ chứ quay về thực tế có chồng con vả vô mặt ngay e
+;> lên mạng ảo tường gái 18, cô đơn, chưa bồ chứ quay về thực tế có chồng con vả vô mặt ngay e<br>
+;> lên mạng là gái 18 thoát vai e là bà lồn U50 dú xệ bụng như cóc chữa, già nua =))
