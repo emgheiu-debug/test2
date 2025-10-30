@@ -13,4 +13,5 @@
 ;> e nửa cũng z =))<br>
 ;> ai có gia đình riêng thì cũng z<br>
 ;> con giò heo thì sống biết chồng con vs lo cho chồng con nó<br>
-;> e mốt có gia đình cũng z
+;> e mốt có gia đình cũng z<br>
+;> nó thì nhìu năm nửa vẫn nghèo khổ thôi e, a lo gì
