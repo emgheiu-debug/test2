@@ -6,4 +6,5 @@
 ;> nó đeo bám a cả chục năm nhưng đéo hỉu tính a<br>
 ;> đéo biết tính a <br>
 ;> nó biết tính chồng con nó<br>
-;> làm như mưa hết năm á e
+;> làm như mưa hết năm á e<br>
+;> nó nungflon có chồng hồi mới ra trường ròi a soi đc, ở vs chồng nay hơn 20 năm, có 2 mặt con 2 đực
