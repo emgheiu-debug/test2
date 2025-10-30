@@ -5,4 +5,5 @@
 ;> đang ngủ trương lồn vs chồng con mà mưa mới khổ nó á e<br>
 ;> nó đeo bám a cả chục năm nhưng đéo hỉu tính a<br>
 ;> đéo biết tính a <br>
-;> nó biết tính chồng con nó
+;> nó biết tính chồng con nó<br>
+;> làm như mưa hết năm á e
