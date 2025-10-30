@@ -19,4 +19,5 @@
 ;> a đang xài AI vẽ nhà trọ xụp xệ<br>
 ;> móa vẽ nảy giờ e<br>
 <img width="1373" height="894" alt="image" src="https://github.com/user-attachments/assets/96d9e343-1b4c-41c8-9edf-f2252fd54fae" /><br>
-;> chắc mạng kém e
+;> chắc mạng kém e<br>
+;> ở chung e có chăm a hem
