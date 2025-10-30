@@ -8,4 +8,6 @@
 ;> điều ước của a thì có nhà riêng loanh quanh 30 tuổi thu nhập tốt =))<br>
 ;> ở vs e, còn điều phụ thì mong con yến giò heo bị nghiệp quật mãi nghèo mãi khổ<br>
 ;> đó là mong muốn phụ thôi e, con giò heo thì khỏi trù nó cũng nghẻo khổ quan trọng cuộc sống mình tốt hơn hay ko thôi e<br>
-;> nó già ròi khó đổi đời lắm có nước ngày mua 10 tờ vé số trời cho thì khá ko thì mãi khổ mãi nghèo
+;> nó già ròi khó đổi đời lắm có nước ngày mua 10 tờ vé số trời cho thì khá ko thì mãi khổ mãi nghèo<br>
+;> nó thì thương chồng thương con nó thôi e<br>
+;> e nửa cũng z =))
