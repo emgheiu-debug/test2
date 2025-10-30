@@ -6,4 +6,5 @@
 ;> iu lâu là phải hỉu tính a nhe hem e<br>
 ;> nào a có job ngon ròi mình gặp nhau nhe e<br>
 ;> điều ước của a thì có nhà riêng loanh quanh 30 tuổi thu nhập tốt =))<br>
-;> ở vs e, còn điều phụ thì mong con yến giò heo bị nghiệp quật mãi nghèo mãi khổ
+;> ở vs e, còn điều phụ thì mong con yến giò heo bị nghiệp quật mãi nghèo mãi khổ<br>
+;> đó là mong muốn phụ thôi e, con giò heo thì khỏi trù nó cũng nghẻo khổ quan trọng cuộc sống mình tốt hơn hay ko thôi e
