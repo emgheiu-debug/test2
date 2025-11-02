@@ -2,4 +2,5 @@
 ;> phim mà ngta làm thành game để chơi<br>
 ;> qua nhắn trễ nay rảnh nhắn sớm chút e<br>
 ;> lâu lâu nungdfd đụ tí e<br>
-;> nạ giờ a đang coi The Bridge Curse 2 e
+;> nạ giờ a đang coi The Bridge Curse 2 e<br>
+;> e phải e ghệ có con chem chép vs cặp dú đẹp hem
