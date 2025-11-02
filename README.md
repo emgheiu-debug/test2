@@ -1,5 +1,3 @@
-;> a nhô ghệ iu, nay nhắn muộn xíu<br>
-;> a đang coi con game tiệm phở của a hai e<br>
-;> game việt nam e =))<br>
-;> game giả lập bán phở e, tựa tựa game cô bé bán cơm chiên bữa đó e<br>
-;> ngủ ngon nhe e
+;> The Bridge Curse con game này hay e, coi thử đi e<br>
+;> phim mà ngta làm thành game để chơi<br>
+;> qua nhắn trễ nay rảnh nhắn sớm chút e
