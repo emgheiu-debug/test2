@@ -21,4 +21,5 @@
 ;> a đi làm trên sài gòn có kẹt tiền nhà cũng éo cho mượn<br>
 ;> ai đối xử vs a sao a nhớ chứ éo nhớ gì e<br>
 ;> nhà a có khả năng cho mà éo cho chứ ko phải nghèo quá ko tiền đâu e<br>
-;> kiểu như ai cũng làm lo tích lũy bản thân dưỡng già vs lo chuyện bao đồng e hỉu hem
+;> kiểu như ai cũng làm lo tích lũy bản thân dưỡng già vs lo chuyện bao đồng e hỉu hem<br>
+;> nuôi học đh xong là hết lo nửa r e, tự bơi
