@@ -22,4 +22,7 @@
 ;> ai đối xử vs a sao a nhớ chứ éo nhớ gì e<br>
 ;> nhà a có khả năng cho mà éo cho chứ ko phải nghèo quá ko tiền đâu e<br>
 ;> kiểu như ai cũng làm lo tích lũy bản thân dưỡng già vs lo chuyện bao đồng e hỉu hem<br>
-;> nuôi học đh xong là hết lo nửa r e, tự bơi
+;> nuôi học đh xong là hết lo nửa r e, tự bơi<br>
+;> tính a z đó, a thấy đéo đc là a tính kiểu khác hoặc a bỏ, cha mẹ hay họ hàng tệ vs a là a bỏ<br>
+;> mình ko chọn nơi mình sinh ra chứ mình có quyền từ bỏ<br>
+;> e thấy đc thì quen tiếp ko thì thôi
