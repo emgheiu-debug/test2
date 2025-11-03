@@ -25,4 +25,5 @@
 ;> nuôi học đh xong là hết lo nửa r e, tự bơi<br>
 ;> tính a z đó, a thấy đéo đc là a tính kiểu khác hoặc a bỏ, cha mẹ hay họ hàng tệ vs a là a bỏ<br>
 ;> mình ko chọn nơi mình sinh ra chứ mình có quyền từ bỏ<br>
-;> e thấy đc thì quen tiếp ko thì thôi
+;> e thấy đc thì quen tiếp ko thì thôi<br>
+;> quen a là a đéo dắt về gặp gia đình a đâu
