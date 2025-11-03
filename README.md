@@ -26,4 +26,5 @@
 ;> tính a z đó, a thấy đéo đc là a tính kiểu khác hoặc a bỏ, cha mẹ hay họ hàng tệ vs a là a bỏ<br>
 ;> mình ko chọn nơi mình sinh ra chứ mình có quyền từ bỏ<br>
 ;> e thấy đc thì quen tiếp ko thì thôi<br>
-;> quen a là a đéo dắt về gặp gia đình a đâu
+;> quen a là a đéo dắt về gặp gia đình a đâu<br>
+;> e thấy a nói chuyện đt cọc lốc thường là gia đình họ hàng a
