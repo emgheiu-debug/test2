@@ -11,4 +11,5 @@
 ;> a tính nào giờ như z đó, giờ mới kể<br>
 ;> ở vs e thì lâu lâu a mới về quê 1 lần, vài năm hay gì đó<br>
 ;> làm có tiền ở đâu cũng đc e<br>
-;> mẹ a hay nhảm vs dạy đời lắm
+;> mẹ a hay nhảm vs dạy đời lắm<br>
+;> quen e là a ko công khai vs gia đình đâu ở z thôi
