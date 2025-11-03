@@ -1,4 +1,6 @@
 ;> a nhô e<br>
 ;> nào gặp nhau đc thì a nhắn e nhé<br>
 ;> nửa đc thì mình ở vs nhau thôi e<br>
-;> lớn ròi ở riêng chứ ở quê a chèo nèo họ hàng 5 người 10 ý mệt lắm
+;> lớn ròi ở riêng chứ ở quê a chèo nèo họ hàng 5 người 10 ý mệt lắm<br>
+;> giống như e sống vs những người hàng xóm suốt ngày chen vô dạy đời mình<br>
+;>
