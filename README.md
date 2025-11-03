@@ -14,4 +14,5 @@
 ;> mẹ a hay nhảm vs dạy đời lắm<br>
 ;> quen e là a ko công khai vs gia đình đâu ở z thôi<br>
 ;> ở chung già cùng nhau thôi e, còn gia đình a thì kệ đi e<br>
-;> a nhìu khi cũng ghét mẹ a, tại nhìu khi éo nói thôi
+;> a nhìu khi cũng ghét mẹ a, tại nhìu khi éo nói thôi<br>
+;> bửa hổm a ước có nhà riêng là e hỉu ròi mà a chưa nói hết thôi
