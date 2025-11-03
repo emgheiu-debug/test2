@@ -29,4 +29,6 @@
 ;> quen a là a đéo dắt về gặp gia đình a đâu<br>
 ;> e thấy a nói chuyện đt cọc lốc thường là gia đình họ hàng a<br>
 ;> lâu thì e đợi a vài năm mau thì éo biết<br>
-;> ở vs a thì chem chép e chảy nước a chùi cho
+;> ở vs a thì chem chép e chảy nước a chùi cho<br>
+;> a nhìu cái hơi cầu toàn, thù dai, khó tính chứ biết ý a là a chiều cho<br>
+;> sống phải biết ý bạn đời mình hỉu hem e
