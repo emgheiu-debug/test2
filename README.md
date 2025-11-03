@@ -28,4 +28,5 @@
 ;> e thấy đc thì quen tiếp ko thì thôi<br>
 ;> quen a là a đéo dắt về gặp gia đình a đâu<br>
 ;> e thấy a nói chuyện đt cọc lốc thường là gia đình họ hàng a<br>
-;> lâu thì e đợi a vài năm mau thì éo biết
+;> lâu thì e đợi a vài năm mau thì éo biết<br>
+;> ở vs a thì chem chép e chảy nước a chùi cho
