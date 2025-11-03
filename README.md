@@ -10,4 +10,5 @@
 ;> a nói là e phải để tâm nhớ nghe hem<br>
 ;> a tính nào giờ như z đó, giờ mới kể<br>
 ;> ở vs e thì lâu lâu a mới về quê 1 lần, vài năm hay gì đó<br>
-;> làm có tiền ở đâu cũng đc e
+;> làm có tiền ở đâu cũng đc e<br>
+;> mẹ a hay nhảm vs dạy đời lắm
