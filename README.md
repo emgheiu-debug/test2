@@ -19,4 +19,5 @@
 ;> a cũng ghét bà ngoại a nửa a vs bả như người dưng z, mà mẹ a thì hay nghe bả nên a ghét cả 2<br>
 ;> nửa hô làm 5-6 triệu hay làm đủ ăn là khỏi cho tiền thôi e, dù gì cái xe a đi làm cha mẹ a cũng ko sắm cho a<br>
 ;> a đi làm trên sài gòn có kẹt tiền nhà cũng éo cho mượn<br>
-;> ai đối xử vs a sao a nhớ chứ éo nhớ gì e
+;> ai đối xử vs a sao a nhớ chứ éo nhớ gì e<br>
+;> nhà a có khả năng cho mà éo cho chứ ko phải nghèo quá ko tiền đâu e
