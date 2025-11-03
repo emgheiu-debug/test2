@@ -15,4 +15,5 @@
 ;> quen e là a ko công khai vs gia đình đâu ở z thôi<br>
 ;> ở chung già cùng nhau thôi e, còn gia đình a thì kệ đi e<br>
 ;> a nhìu khi cũng ghét mẹ a, tại nhìu khi éo nói thôi<br>
-;> bửa hổm a ước có nhà riêng là e hỉu ròi mà a chưa nói hết thôi
+;> bửa hổm a ước có nhà riêng là e hỉu ròi mà a chưa nói hết thôi<br>
+;> a cũng ghét bà ngoại a nửa a vs bả như người dưng z, mà mẹ a thì hay nghe bả nên a ghét cả 2
