@@ -31,4 +31,9 @@
 ;> lâu thì e đợi a vài năm mau thì éo biết<br>
 ;> ở vs a thì chem chép e chảy nước a chùi cho<br>
 ;> a nhìu cái hơi cầu toàn, thù dai, khó tính chứ biết ý a là a chiều cho<br>
-;> sống phải biết ý bạn đời mình hỉu hem e
+;> sống phải biết ý bạn đời mình hỉu hem e<br>
+;> nhắc lại nè <br>
++ đéo công khai vs gia đình
++ ở riêng
++ đẻ con tự lo tự chăm<br>
+;> ròi ngù đi e ghệ lì
