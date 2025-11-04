@@ -4,4 +4,5 @@
 ;> bth thôi e<br>
 ;> thì ở vs e là ở tới già chứ e<br>
 ;> cúng tam tai chưa e<br>
-;> nửa ngủ chung a ôm e ngủ 
+;> nửa ngủ chung a ôm e ngủ <br>
+;> ngủ e
