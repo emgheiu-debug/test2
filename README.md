@@ -1,1 +1,4 @@
-;> a nhô e
+;> a nhô e<br>
+;> a hơi lu bu xíu<br>
+;> e đi làm tối về e làm gì e<br>
+;> ăn cơm rửa bím xong xem phim heo ròi ngủ à
