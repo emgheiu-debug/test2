@@ -13,4 +13,6 @@
 ;> ở đời nó z á e, mình ăn nhìu thì nó hô mình đớp ít thôi còn mình vừa người thì nó kêu mình đớp nhìu lên<br>
 ;> ai đời lên fb, tiktok ròi nghe tin sái cổ đâu e<br>
 ;> bịp vs lừa gạt là nhìu<br>
-;> con game taguan hay hem e
+;> con game taguan hay hem e<br>
+<img width="1344" height="676" alt="image" src="https://github.com/user-attachments/assets/79a26e79-9298-4a90-9a96-a7862ee88d8c" /><br>
+;> game rẻ bèo lun e
