@@ -3,4 +3,6 @@
 ;> thực tế<br>
 ;> con game đơn giản hơn 1 tiếng z mà hay e<br>
 ;> e nửa làm mấy con game kiểu này bán đi<br>
-;> game indie quan trọng gì đồ họa e
+;> game indie quan trọng gì đồ họa e<br>
+;> có thg làm dev game soi mói con game tiệm phở của a hai bug thế này thế kia, chắc ganh tị<br>
+;> qua trọng là con game đó virual 
