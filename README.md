@@ -7,4 +7,5 @@
 ;> có thg làm dev game soi mói con game tiệm phở của a hai bug thế này thế kia, chắc ganh tị<br>
 ;> qua trọng là con game đó virual <br>
 ;> làm con game như z bán 80k thôi e, nó hot thì ngta mua nhìu thế là có xiền<br>
-;> làm dev game mượt ko bug mà nó ko hay cũng éo có tiền
+;> làm dev game mượt ko bug mà nó ko hay cũng éo có tiền<br>
+;> mấy đứa làm dev game thấy con game ngta nổi soi mói bug này bug kia là soi mói ganh ghét
