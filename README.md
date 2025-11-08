@@ -5,4 +5,5 @@
 ;> e nửa làm mấy con game kiểu này bán đi<br>
 ;> game indie quan trọng gì đồ họa e<br>
 ;> có thg làm dev game soi mói con game tiệm phở của a hai bug thế này thế kia, chắc ganh tị<br>
-;> qua trọng là con game đó virual 
+;> qua trọng là con game đó virual <br>
+;> làm con game như z bán 80k thôi e, nó hot thì ngta mua nhìu thế là có xiền
