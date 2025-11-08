@@ -10,4 +10,6 @@
 ;> làm dev game mượt ko bug mà nó ko hay cũng éo có tiền<br>
 ;> mấy đứa làm dev game thấy con game ngta nổi soi mói bug này bug kia là soi mói ganh ghét<br>
 ;> mấy thg làm dev ưa có tính ganh ghét soi mói, ganh tị lắm, a nói thật e để ý thử<br>
-;> ở đời nó z á e, mình ăn nhìu thì nó hô mình đớp ít thôi còn mình vừa người thì nó kêu mình đớp nhìu lên
+;> ở đời nó z á e, mình ăn nhìu thì nó hô mình đớp ít thôi còn mình vừa người thì nó kêu mình đớp nhìu lên<br>
+;> ai đời lên fb, tiktok ròi nghe tin sái cổ đâu e<br>
+;> bịp vs lừa gạt là nhìu
