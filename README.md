@@ -8,4 +8,5 @@
 ;> qua trọng là con game đó virual <br>
 ;> làm con game như z bán 80k thôi e, nó hot thì ngta mua nhìu thế là có xiền<br>
 ;> làm dev game mượt ko bug mà nó ko hay cũng éo có tiền<br>
-;> mấy đứa làm dev game thấy con game ngta nổi soi mói bug này bug kia là soi mói ganh ghét
+;> mấy đứa làm dev game thấy con game ngta nổi soi mói bug này bug kia là soi mói ganh ghét<br>
+;> mấy thg làm dev ưa có tính ganh ghét soi mói, ganh tị lắm, a nói thật e để ý thử
