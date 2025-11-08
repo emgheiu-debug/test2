@@ -12,4 +12,5 @@
 ;> mấy thg làm dev ưa có tính ganh ghét soi mói, ganh tị lắm, a nói thật e để ý thử<br>
 ;> ở đời nó z á e, mình ăn nhìu thì nó hô mình đớp ít thôi còn mình vừa người thì nó kêu mình đớp nhìu lên<br>
 ;> ai đời lên fb, tiktok ròi nghe tin sái cổ đâu e<br>
-;> bịp vs lừa gạt là nhìu
+;> bịp vs lừa gạt là nhìu<br>
+;> con game taguan hay hem e
