@@ -5,4 +5,6 @@
 ;> mấy con game aaa nó mới đắt thôi e<br>
 ;> game indie vào chục ngàn hơn 100k đầy e<br>
 ;> con giò heo hết ảo tưởng a nyc, bạn bè gì nó ròi<br>
-;> quay về vs cuộc sống chồng con, lo chồng lo con ròi e
+;> quay về vs cuộc sống chồng con, lo chồng lo con ròi e<br>
+;> vài năm nửa có tiền coi bói lại e 200k thôi<br>
+;> bà thầy bói chỗ a coi bả già lắm ròi, tóc bạc trắng ròi, đợi a coi lại nhìu khi ngta ngủm r
