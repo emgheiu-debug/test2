@@ -7,4 +7,6 @@
 ;> con giò heo hết ảo tưởng a nyc, bạn bè gì nó ròi<br>
 ;> quay về vs cuộc sống chồng con, lo chồng lo con ròi e<br>
 ;> vài năm nửa có tiền coi bói lại e 200k thôi<br>
-;> bà thầy bói chỗ a coi bả già lắm ròi, tóc bạc trắng ròi, đợi a coi lại nhìu khi ngta ngủm r
+;> bà thầy bói chỗ a coi bả già lắm ròi, tóc bạc trắng ròi, đợi a coi lại nhìu khi ngta ngủm r<br>
+;> bả chưa nói a có gia đình hay về già sao sao hết, chắc chưa thấy<br>
+;> nhỏ a cũng đi coi ròi mà nói sơ sơ học hành này kia thôi
