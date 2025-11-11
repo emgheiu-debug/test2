@@ -12,4 +12,5 @@
 ;> chồng con nó éo cho nó sao mình người dưng đéo ưa nhau mà cho, cho đầu buồi<br>
 ;> có cứt chứ cho tiền =))<br>
 ;> nó dụ a chơi vé số, chơi cờ bạc online, chơi game, ...<br>
-;> hỉu lun e
+;> hỉu lun e<br>
+;> nó khoái trúng số lắm e, nó ước trúng lần 10 tỉ 25 tỉ ko à
