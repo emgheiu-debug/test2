@@ -9,4 +9,6 @@
 ;> có tiền a cũng éo bao giờ cho<br>
 ;> lúc trước chơi đá chơi cần giờ hết chơi bớt ảo tưởng r e<br>
 ;> éo biết sao hết ảo tưởng lun e<br>
-;> chồng con nó éo cho nó sao mình người dưng đéo ưa nhau mà cho, cho đầu buồi
+;> chồng con nó éo cho nó sao mình người dưng đéo ưa nhau mà cho, cho đầu buồi<br>
+;> có cứt chứ cho tiền =))<br>
+;> 
