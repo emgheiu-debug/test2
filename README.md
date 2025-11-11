@@ -6,4 +6,5 @@
 ;> trên mạng xạo lồn nhìu e ko nên tin thì hơn, rảnh thì đừng coi mấy cái mxh toàn bịp người thôi e<br>
 ;> kiểu như ai đăng cũng đc 5 người 100 ý mà e<br>
 ;> con yến giò heo nay hết ảo tưởng a cho tiền nó ròi e<br>
-;> có tiền a cũng éo bao giờ cho
+;> có tiền a cũng éo bao giờ cho<br>
+;> lúc trước chơi đá chơi cần giờ hết chơi bớt ảo tưởng r e
