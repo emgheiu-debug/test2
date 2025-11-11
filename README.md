@@ -14,4 +14,5 @@
 ;> nó dụ a chơi vé số, chơi cờ bạc online, chơi game, ...<br>
 ;> hỉu lun e<br>
 ;> nó khoái trúng số lắm e, nó ước trúng lần 10 tỉ 25 tỉ ko à<br>
-;> tháng làm vài triệu ước trúng số 10 tỉ đổ lên
+;> tháng làm vài triệu ước trúng số 10 tỉ đổ lên<br>
+;> đéo mua vé số, hay mua 1 tờ 10k tiếc đứt ruột đứt gan đòi trúng vé số =))
