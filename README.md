@@ -22,4 +22,6 @@
 ;> xưa a nhớ mặt nó già dữ lắm, giờ mấy năm sau mặt nó phải già hơn chứ e<br>
 ;> nói đúng ra thì nó ko có thích a đâu<br>
 ;> nó ghét a á e, nên nó đeo theo phá đám thôi<br>
-;> nó ghét a nào giờ mà e
+;> nó ghét a nào giờ mà e<br>
+;> a cũng ghét nó, a cũng mong nó mãi nghèo khổ quài, nghèo khổ cả đời thì tốt =))<br>
+;> tại vì a ghét nó mà e
