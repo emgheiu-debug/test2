@@ -13,4 +13,5 @@
 ;> có cứt chứ cho tiền =))<br>
 ;> nó dụ a chơi vé số, chơi cờ bạc online, chơi game, ...<br>
 ;> hỉu lun e<br>
-;> nó khoái trúng số lắm e, nó ước trúng lần 10 tỉ 25 tỉ ko à
+;> nó khoái trúng số lắm e, nó ước trúng lần 10 tỉ 25 tỉ ko à<br>
+;> tháng làm vài triệu ước trúng số 10 tỉ đổ lên
