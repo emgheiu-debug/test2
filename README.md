@@ -11,4 +11,5 @@
 ;> éo biết sao hết ảo tưởng lun e<br>
 ;> chồng con nó éo cho nó sao mình người dưng đéo ưa nhau mà cho, cho đầu buồi<br>
 ;> có cứt chứ cho tiền =))<br>
-;> 
+;> nó dụ a chơi vé số, chơi cờ bạc online, chơi game, ...<br>
+;> hỉu lun e
