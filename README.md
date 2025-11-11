@@ -18,4 +18,5 @@
 ;> đéo mua vé số, hay mua 1 tờ 10k tiếc đứt ruột đứt gan đòi trúng vé số =))<br>
 ;> tính nó xạo lồn, hay dạy đời lắm e, mặt nó già ngắt à<br>
 ;> rảnh thì lên tiktok,fb,... các thứ để xạo lồn, giả thần phận, làm phật online dạy đời ngkhác<br>
-;> xạo lồn xong thuê tool buff tương tác
+;> xạo lồn xong thuê tool buff tương tác<br>
+;> xưa a nhớ mặt nó già dữ lắm, giờ mấy năm sau mặt nó phải già hơn chứ e
