@@ -21,4 +21,5 @@
 ;> xạo lồn xong thuê tool buff tương tác<br>
 ;> xưa a nhớ mặt nó già dữ lắm, giờ mấy năm sau mặt nó phải già hơn chứ e<br>
 ;> nói đúng ra thì nó ko có thích a đâu<br>
-;> nó ghét a á e, nên nó đeo theo phá đám thôi
+;> nó ghét a á e, nên nó đeo theo phá đám thôi<br>
+;> nó ghét a nào giờ mà e
