@@ -24,4 +24,5 @@
 ;> nó ghét a á e, nên nó đeo theo phá đám thôi<br>
 ;> nó ghét a nào giờ mà e<br>
 ;> a cũng ghét nó, a cũng mong nó mãi nghèo khổ quài, nghèo khổ cả đời thì tốt =))<br>
-;> tại vì a ghét nó mà e
+;> tại vì a ghét nó mà e<br>
+;> ngủ e
