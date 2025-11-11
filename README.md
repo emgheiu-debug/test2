@@ -15,4 +15,5 @@
 ;> hỉu lun e<br>
 ;> nó khoái trúng số lắm e, nó ước trúng lần 10 tỉ 25 tỉ ko à<br>
 ;> tháng làm vài triệu ước trúng số 10 tỉ đổ lên<br>
-;> đéo mua vé số, hay mua 1 tờ 10k tiếc đứt ruột đứt gan đòi trúng vé số =))
+;> đéo mua vé số, hay mua 1 tờ 10k tiếc đứt ruột đứt gan đòi trúng vé số =))<br>
+;> tính nó xạo lồn, hay dạy đời lắm e, mặt nó già ngắt à
