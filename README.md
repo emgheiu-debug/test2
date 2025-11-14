@@ -10,4 +10,5 @@
 ;> a éo nói chứ video tiktok muốn bịp thì dễ mà e, đợt a nói vs e mxh đa phần bịp đó<br>
 ;> con giò heo giờ tìm cách hãm hại a =))<br>
 ;> số a đi coi bói cũng hơi ngon đó, ko có tù tội hay nghèo mạc hay khổ gì hết<br>
-;> nó là chỉ có hãm hại vs ganh ghét a thôi e
+;> nó là chỉ có hãm hại vs ganh ghét a thôi e<br>
+;> ngủ đi e ghệ dú bự
