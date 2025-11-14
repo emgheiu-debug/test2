@@ -4,4 +4,5 @@
 ;> hong có gì coi hết e, chán lun<br>
 ;> con yến giò heo hết spam đám ma, bài tarot nữa ròi, giờ spam đi tù, spam bị lừa sang campuchia<br>
 ;> spam cờ bạc, online game liên quân pubg<br>
-;> spam phật dạy đời
+;> spam phật dạy đời, làm video AI, ròi tự comment xong tự rep =))<br>
+;> nhìn là biết thôi e
