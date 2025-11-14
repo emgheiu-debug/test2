@@ -7,4 +7,5 @@
 ;> spam phật dạy đời, làm video AI, ròi tự comment xong tự rep =))<br>
 ;> nhìn là biết thôi e<br>
 ;> spam chó mèo, spam xin tiền<br>
-;> a éo nói chứ video tiktok muốn bịp thì dễ mà e, đợt a nói vs e mxh đa phần bịp đó
+;> a éo nói chứ video tiktok muốn bịp thì dễ mà e, đợt a nói vs e mxh đa phần bịp đó<br>
+;> con giò heo giờ tìm cách hãm hại a =))
