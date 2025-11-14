@@ -8,4 +8,5 @@
 ;> nhìn là biết thôi e<br>
 ;> spam chó mèo, spam xin tiền<br>
 ;> a éo nói chứ video tiktok muốn bịp thì dễ mà e, đợt a nói vs e mxh đa phần bịp đó<br>
-;> con giò heo giờ tìm cách hãm hại a =))
+;> con giò heo giờ tìm cách hãm hại a =))<br>
+;> số a đi coi bói cũng hơi ngon đó, ko có tù tội hay nghèo mạc hay khổ gì hết
