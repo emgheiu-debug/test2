@@ -5,4 +5,6 @@
 ;> con yến giò heo hết spam đám ma, bài tarot nữa ròi, giờ spam đi tù, spam bị lừa sang campuchia<br>
 ;> spam cờ bạc, online game liên quân pubg<br>
 ;> spam phật dạy đời, làm video AI, ròi tự comment xong tự rep =))<br>
-;> nhìn là biết thôi e
+;> nhìn là biết thôi e<br>
+;> spam chó mèo, spam xin tiền<br>
+;> a éo nói chứ video tiktok muốn bịp thì dễ mà e, đợt a nói vs e mxh đa phần bịp đó
