@@ -25,4 +25,5 @@
 ;> nhà a mắc nợ thì a cũng éo trả phụ đâu e, làm nợ cho người ngoài, chứ ko phải lo cho a mà mắc nợ<br>
 ;> AI mà e nhìu khi nó cũng bịp, a xài code a biết<br>
 <img width="955" height="354" alt="image" src="https://github.com/user-attachments/assets/b5e153e5-1419-469a-a039-0aaa286a7627" /><br>
-;> phải hem e
+;> phải hem e<br>
+;> ngủ e
