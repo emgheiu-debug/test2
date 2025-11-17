@@ -18,4 +18,5 @@
 ;> ngta dựt là bả cõng nợ<br>
 ;> mẹ a ngu lắm e<br>
 ;> nhà có núi tiền là cũng lỡ nửa e vì ngu<br>
-;> vay thì thường là ngta cho vay lời 5% 1 tháng, rẻ thì 3%, còn xã hội đen thì chắc 10%
+;> vay thì thường là ngta cho vay lời 5% 1 tháng, rẻ thì 3%, còn xã hội đen thì chắc 10%<br>
+;> nói chung thì kệ bả đi, quan trọng mình làm có tiền thì sống riêng, chứ cõng người làm nợ làm nần nghèo chết e
