@@ -11,4 +11,5 @@
 ;> vs lại là có tiền thì cũng hạn chế cho bả tại vì bả cho ngta ăn hết cũng z<br>
 ;> tức là bà A ko tiền cần mượn tiền bả mượn giùm bà B<br>
 ;> mượn giùm free thôi ko cò nha e<br>
-;> bây giờ bả phải ngồi giữ bà A để đòi tiền lời đưa cho bà B, ko là bà B sẽ đòi
+;> bây giờ bả phải ngồi giữ bà A để đòi tiền lời đưa cho bà B, ko là bà B sẽ đòi<br>
+;> người dưng gần nhà thôi e
