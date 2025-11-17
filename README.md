@@ -19,4 +19,5 @@
 ;> mẹ a ngu lắm e<br>
 ;> nhà có núi tiền là cũng lỡ nửa e vì ngu<br>
 ;> vay thì thường là ngta cho vay lời 5% 1 tháng, rẻ thì 3%, còn xã hội đen thì chắc 10%<br>
-;> nói chung thì kệ bả đi, quan trọng mình làm có tiền thì sống riêng, chứ cõng người làm nợ làm nần nghèo chết e
+;> nói chung thì kệ bả đi, quan trọng mình làm có tiền thì sống riêng, chứ cõng người làm nợ làm nần nghèo chết e<br>
+;> tiền làm phải lo cho bản thân gia đình chứ ai lại lo người dưng, hàng xóm
