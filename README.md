@@ -3,4 +3,5 @@
 ;> Gà nướng Cơm lam Pleiku Ơi - Gà Nướng Ngon Tân Bình, gà nướng chỗ này ngon e, có dịp a mua nửa con 135k về ăn, nguyên con ăn ko hết<br>
 ;> a có làm thì a nuôi thân a thôi e<br>
 ;> nửa a ở vs e coi như a mồ côi z đó<br>
-;> gia đình a tính kì lắm, tốt nhất là e ko nên gặp
+;> gia đình a tính kì lắm, tốt nhất là e ko nên gặp<br>
+;> xưa làm chỗ e mẹ a chê bai đủ thứ, kể vs người này người kia lương thấp, mắc cỡ chetme
