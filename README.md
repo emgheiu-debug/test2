@@ -26,4 +26,6 @@
 ;> AI mà e nhìu khi nó cũng bịp, a xài code a biết<br>
 <img width="955" height="354" alt="image" src="https://github.com/user-attachments/assets/b5e153e5-1419-469a-a039-0aaa286a7627" /><br>
 ;> phải hem e<br>
-;> ngủ e
+;> ngủ e<br>
+<img width="1349" height="290" alt="image" src="https://github.com/user-attachments/assets/cacf64b9-1eb7-4260-8069-2bd39c60fc29" /><br>
+;> a hỏi từ mặt cha mẹ thì sao, con AI nó hô bùn chứ ko ảnh hưởng vận mệnh
