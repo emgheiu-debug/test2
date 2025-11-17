@@ -22,4 +22,5 @@
 ;> nói chung thì kệ bả đi, quan trọng mình làm có tiền thì sống riêng, chứ cõng người làm nợ làm nần nghèo chết e<br>
 ;> tiền làm phải lo cho bản thân gia đình chứ ai lại lo người dưng, hàng xóm<br>
 <img width="1253" height="502" alt="image" src="https://github.com/user-attachments/assets/996b96cd-c28b-4b99-8763-b8af9f7862ee" /><br>
-;> nhà a mắc nợ thì a cũng éo trả phụ đâu e, làm nợ cho người ngoài, chứ ko phải lo cho a mà mắc nợ
+;> nhà a mắc nợ thì a cũng éo trả phụ đâu e, làm nợ cho người ngoài, chứ ko phải lo cho a mà mắc nợ<br>
+;> AI mà e nhìu khi nó cũng bịp, a xài code a biết
