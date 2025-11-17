@@ -14,4 +14,6 @@
 ;> bây giờ bả phải ngồi giữ bà A để đòi tiền lời đưa cho bà B, ko là bà B sẽ đòi<br>
 ;> người dưng gần nhà thôi e<br>
 ;> giả sử bà A ko trả thì bả sẽ phải đóng lời<br>
-;> làm z ngta nói mình ngu vs cực cái thân thôi e, chứ đéo đc gì hết, cho mượn tiền đòi mích lòng lắm
+;> làm z ngta nói mình ngu vs cực cái thân thôi e, chứ đéo đc gì hết, cho mượn tiền đòi mích lòng lắm<br>
+;> ngta dựt là bả cõng nợ<br>
+;> mẹ a ngu lắm e
