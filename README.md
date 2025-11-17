@@ -16,4 +16,6 @@
 ;> giả sử bà A ko trả thì bả sẽ phải đóng lời<br>
 ;> làm z ngta nói mình ngu vs cực cái thân thôi e, chứ đéo đc gì hết, cho mượn tiền đòi mích lòng lắm<br>
 ;> ngta dựt là bả cõng nợ<br>
-;> mẹ a ngu lắm e
+;> mẹ a ngu lắm e<br>
+;> nhà có núi tiền là cũng lỡ nửa e vì ngu<br>
+;> vay thì thường là ngta cho vay lời 5% 1 tháng, rẻ thì 3%, còn xã hội đen thì chắc 10%
