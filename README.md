@@ -4,4 +4,5 @@
 ;> a có làm thì a nuôi thân a thôi e<br>
 ;> nửa a ở vs e coi như a mồ côi z đó<br>
 ;> gia đình a tính kì lắm, tốt nhất là e ko nên gặp<br>
-;> xưa làm chỗ e mẹ a chê bai đủ thứ, kể vs người này người kia lương thấp, mắc cỡ chetme
+;> xưa làm chỗ e mẹ a chê bai đủ thứ, kể vs người này người kia lương thấp, mắc cỡ chetme<br>
+;> mẹ a thì làm nợ mượn tiền giùm người khác, cha a thì tính ích kỉ
