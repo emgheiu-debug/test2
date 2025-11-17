@@ -9,4 +9,6 @@
 ;> giờ ví dụ đi e mượn tiền mà e mượn giùm ai đéo biết e làm gì đéo cần biết, người ta cầm tiền đưa e là e phải trả đúng hong, ngta sẽ đòi e<br>
 ;> nói chung thì bả làm nợ thì bả trả thôi chứ a cũng đéo trả nữa<br>
 ;> vs lại là có tiền thì cũng hạn chế cho bả tại vì bả cho ngta ăn hết cũng z<br>
-;>
+;> tức là bà A ko tiền cần mượn tiền bả mượn giùm bà B<br>
+;> mượn giùm free thôi ko cò nha e<br>
+;> bây giờ bả phải ngồi giữ bà A để đòi tiền lời đưa cho bà B, ko là bà B sẽ đòi
