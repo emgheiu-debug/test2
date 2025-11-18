@@ -11,4 +11,5 @@
 ;> thành ra giờ là bả tự bả nuôi heo bả bán tự làm tự nuôi thân, chứ con cái ko có lo gì nhìu<br>
 ;> kiểu như là đẻ con đông ròi chia của ko đồng đều thành ra z<br>
 ;> bên ngoại a là ai hưởng của nhìu thì lo z thôi à<br>
-;> nói chung mốt quen nhau tết a muốn đi chơi vs e khỏi về quê, vài năm về quê 1 lần thôi e
+;> nói chung mốt quen nhau tết a muốn đi chơi vs e khỏi về quê, vài năm về quê 1 lần thôi e<br>
+;> ngủ ngon e
