@@ -10,4 +10,5 @@
 ;> nói chung thì bà ngoại a cũng giống như người dưng thôi, đẻ con ra là chỉ muốn con sau này nó nuôi mình thôi chứ ko có lo gì nhìu<br>
 ;> thành ra giờ là bả tự bả nuôi heo bả bán tự làm tự nuôi thân, chứ con cái ko có lo gì nhìu<br>
 ;> kiểu như là đẻ con đông ròi chia của ko đồng đều thành ra z<br>
-;> bên ngoại a là ai hưởng của nhìu thì lo z thôi à
+;> bên ngoại a là ai hưởng của nhìu thì lo z thôi à<br>
+;> nói chung mốt quen nhau tết a muốn đi chơi vs e khỏi về quê, vài năm về quê 1 lần thôi e
