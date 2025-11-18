@@ -4,4 +4,6 @@
 ;> dưới 3 tỏi<br>
 ;> bán mua đất chỗ khác đổi hàng xóm, ở gần họ hàng mệt đầu lắm e<br>
 ;> sống 1 kiếp người phải cho đáng e, chet coi như hết<br>
-;> đất giờ bán có đánh thuế ko e, cả chục năm nữa hoặc hơn a mới bán
+;> đất giờ bán có đánh thuế ko e, cả chục năm nữa hoặc hơn a mới bán<br>
+;> nhà e dưới quê có ở chùm chùm họ hàng giống a hem<br>
+;> mẹ a ngủ vs bà ngoại a đc ông cậu cho 10 triệu ngủ 2 năm, ngủ mướn ý e, 14k 1 ngày
