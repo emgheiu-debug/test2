@@ -1,2 +1,4 @@
 ;> a nhô e<br>
-;> cơm nước gì chưa e
+;> cơm nước gì chưa e<br>
+;> lu bu xíu e giờ nhắn nè e<br>
+;>
