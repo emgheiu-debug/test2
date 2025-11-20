@@ -8,4 +8,4 @@
 ;> dưới a đãi đám tiệc hay bỏ cá này vô<br>
 ;> mua 1 con kêu ngta làm sẵn mình đông lạnh nào mình ăn mua lẩu về bỏ cá vô ăn thôi e<br>
 ;> đợt a đi ăn cưới ở vũng tàu chỗ đường cao tốc chạy từ thủ đức sang ý e, có trạm dừng chân long thành đồng nai nữa ròi tới vũng tàu, đãi cưới cũng như dưới quê a<br>
-;> trạm dừng chân này khác hồi xưa a đi, xưa a đi đâu ghé long thành bán sữa bò mua về ngọt như chè z
+;> trạm dừng chân này khác hồi xưa a đi, xưa a đi đâu ghé long thành bán sữa bò mua về ngọt như chè z, có tượng con bò nữa e, giờ có mấy quán trà sữa tocco trong đó nữa
