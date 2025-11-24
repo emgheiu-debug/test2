@@ -3,4 +3,5 @@
 ;> thích làm vợ a hem<br>
 ;> tối ôm nhau tâm sự ròi ngủ e, e chắc thích làm tình lắm<br>
 ;> nửa nhớ làm đồ ăn cho a<br>
-;> làm bò né cũng dễ e
+;> làm bò né cũng dễ e<br>
+;> bò né vs trứng thôi e, khỏi pate a hong ưa ăn pate trong bò né lắm
