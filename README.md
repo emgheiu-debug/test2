@@ -5,4 +5,5 @@
 ;> nửa nhớ làm đồ ăn cho a<br>
 ;> làm bò né cũng dễ e<br>
 ;> bò né vs trứng thôi e, khỏi pate a hong ưa ăn pate trong bò né lắm<br>
-;> nào a bóp dú cho nhen e
+;> nào a bóp dú cho nhen e<br>
+;> ngủ ngon nhen e
