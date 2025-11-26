@@ -13,4 +13,5 @@
 ;> nó bth xạo lồn trên mạng z thôi chứ sống khổ lắm e =)), lâu lâu lên mạng xin 5k 10k nữa<br>
 ;> nó có chết thì cũng kệ nó e<br>
 ;> thân thiết đéo gì e, cuộc sống mình, mình lo e<br>
-;> đéo phải lên mạng ngửa tay xin 5k 10k như ăn mày e, ai mà cho
+;> đéo phải lên mạng ngửa tay xin 5k 10k như ăn mày e, ai mà cho<br>
+;> ngủ ngon nhen e
