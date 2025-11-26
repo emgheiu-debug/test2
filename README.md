@@ -10,4 +10,7 @@
 ;> gu a đâu mặn z e, lừa a trúng số đặng mua vé số hết tiền =)), đâu ngu e<br>
 ;> nói chung là số nó khổ cả đời, khổ dần theo thời gian càng già càng khổ ý e, tới năm tuổi nó, nó khổ hơn<br>
 ;> a muốn nó sống dai để chịu khổ thôi =))<br>
-;> nó bth xạo lồn trên mạng z thôi chứ sống khổ lắm e =)), lâu lâu lên mạng xin 5k 10k nữa
+;> nó bth xạo lồn trên mạng z thôi chứ sống khổ lắm e =)), lâu lâu lên mạng xin 5k 10k nữa<br>
+;> nó có chết thì cũng kệ nó e<br>
+;> thân thiết đéo gì e, cuộc sống mình, mình lo e<br>
+;> đéo phải lên mạng ngửa tay xin 5k 10k như ăn mày e, ai mà cho
