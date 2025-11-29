@@ -7,4 +7,5 @@
 ;> nói e nào giờ e éo tin à<br>
 ;> nay chắc ngủ sớm e<br>
 ;> tiền bạc dư giả thì từ thiện e, còn ko thì thôi e, đâu ai ép buộc<br>
-;> tùy tâm mà e
+;> tùy tâm mà e<br>
+;> chắc hơn 30 a đi coi bói lại
