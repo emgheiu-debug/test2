@@ -4,4 +4,5 @@
 ;> vì tiktok bịp 90% e<br>
 ;> nhà giờ hơn 5 tỉ ko à e, ko có khả năng mua thì mình ở trọ e<br>
 ;> con giò heo biết link này mà e nó đang soi ròi lên mạng xì spam thôi e<br>
-;> nói e nào giờ e éo tin à
+;> nói e nào giờ e éo tin à<br>
+;> nay chắc ngủ sớm e
