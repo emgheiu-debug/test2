@@ -8,4 +8,6 @@
 ;> nay chắc ngủ sớm e<br>
 ;> tiền bạc dư giả thì từ thiện e, còn ko thì thôi e, đâu ai ép buộc<br>
 ;> tùy tâm mà e<br>
-;> chắc hơn 30 a đi coi bói lại
+;> chắc hơn 30 a đi coi bói lại<br>
+;> biết đâu làm mấy năm xong phất sao e, người giàu do thu nhập ngta cao thôi e, chứ mình làm tháng 7 củ đi thì 7x13 cũng 91 củ chưa trừ chi phí ăn uống đi lại phát sinh<br>
+;>
