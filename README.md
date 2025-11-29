@@ -12,4 +12,5 @@
 ;> biết đâu làm mấy năm xong phất sao e, người giàu do thu nhập ngta cao thôi e, chứ mình làm tháng 7 củ đi thì 7x13 cũng 91 củ chưa trừ chi phí ăn uống đi lại phát sinh<br>
 ;> nếu mà có gia đình thì 7-8 củ là ko đủ<br>
 ;> cho làm năm thứ 2 là 8 củ đi là 104 củ<br>
-;> làm 10 năm thì loanh quanh 1-2 tỷ, chưa trừ chi phí ăn uống sinh hoạt nhà trọ phát sinh
+;> làm 10 năm thì loanh quanh 1-2 tỷ, chưa trừ chi phí ăn uống sinh hoạt nhà trọ phát sinh<br>
+;> ngủ e mai nhắn nhe e
