@@ -13,4 +13,5 @@
 ;> "lộc độc đắc ta cho con xxx" đoại loại là số gì đó bịa ra để mua cho hết tiền hoặc quýnh đề <br>
 ;> hồi xưa còn có kiểu á "người yêu con vừa người bận quần áo màu x" gì gì đó xong mai có đứa nào muốn tán ai là bận đồ y chang z =)))<br>
 ;> e hỉu câu chuyện hem<br>
-;> tức là mạng online thì chỉ có người lừa người thôi e, chứ phật nào chơi cầm điện thoại tượt tượt à
+;> tức là mạng online thì chỉ có người lừa người thôi e, chứ phật nào chơi cầm điện thoại tượt tượt à<br>
+;> giờ người lừa người trên mạng thôi e
