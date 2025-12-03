@@ -23,3 +23,5 @@
 ;> có mấy người ngta coi hay lắm e, cũng có mấy người coi trớt lớt à, tùy á<br>
 ;> ngta coi biết trước tương lai mà e<br>
 ;> mẹ a xưa đi coi boi giờ y chang lun e<br>
+;> đợt a vs con nhỏ kia đi coi ngta hô nó tháng 3 tháng 5 té xe là đúng tháng đó nó té lun e<br>
+;>
