@@ -7,4 +7,5 @@
 ;> a ở dưới miền tây mà a ko ưa ăn ngọt vs mắm cho lắm<br>
 ;> con giò heo ngày nào a cũng thấy nó ảo tưởng vs tự giày vò nó hết e =))<br>
 ;> nợ quá thì spam "con muốn trúng số hãy like và thả follow ngày mai con sẽ có 10 tỉ hứa vs ta trả hết nợ và đi từ thiện " =))<br>
-;> hoặc là "có 1 người đang muốn hãm hại con hãy thả tim và ấn follow ta người đó ở messenger người thứ 2"
+;> hoặc là "có 1 người đang muốn hãm hại con hãy thả tim và ấn follow ta người đó ở messenger người thứ 2"<br>
+;> nào là "lộc đến cmt claim 111 777 888 để nhận lộc"
