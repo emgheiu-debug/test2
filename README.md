@@ -8,4 +8,8 @@
 ;> con giò heo ngày nào a cũng thấy nó ảo tưởng vs tự giày vò nó hết e =))<br>
 ;> nợ quá thì spam "con muốn trúng số hãy like và thả follow ngày mai con sẽ có 10 tỉ hứa vs ta trả hết nợ và đi từ thiện " =))<br>
 ;> hoặc là "có 1 người đang muốn hãm hại con hãy thả tim và ấn follow ta người đó ở messenger người thứ 2"<br>
-;> nào là "lộc đến cmt claim 111 777 888 để nhận lộc"
+;> nào là "lộc đến cmt claim 111 777 888 để nhận lộc"<br>
+;> ròi "tháng này con có 2 tin vui"<br>
+;> "lộc độc đắc ta cho con xxx" đoại loại là số gì đó bịa ra để mua cho hết tiền hoặc quýnh đề <br>
+;> hồi xưa còn có kiểu á "người yêu con vừa người bận quần áo màu x" gì gì đó xong mai có đứa nào muốn tán ai là bận đồ y chang z =)))<br>
+;> e hỉu câu chuyện hem
