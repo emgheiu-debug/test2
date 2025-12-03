@@ -25,4 +25,5 @@
 ;> mẹ a xưa đi coi boi giờ y chang lun e<br>
 ;> đợt a vs con nhỏ kia đi coi ngta hô nó tháng 3 tháng 5 té xe là đúng tháng đó nó té lun e<br>
 ;> ròi có mấy mẹ bị hỏi quá ừa đại nữa mấy mẹ đó nghe mùi bịp ròi<br>
-;> con giò heo đầu tháng góp lãi e, là cuối tháng lên mạng than xin tiền
+;> con giò heo đầu tháng góp lãi e, là cuối tháng lên mạng than xin tiền<br>
+;> nó mê lồn non lẫn mê cu e
