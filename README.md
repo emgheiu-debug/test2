@@ -14,4 +14,7 @@
 ;> hồi xưa còn có kiểu á "người yêu con vừa người bận quần áo màu x" gì gì đó xong mai có đứa nào muốn tán ai là bận đồ y chang z =)))<br>
 ;> e hỉu câu chuyện hem<br>
 ;> tức là mạng online thì chỉ có người lừa người thôi e, chứ phật nào chơi cầm điện thoại tượt tượt à<br>
-;> giờ người lừa người trên mạng thôi e
+;> giờ người lừa người trên mạng thôi e<br>
+;> bài tarot cũng bịp nữa e<br>
+;> coi bói phải lựa người hay nữa<br>
+;> e ở xa e đi coi bói đi mà vô ngta nhìn e ngta nói lun ko có hỏi địa chỉ tuổi gì sất mà có xảy ra thì mới hay
