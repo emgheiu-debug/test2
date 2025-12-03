@@ -27,4 +27,7 @@
 ;> ròi có mấy mẹ bị hỏi quá ừa đại nữa mấy mẹ đó nghe mùi bịp ròi<br>
 ;> con giò heo đầu tháng góp lãi e, là cuối tháng lên mạng than xin tiền<br>
 ;> nó mê lồn non lẫn mê cu e<br>
-;> mé bữa a chạy xe, có thg cha lồn băng qua lộ đéo nhìn đường, a chạy gần tới mới băng qua lộ làm thắng gấp xong chỗ để chân xe số á e, nó va vô chân thế là bầm lun, hên éo té
+;> mé bữa a chạy xe, có thg cha lồn băng qua lộ đéo nhìn đường, a chạy gần tới mới băng qua lộ làm thắng gấp xong chỗ để chân xe số á e, nó va vô chân thế là bầm lun, hên éo té<br>
+<img width="398" height="282" alt="image" src="https://github.com/user-attachments/assets/f0b0a251-d7ca-4c9b-b649-48dfe021e3a1" /><br>
+;> chỗ này nè e<br>
+;> gặp xe mà bị mòn vỏ xe, thắng đĩa là thắng gấp dễ tế nữa
