@@ -19,4 +19,6 @@
 ;> coi bói phải lựa người hay nữa<br>
 ;> e ở xa e đi coi bói đi mà vô ngta nhìn e ngta nói lun ko có hỏi địa chỉ tuổi gì sất mà có xảy ra thì mới hay<br>
 ;> cái nào cũng có cái lý do của nó hết e<br>
-;> coi mà trật là bịp thôi e, coi nào cũng z sai là bịp
+;> coi mà trật là bịp thôi e, coi nào cũng z sai là bịp<br>
+;> có mấy người ngta coi hay lắm e, cũng có mấy người coi trớt lớt à, tùy á<br>
+;> ngta coi biết trước tương lai mà e
