@@ -21,4 +21,5 @@
 ;> cái nào cũng có cái lý do của nó hết e<br>
 ;> coi mà trật là bịp thôi e, coi nào cũng z sai là bịp<br>
 ;> có mấy người ngta coi hay lắm e, cũng có mấy người coi trớt lớt à, tùy á<br>
-;> ngta coi biết trước tương lai mà e
+;> ngta coi biết trước tương lai mà e<br>
+;> mẹ a xưa đi coi boi giờ y chang lun e<br>
