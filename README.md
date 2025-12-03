@@ -30,4 +30,5 @@
 ;> mé bữa a chạy xe, có thg cha lồn băng qua lộ đéo nhìn đường, a chạy gần tới mới băng qua lộ làm thắng gấp xong chỗ để chân xe số á e, nó va vô chân thế là bầm lun, hên éo té<br>
 <img width="398" height="282" alt="image" src="https://github.com/user-attachments/assets/f0b0a251-d7ca-4c9b-b649-48dfe021e3a1" /><br>
 ;> chỗ này nè e<br>
-;> gặp xe mà bị mòn vỏ xe, thắng đĩa là thắng gấp dễ tế nữa
+;> gặp xe mà bị mòn vỏ xe, thắng đĩa là thắng gấp dễ tế nữa<br>
+;> mốt có tiền chắc đổi xe tay ga chạy, xe tay ga thì đỡ quên đá chống xe thôi e, ko đá ko đề máy đc, a thì hay quên đá chống
