@@ -17,4 +17,6 @@
 ;> giờ người lừa người trên mạng thôi e<br>
 ;> bài tarot cũng bịp nữa e<br>
 ;> coi bói phải lựa người hay nữa<br>
-;> e ở xa e đi coi bói đi mà vô ngta nhìn e ngta nói lun ko có hỏi địa chỉ tuổi gì sất mà có xảy ra thì mới hay
+;> e ở xa e đi coi bói đi mà vô ngta nhìn e ngta nói lun ko có hỏi địa chỉ tuổi gì sất mà có xảy ra thì mới hay<br>
+;> cái nào cũng có cái lý do của nó hết e<br>
+;> coi mà trật là bịp thôi e, coi nào cũng z sai là bịp
