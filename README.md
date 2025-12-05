@@ -5,4 +5,4 @@
 ;> chủ yếu là bỏ bột nhìu thôi e, chứ khoai thì chả bao nhiu<br>
 ;> ngoài tiệm thì ngta làm chưa vừa ý mình thì mình tự làm thích dẻo nhìu hay giòn nhìu cũng đc e<br>
 ;> ở chung vs a siêng a làm đồ ăn cho ăn<br>
-;> ngủ ngon e
+;> ngủ ngon e, a ngủ à
