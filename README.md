@@ -4,4 +4,6 @@
 ;> học nấu ăn dần đi e<br>
 ;> nói chung bth a ở nhà thì ai nói gì mình cứ kệ đi vì ngta già tư tưởng họ z ròi giải thích mệt lắm, hay bắt ngta nghĩ khác đi mệt lắm e<br>
 ;> tốt nhất là kệ thôi e, chuyện mình tự tính trong đầu trước<br>
-;> nửa mua bếp ga về nướng đồ ăn ăn e
+;> nửa mua bếp ga về nướng đồ ăn ăn e<br>
+;> chừng 700k là có 1 bếp nướng, mốt a mua về a nướng<br>
+;> đợi e nướng chung hơi lâu
