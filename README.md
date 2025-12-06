@@ -6,4 +6,5 @@
 ;> tốt nhất là kệ thôi e, chuyện mình tự tính trong đầu trước<br>
 ;> nửa mua bếp ga về nướng đồ ăn ăn e<br>
 ;> chừng 700k là có 1 bếp nướng, mốt a mua về a nướng<br>
-;> đợi e nướng chung hơi lâu
+;> đợi e nướng chung hơi lâu<br>
+;> nướng hàu ăn vô cho nungfd liền e
