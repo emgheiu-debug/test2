@@ -7,4 +7,6 @@
 ;> nửa mua bếp ga về nướng đồ ăn ăn e<br>
 ;> chừng 700k là có 1 bếp nướng, mốt a mua về a nướng<br>
 ;> đợi e nướng chung hơi lâu<br>
-;> nướng hàu ăn vô cho nungfd liền e
+;> nướng hàu ăn vô cho nungfd liền e<br>
+;> 2 mình nằm ôm nhau trên ghế sofa ôm ấp bóp nắn tí<br>
+;> nói hồi mắc công e nghe e nungdf ngủ hem đc, ngủ ngon e, a off
