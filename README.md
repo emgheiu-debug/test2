@@ -9,4 +9,4 @@
 ;> a thấy thì ở chung cha mẹ cũng mệt nửa phụ tiền vô làm này làm kia ở chung lại mệt<br>
 ;> coi tử vi chơi chơi thì thấy bạn đời trung bình khá à e ko phải siêu giàu<br>
 <img width="1408" height="702" alt="image" src="https://github.com/user-attachments/assets/d2483c03-8e5f-4f5a-aa4f-a081f0138f9b" /><br>
-;> AI bịp thật e
+;> AI bịp thật e, tự bịa ra giờ mão năm 2025 quý mão =))) cười chết
