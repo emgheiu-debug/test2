@@ -5,4 +5,5 @@
 ;> a thì hong có số nhờ mẹ nhờ cha chắc làm có tiền tự lo thân thôi e, chứ cho tiền cha mẹ lúc mình cần lại ko có<br>
 ;> chắc nói làm lương đủ ăn cho 500k thôi =))<br>
 ;> a nhớ dai lắm có qua thì lại thôi<br>
-;> xưa thì a làm khóa luận tốt nghiệp nhìn mấy người hướng dẫn chèo kéo sinh viên vô nhóm họ làm lắm, chắc là đc hưởng tiền từ việc sv làm khóa luận 
+;> xưa thì a làm khóa luận tốt nghiệp nhìn mấy người hướng dẫn chèo kéo sinh viên vô nhóm họ làm lắm, chắc là đc hưởng tiền từ việc sv làm khóa luận <br>
+;> a thấy thì ở chung cha mẹ cũng mệt nửa phụ tiền vô làm này làm kia ở chung lại mệt
