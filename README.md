@@ -6,4 +6,5 @@
 ;> chắc nói làm lương đủ ăn cho 500k thôi =))<br>
 ;> a nhớ dai lắm có qua thì lại thôi<br>
 ;> xưa thì a làm khóa luận tốt nghiệp nhìn mấy người hướng dẫn chèo kéo sinh viên vô nhóm họ làm lắm, chắc là đc hưởng tiền từ việc sv làm khóa luận <br>
-;> a thấy thì ở chung cha mẹ cũng mệt nửa phụ tiền vô làm này làm kia ở chung lại mệt
+;> a thấy thì ở chung cha mẹ cũng mệt nửa phụ tiền vô làm này làm kia ở chung lại mệt<br>
+;> coi tử vi chơi chơi thì thấy bạn đời trung bình khá à e ko phải siêu giàu
