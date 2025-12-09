@@ -7,4 +7,6 @@
 ;> a nhớ dai lắm có qua thì lại thôi<br>
 ;> xưa thì a làm khóa luận tốt nghiệp nhìn mấy người hướng dẫn chèo kéo sinh viên vô nhóm họ làm lắm, chắc là đc hưởng tiền từ việc sv làm khóa luận <br>
 ;> a thấy thì ở chung cha mẹ cũng mệt nửa phụ tiền vô làm này làm kia ở chung lại mệt<br>
-;> coi tử vi chơi chơi thì thấy bạn đời trung bình khá à e ko phải siêu giàu
+;> coi tử vi chơi chơi thì thấy bạn đời trung bình khá à e ko phải siêu giàu<br>
+<img width="1408" height="702" alt="image" src="https://github.com/user-attachments/assets/d2483c03-8e5f-4f5a-aa4f-a081f0138f9b" /><br>
+;> AI bịp thật e
