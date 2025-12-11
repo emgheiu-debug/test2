@@ -11,4 +11,5 @@
 ;> uống nước đá làm a hay bị dị ứng mũi vãi chắc nghỉ uống thôi e<br>
 ;> ý là 1 ngày uống đúng 1 ly matcha nhỏ vẫn ngứa mũi bth e<br>
 ;> đợt có đi khám ròi ko hiệu quả lắm e<br>
-;> e đừng có coi bói online hay coi bài tarot nhó bịp 100%, coi mất tiền
+;> e đừng có coi bói online hay coi bài tarot nhó bịp 100%, coi mất tiền<br>
+;> nào a ngủ chung cho a mò mẫm cái nhe e =))
