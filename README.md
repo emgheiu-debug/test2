@@ -13,4 +13,5 @@
 ;> đợt có đi khám ròi ko hiệu quả lắm e<br>
 ;> e đừng có coi bói online hay coi bài tarot nhó bịp 100%, coi mất tiền<br>
 ;> nào a ngủ chung cho a mò mẫm cái nhe e =))<br>
-;> ngủ e, khuya ròi e
+;> ngủ e, khuya ròi e<br>
+;> thỉnh thoảng làm tình vs a e nhé
