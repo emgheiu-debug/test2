@@ -12,4 +12,5 @@
 ;> ý là 1 ngày uống đúng 1 ly matcha nhỏ vẫn ngứa mũi bth e<br>
 ;> đợt có đi khám ròi ko hiệu quả lắm e<br>
 ;> e đừng có coi bói online hay coi bài tarot nhó bịp 100%, coi mất tiền<br>
-;> nào a ngủ chung cho a mò mẫm cái nhe e =))
+;> nào a ngủ chung cho a mò mẫm cái nhe e =))<br>
+;> ngủ e, khuya ròi e
