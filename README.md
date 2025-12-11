@@ -6,4 +6,5 @@
 ;> đời mà e ko ai cho 0 mình cái gì đâu a nói thật<br>
 ;> ai mà tự nhiên giúp mình thì cũng có lý do<br>
 ;> vay trả càng lâu thì lãi càng cao thôi e<br>
-;> giờ lừa gạt vs bịp bợm lùa gà dữ lắm e, tin giả nữa, tốt nhất là rảnh thì bớt coi xàm xàm để bớt nhiễu e
+;> giờ lừa gạt vs bịp bợm lùa gà dữ lắm e, tin giả nữa, tốt nhất là rảnh thì bớt coi xàm xàm để bớt nhiễu e<br>
+;> giờ e vay 100 triệu lãi hằng tháng 5 triệu mà từ 100 triệu đó e kiếm đc hơn 5 củ thì e làm ko thì thôi
