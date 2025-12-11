@@ -10,4 +10,5 @@
 ;> giờ e vay 100 triệu lãi hằng tháng 5 triệu mà từ 100 triệu đó e kiếm đc hơn 5 củ thì e làm ko thì thôi<br>
 ;> uống nước đá làm a hay bị dị ứng mũi vãi chắc nghỉ uống thôi e<br>
 ;> ý là 1 ngày uống đúng 1 ly matcha nhỏ vẫn ngứa mũi bth e<br>
-;> đợt có đi khám ròi ko hiệu quả lắm e
+;> đợt có đi khám ròi ko hiệu quả lắm e<br>
+;> e đừng có coi bói online hay coi bài tarot nhó bịp 100%, coi mất tiền
