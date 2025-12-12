@@ -9,4 +9,4 @@
 ;> nói chung thì e sẽ đợi a khá là lâu<br>
 ;> e sẽ phải đợi nhưng ko biết khi nào có thẻ là nửa năm hoặc hơn 1 năm nửa gì đó tùy thôi e<br>
 ;> năm sau đc thì thỉnh thoảng mình gặp nhau e nhó, a lên sài gòn chơi<br>
-;> 
+;> ý là e vẫn đợi ko gặp nhau hằng ngày nhưng thỉnh thoảng nếu đc thì sẽ gặp nhau
