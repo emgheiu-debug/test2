@@ -5,4 +5,5 @@
 ;> a nhìu khi ko mượn tiền bạn vì nhìu khi nó cũng nghèo 2 là ko có khả năng trả nên éo mượn<br>
 ;> mượn mấy đứa nghèo mượn lâu ko đc<br>
 ;> 1 là cha mẹ 2 là bồ giúp hết ròi đó<br>
-;> e thì chắc năm sau hoặc may ra hết năm sau mới gặp a đc
+;> e thì chắc năm sau hoặc may ra hết năm sau mới gặp a đc<br>
+;> nói chung thì e sẽ đợi a khá là lâu
