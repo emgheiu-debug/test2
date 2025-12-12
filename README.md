@@ -6,4 +6,5 @@
 ;> mượn mấy đứa nghèo mượn lâu ko đc<br>
 ;> 1 là cha mẹ 2 là bồ giúp hết ròi đó<br>
 ;> e thì chắc năm sau hoặc may ra hết năm sau mới gặp a đc<br>
-;> nói chung thì e sẽ đợi a khá là lâu
+;> nói chung thì e sẽ đợi a khá là lâu<br>
+;> e sẽ phải đợi nhưng ko biết khi nào có thẻ là nửa năm hoặc hơn 1 năm nửa gì đó tùy thôi e
