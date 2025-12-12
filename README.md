@@ -7,4 +7,6 @@
 ;> 1 là cha mẹ 2 là bồ giúp hết ròi đó<br>
 ;> e thì chắc năm sau hoặc may ra hết năm sau mới gặp a đc<br>
 ;> nói chung thì e sẽ đợi a khá là lâu<br>
-;> e sẽ phải đợi nhưng ko biết khi nào có thẻ là nửa năm hoặc hơn 1 năm nửa gì đó tùy thôi e
+;> e sẽ phải đợi nhưng ko biết khi nào có thẻ là nửa năm hoặc hơn 1 năm nửa gì đó tùy thôi e<br>
+;> năm sau đc thì thỉnh thoảng mình gặp nhau e nhó, a lên sài gòn chơi<br>
+;> 
