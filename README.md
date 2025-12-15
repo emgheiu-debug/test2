@@ -42,4 +42,5 @@
 ;> lon của bà già nhìn ghê lắm e<br>
 ;> a sợ mình mất cử cơm<br>
 ;> mấy bà già sồn sồn cỡ nó thường là người mỡ cục cục lon đen ,da chùng<br>
-;> mỡ mả thiếu điều bỏ vô chảo thắng mỡ thôi e, nói chung là ko nên coi lon bà già
+;> mỡ mả thiếu điều bỏ vô chảo thắng mỡ thôi e, nói chung là ko nên coi lon bà già<br>
+;> nói chung thì con giò heo yêu đồ tàu và đam mê làm tình dù phụ tùng hết đát thôi e, quá rõ ràng
