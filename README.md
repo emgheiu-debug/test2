@@ -86,4 +86,5 @@
 ;> cho ít vài trăm thôi<br>
 ;> cho nhìu lại vào túi ng khác<br>
 ;> ở dưới a người có tuổi cỡ mẹ a làm nợ dữ lắm<br>
-;> cho nên là tiêu chí làm vợ a thì 1 là ko lo chuyện bao đồng, 2 là ưu tiên gia đình, cha mẹ e lo cho e ngon lành thì e lo lại chuyện bth e
+;> cho nên là tiêu chí làm vợ a thì 1 là ko lo chuyện bao đồng, 2 là ưu tiên gia đình, cha mẹ e lo cho e ngon lành thì e lo lại chuyện bth e<br>
+;> đừng có giống con giò heo là đc e, đàn bà như nó tệ lắm
