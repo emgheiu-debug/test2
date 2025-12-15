@@ -51,4 +51,7 @@
 ;> vắt kiệt giá trị của 1 chai gel lun e<br>
 ;> già ròi lông lon cứng như tăm tre z lấy xỉa răng còn đc<br>
 ;> a tuổi trẻ vất vả éo biết trung vận hậu vận có sướng ko<br>
-;> nhây quá e cười chet giờ cũng khuya ròi mà 
+;> nhây quá e cười chet giờ cũng khuya ròi mà <br>
+;> nói chung thì có người khổ cả đời mà e<br>
+;> hoặc sướng trước khổ sau, sướng cả đời có ko thì a ko biết, đời người mà phải có khó khăn chứ e<br>
+;>
