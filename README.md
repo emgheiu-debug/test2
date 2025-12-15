@@ -25,4 +25,5 @@
 ;> nó bận quần xì mau mục lắm tại vì nungf lon nước lon chảy ướt quần xì tối ngày lấy gì khô mà ko mục rách e<br>
 ;> 2 vợ chồng nó nungdg mà mình phải ăn cơm chó sao e<br>
 ;> quần xì tàu ko biết có tẩm hóa chất gây ung thư lon ko a ko biết nữa<br>
-;> thời gian ung thư ủ bệnh lâu ý e nên giờ nó chưa bị ung thư lon mới bị nungf lon thôi e
+;> thời gian ung thư ủ bệnh lâu ý e nên giờ nó chưa bị ung thư lon mới bị nungf lon thôi e<br>
+;> nhìn nó a biết dú lép lon nhìu lông dài ra tới lỗ đít lun nên già còn sung lắm, nungfdf lon vs a iu chồng iu nó dữ lắm e
