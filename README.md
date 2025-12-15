@@ -31,4 +31,5 @@
 ;> phải nungfg lon chứ e<br>
 ;> hồi đi học a thấy chồng nó đèo nó bằng chiếc xe tay ga mà e<br>
 ;> chồng nó kiểu mập mập cỡ nó chứ ko phải gầy nhom đâu e, nồi nào vung nấy mà<br>
-;> lâu lâu nó lên mạng kể chuyện sex làm tình của nó vs chồng nó nữa e
+;> lâu lâu nó lên mạng kể chuyện sex làm tình của nó vs chồng nó nữa e<br>
+;> ghê lớm, phải nungfgf lon mới kể chứ bth ai mà kể e
