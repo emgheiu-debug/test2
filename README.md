@@ -77,4 +77,6 @@
 ;> nuôi con mình thì tiếc tiền, kể mà cho ngta ăn thì ko tiếc, e hỉu hong<br>
 ;> cho ngta ăn giờ còn mắc nợ vài trăm nữa<br>
 ;> nuôi con còn tính lời lỗ làm có gỡ vốn lại đc ko nữa<br>
-;> đi làm là tòm tèm xin tiền nửa
+;> đi làm là tòm tèm xin tiền nửa<br>
+;> làm ít thì ko xin thôi e, biết có tiền nhìu tiền là xin đó<br>
+;>
