@@ -15,4 +15,5 @@
 ;> nó soạn 1 list để phục vụ chồng nó nữa mà e, gì mà làm tình 14 lần 1 đêm gọi dầu gọi JCK qq gì đó, đánh răng để dễ bú xài Yisao gì đó e<br>
 ;> a xài kem ngọc châu, sensodyne thôi<br>
 ;> chắc nó thích xài đồ tàu mà e xài yisao, JCK đồ tàu mà e<br>
-;> ko biết nó có xài nước rửa bím tàu ko a ko biết, xài chắc ko chem chép rụng lông lon lun
+;> ko biết nó có xài nước rửa bím tàu ko a ko biết, xài chắc khô chem chép rụng lông lon lun<br>
+;> khô chem chép lại xài gel bôi trơn tàu 
