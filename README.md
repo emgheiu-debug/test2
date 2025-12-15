@@ -67,4 +67,5 @@
 ;> nói chung là bả làm nợ thì nhìu e, xưa bả nuôi a thì cha a nuôi 1 nửa<br>
 ;> ròi bả làm chủ hụi cũng bị giựt hụi tiếp<br>
 ;> bả thì sống tin người nghĩ xã hội ai cũng tốt ý e<br>
-;> a đâu có như z
+;> a đâu có như z<br>
+;> e chơi hụi mà hốt hụi thì nó vẫn rẻ hơn là e đi vay nói thật lun e
