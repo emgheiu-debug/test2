@@ -43,4 +43,5 @@
 ;> a sợ mình mất cử cơm<br>
 ;> mấy bà già sồn sồn cỡ nó thường là người mỡ cục cục lon đen ,da chùng<br>
 ;> mỡ mả thiếu điều bỏ vô chảo thắng mỡ thôi e, nói chung là ko nên coi lon bà già<br>
-;> nói chung thì con giò heo yêu đồ tàu và đam mê làm tình dù phụ tùng hết đát thôi e, quá rõ ràng
+;> nói chung thì con giò heo yêu đồ tàu và đam mê làm tình dù phụ tùng hết đát thôi e, quá rõ ràng<br>
+;> con giò heo mà bị khô lòn ý e, là nó sài gel tàu 1 lần nửa chai nặn vô ngón tay ròi quậy quậy vô lòn như tra mỡ heo z
