@@ -76,4 +76,5 @@
 ;> a thì quan điểm a là cho con mình thì nó còn đó, cho người ngoài mới mất thôi<br>
 ;> nuôi con mình thì tiếc tiền, kể mà cho ngta ăn thì ko tiếc, e hỉu hong<br>
 ;> cho ngta ăn giờ còn mắc nợ vài trăm nữa<br>
-;> nuôi con còn tính lời lỗ làm có gỡ vốn lại đc ko nữa
+;> nuôi con còn tính lời lỗ làm có gỡ vốn lại đc ko nữa<br>
+;> đi làm là tòm tèm xin tiền nửa
