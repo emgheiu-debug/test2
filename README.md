@@ -91,4 +91,6 @@
 ;> mốt a đi sài gòn về thì hô làm đủ ăn, mua đồ thì trả góp, kinh doanh vs bạn bị thua lỗ mắc nợ gì đó bịa ra để khỏi bị vòi tiền e<br>
 ;> đàn bà như con giò heo thì hay lo chuyện bao đồng e, mình éo lo mình lo soi mói ngta 24/24 sao giàu e<br>
 ;> bản thân thì nghèo con thì học dở, mắc nợ, chồng thì như cứt chảy ko nhờ đc, lâu lấu nó lên mạng xin xỏ vài ngàn<br>
-;> như e giờ e làm e lo chuyện kinh doanh của e dư giả e lại đi chơi, ai làm gì kệ mịa ngta, mình lo mình ngon lành là đc
+;> như e giờ e làm e lo chuyện kinh doanh của e dư giả e lại đi chơi, ai làm gì kệ mịa ngta, mình lo mình ngon lành là đc<br>
+;> bà ngoại hay chửi mẹ a là "đần độn", a thấy đúng thật<br>
+;> khuya ròi ngủ đi e
