@@ -33,4 +33,6 @@
 ;> chồng nó kiểu mập mập cỡ nó chứ ko phải gầy nhom đâu e, nồi nào vung nấy mà<br>
 ;> lâu lâu nó lên mạng kể chuyện sex làm tình của nó vs chồng nó nữa e<br>
 ;> ghê lớm, phải nungfgf lon mới kể chứ bth ai mà kể e<br>
-;> lướt bth lâu lâu cũng thấy nó kể chuyện sex nữa e, nó kể nó làm vs chồng nó 
+;> lướt bth lâu lâu cũng thấy nó kể chuyện sex nữa e, nó kể nó làm vs chồng nó <br>
+;> mốt là nó up clip sex nó kiếm tiền giờ e, túng tiền quá mà, cho ngta chiêm ngưỡng cái lon đen của nó<br>
+;> hư mắt chet lun e
