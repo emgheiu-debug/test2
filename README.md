@@ -8,4 +8,7 @@
 ;> 2 vợ chung + 2 thg con ở nhà trọ bụm lồn chắc nungff lon ko làm tình đc e<br>
 ;> vô nhà nghỉ làm tốn tiền vì đang mắc nợ lên mạng than như cắt cổ, ròi tới kì đóng tiền học cũng than như cắt cổ tiếp<br>
 ;> ở nhà trọ có con cái ròi nungfg lon sao làm tình đc e, phải ở chung cư có phòng riêng cơ<br>
-;> 2 vợ chồng nó mặn nồng dữ e, hô "em yêu anh", giận hờn các kiểu, ròi chúc chồng nó"a iu ngày mới vui vẻ"
+;> 2 vợ chồng nó mặn nồng dữ e, hô "em yêu anh", giận hờn các kiểu, ròi chúc chồng nó"a iu ngày mới vui vẻ"<br>
+;> chắc nó nungf lon lắm đây e, tuổi già hồi xuân mà e<br>
+;> đời người 2 lần dậy thì mà e<br>
+=)) e ko thấy mấy bà xồn xồn còn chăn trai ham trai trẻ à, đời người 2 lần nungf lon mà e
