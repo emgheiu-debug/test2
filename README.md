@@ -56,4 +56,5 @@
 ;> hoặc sướng trước khổ sau, sướng cả đời có ko thì a ko biết, đời người mà phải có khó khăn chứ e<br>
 ;> a cũng ko phải người đội cha mẹ lên đầu đâu e, có qua thì có lại thôi<br>
 ;> sống vì mình ròi đòi ng khác phải vì mình nửa sao đc<br>
-;> a biết tính mẹ a lắm, biết con có tiền kiểu gì cũng tòm tèm xin xỏ tiền à
+;> a biết tính mẹ a lắm, biết con có tiền kiểu gì cũng tòm tèm xin xỏ tiền à<br>
+;> hô mà làm tiền nhìu là kiểu gì cũng bị làm tiền thôi e
