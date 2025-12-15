@@ -13,4 +13,5 @@
 ;> đời người 2 lần dậy thì mà e<br>
 =)) e ko thấy mấy bà xồn xồn còn chăn trai ham trai trẻ à, đời người 2 lần nungf lon mà e<br>
 ;> nó soạn 1 list để phục vụ chồng nó nữa mà e, gì mà làm tình 14 lần 1 đêm gọi dầu gọi JCK qq gì đó, đánh răng để dễ bú xài Yisao gì đó e<br>
-;> a xài kem ngọc châu, sensodyne thôi
+;> a xài kem ngọc châu, sensodyne thôi<br>
+;> chắc nó thích xài đồ tàu mà e xài yisao, JCK đồ tàu mà e
