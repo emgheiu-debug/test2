@@ -23,4 +23,5 @@
 ;> đồ tàu đc cái giá rẻ nhìu sự lựa chọn e<br>
 ;> nó chắc cũng xài xì líp tàu lun e, xì líp ren gợi cảm quảng châu trung quốc<br>
 ;> nó bận quần xì mau mục lắm tại vì nungf lon nước lon chảy ướt quần xì tối ngày lấy gì khô mà ko mục rách e<br>
-;> 2 vợ chồng nó nungdg mà mình phải ăn cơm chó sao e
+;> 2 vợ chồng nó nungdg mà mình phải ăn cơm chó sao e<br>
+;> quần xì tàu ko biết có tẩm hóa chất gây ung thư lon ko a ko biết nữa
