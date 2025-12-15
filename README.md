@@ -79,4 +79,4 @@
 ;> nuôi con còn tính lời lỗ làm có gỡ vốn lại đc ko nữa<br>
 ;> đi làm là tòm tèm xin tiền nửa<br>
 ;> làm ít thì ko xin thôi e, biết có tiền nhìu tiền là xin đó<br>
-;>
+;> hô a đi làm tự mua xe chứ mua xe nhìu tiền lắm, vậy mà đi vay tiền cho ngta ròi bị ngta giựt tiền, giờ mắc nợ
