@@ -84,4 +84,5 @@
 ;> ngta than khổ ko tiền là bả đi mượn tiền giùm, cái tiền lời ngta ko đóng bả cõng lun, thành ra mắc nợ<br>
 ;> mẹ z e có muốn cho tiền ko, cho tiền ròi lại cho ng khác họ ăn thôi e<br>
 ;> cho ít vài trăm thôi<br>
-;> cho nhìu lại vào túi ng khác
+;> cho nhìu lại vào túi ng khác<br>
+;> ở dưới a người có tuổi cỡ mẹ a làm nợ dữ lắm
