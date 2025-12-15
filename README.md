@@ -19,4 +19,6 @@
 ;> khô chem chép lại xài gel bôi trơn tàu, ko thì nungf lon dâm thủy chảy ra thế là lại hết khô<br>
 ;> nó xài quần áo giày dép tàu nữa, nó phải qua trung quốc ở mới đúng chứ ở việt nam chi <br>
 ;> qua trung quốc như cá gặp nước cả đời xài đồ tàu, quá đã lun e<br>
-;> qua trung quốc mà hôi đc chồng cũ hằng du mục làm vợ 5 nhìu khi lại giàu e
+;> qua trung quốc mà hôi đc chồng cũ hằng du mục làm vợ 5 nhìu khi lại giàu e<br>
+;> đồ tàu đc cái giá rẻ nhìu sự lựa chọn e<br>
+;> nó chắc cũng xài xì líp tàu lun e, xì líp ren gợi cảm quảng châu trung quốc
