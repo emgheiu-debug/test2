@@ -18,4 +18,5 @@
 ;> ko biết nó có xài nước rửa bím tàu ko a ko biết, xài chắc khô chem chép rụng lông lon lun<br>
 ;> khô chem chép lại xài gel bôi trơn tàu, ko thì nungf lon dâm thủy chảy ra thế là lại hết khô<br>
 ;> nó xài quần áo giày dép tàu nữa, nó phải qua trung quốc ở mới đúng chứ ở việt nam chi <br>
-;> qua trung quốc như cá gặp nước cả đời xài đồ tàu, quá đã lun e
+;> qua trung quốc như cá gặp nước cả đời xài đồ tàu, quá đã lun e<br>
+;> qua trung quốc mà hôi đc chồng cũ hằng du mục làm vợ 5 nhìu khi lại giàu e
