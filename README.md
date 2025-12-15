@@ -39,4 +39,5 @@
 ;> nó mê cu mà đeo theo a hồi a đi học làm gì ko biết e<br>
 ;> e quen a thì kệ mẹ a đi e, a nhìu khi còn ko thích bả<br>
 ;> a coi clip sex của con giò heo vs chồng nó chắc ói lun quá<br>
-;> lon của bà già nhìn ghê lắm e
+;> lon của bà già nhìn ghê lắm e<br>
+;> a sợ mình mất cử cơm
