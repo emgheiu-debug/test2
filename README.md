@@ -81,4 +81,5 @@
 ;> làm ít thì ko xin thôi e, biết có tiền nhìu tiền là xin đó<br>
 ;> hô a đi làm tự mua xe chứ mua xe nhìu tiền lắm, vậy mà đi vay tiền cho ngta ròi bị ngta giựt tiền, giờ mắc nợ<br>
 ;> con mình ko lo mà đi lo cho người ngoài<br>
-;> ngta than khổ ko tiền là bả đi mượn tiền giùm, cái tiền lời ngta ko đóng bả cõng lun, thành ra mắc nợ
+;> ngta than khổ ko tiền là bả đi mượn tiền giùm, cái tiền lời ngta ko đóng bả cõng lun, thành ra mắc nợ<br>
+;> mẹ z e có muốn cho tiền ko, cho tiền ròi lại cho ng khác họ ăn thôi e
