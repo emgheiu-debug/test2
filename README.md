@@ -16,4 +16,4 @@
 ;> a xài kem ngọc châu, sensodyne thôi<br>
 ;> chắc nó thích xài đồ tàu mà e xài yisao, JCK đồ tàu mà e<br>
 ;> ko biết nó có xài nước rửa bím tàu ko a ko biết, xài chắc khô chem chép rụng lông lon lun<br>
-;> khô chem chép lại xài gel bôi trơn tàu 
+;> khô chem chép lại xài gel bôi trơn tàu, ko thì nungf lon dâm thủy chảy ra thế là lại hết khô
