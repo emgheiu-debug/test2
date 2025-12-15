@@ -35,4 +35,5 @@
 ;> ghê lớm, phải nungfgf lon mới kể chứ bth ai mà kể e<br>
 ;> lướt bth lâu lâu cũng thấy nó kể chuyện sex nữa e, nó kể nó làm vs chồng nó <br>
 ;> mốt là nó up clip sex nó kiếm tiền giờ e, túng tiền quá mà, cho ngta chiêm ngưỡng cái lon đen của nó<br>
-;> hư mắt chet lun e
+;> hư mắt chet lun e<br>
+;> nó mê cu mà đeo theo a hồi a đi học làm gì ko biết e
