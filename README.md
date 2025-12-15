@@ -60,4 +60,8 @@
 ;> hô mà làm tiền nhìu là kiểu gì cũng bị làm tiền thôi e<br>
 ;> số tiền mà bả cho ngta mượn xong họ giựt ko trả gấp mấy lần số tiền mà nuôi a nữa<br>
 ;> kiểu như là dưới a nhìu người họ làm để dành xong ko biết làm gì thì đi cho vay, cho vay lấy lãi 3% 5% gì đó, xong bị giựt mất số tiền gốc lun, nhìu người lắm<br>
-;> ngta mượn ròi họ ko có khả năng trả, trả chậm là mấy người đó bắt đầu cho vay 0% lun, ko lấy lãi lun, chỉ mong lấy lại số tiền gốc
+;> ngta mượn ròi họ ko có khả năng trả, trả chậm là mấy người đó bắt đầu cho vay 0% lun, ko lấy lãi lun, chỉ mong lấy lại số tiền gốc<br>
+;> nói chung thì mẹ a bị giựt chắc cũng x3 x4 lần số tiền bả nuôi a<br>
+;> mấy chục năm ròi ko bỏ tật cho vay<br>
+;> bả đi mượn tiền ngta 3% xong bả cho vay lại 5% cuối cùng bị giựt ròi mắc nợ<br>
+;> nói chung là bả làm nợ thì nhìu e
