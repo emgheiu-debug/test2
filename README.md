@@ -28,4 +28,5 @@
 ;> thời gian ung thư ủ bệnh lâu ý e nên giờ nó chưa bị ung thư lon mới bị nungf lon thôi e<br>
 ;> nhìn nó a biết dú lép lon nhìu lông dài ra tới lỗ đít lun nên già còn sung lắm, nungfdf lon vs a iu chồng iu nó dữ lắm e<br>
 ;> ko nungfg lon sao nhảy nọc vs chồng có 2 con e<br>
-;> phải nungfg lon chứ e
+;> phải nungfg lon chứ e<br>
+;> hồi đi học a thấy chồng nó đèo nó bằng chiếc xe tay ga mà e
