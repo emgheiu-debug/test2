@@ -73,4 +73,5 @@
 ;> như con nhỏ chủ hụi trốn nợ trên mạng tiền tỉ tỉ ko e, đó là hụi lớn, còn dưới a chơi 5 triệu là cao<br>
 ;> bả nuôi a mà bả kể "tao nuôi mày biết bao nhiêu tiền", cho 250 triệu chi phí đại học là cùng<br>
 ;> bả bị ngta giựt tiền bả ko tiếc mà bả nuôi con bả thì bả tiếc bả kể này kệ nọ, bị giựt tiền là coi như là e làm nhiu là cho ngta ăn đúng hong<br>
-;> a thì quan điểm a là cho con mình thì nó còn đó, cho người ngoài mới mất thôi
+;> a thì quan điểm a là cho con mình thì nó còn đó, cho người ngoài mới mất thôi<br>
+;> nuôi con mình thì tiếc tiền, kể mà cho ngta ăn thì ko tiếc, e hỉu hong
