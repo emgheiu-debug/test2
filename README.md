@@ -68,4 +68,6 @@
 ;> ròi bả làm chủ hụi cũng bị giựt hụi tiếp<br>
 ;> bả thì sống tin người nghĩ xã hội ai cũng tốt ý e<br>
 ;> a đâu có như z<br>
-;> e chơi hụi mà hốt hụi thì nó vẫn rẻ hơn là e đi vay nói thật lun e
+;> e chơi hụi mà hốt hụi thì nó vẫn rẻ hơn là e đi vay nói thật lun e<br>
+;> mà chơi hụi dễ bị giựt lắm e, chủ hụi bị ngta giựt nhìu quá ròi họ ko tiền trả họ giựt mình lun ý e<br>
+;> 
