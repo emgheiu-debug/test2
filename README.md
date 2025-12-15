@@ -11,4 +11,5 @@
 ;> 2 vợ chồng nó mặn nồng dữ e, hô "em yêu anh", giận hờn các kiểu, ròi chúc chồng nó"a iu ngày mới vui vẻ"<br>
 ;> chắc nó nungf lon lắm đây e, tuổi già hồi xuân mà e<br>
 ;> đời người 2 lần dậy thì mà e<br>
-=)) e ko thấy mấy bà xồn xồn còn chăn trai ham trai trẻ à, đời người 2 lần nungf lon mà e
+=)) e ko thấy mấy bà xồn xồn còn chăn trai ham trai trẻ à, đời người 2 lần nungf lon mà e<br>
+;> nó soạn 1 list để phục vụ chồng nó nữa mà e, gì mà làm tình 14 lần 1 đêm gọi dầu gọi JCK qq gì đó, đánh răng để dễ bú xài Yisao gì đó e
