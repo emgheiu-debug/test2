@@ -17,4 +17,5 @@
 ;> chắc nó thích xài đồ tàu mà e xài yisao, JCK đồ tàu mà e<br>
 ;> ko biết nó có xài nước rửa bím tàu ko a ko biết, xài chắc khô chem chép rụng lông lon lun<br>
 ;> khô chem chép lại xài gel bôi trơn tàu, ko thì nungf lon dâm thủy chảy ra thế là lại hết khô<br>
-;> nó xài quần áo giày dép tàu nữa, nó phải qua trung quốc ở mới đúng chứ ở việt nam chi 
+;> nó xài quần áo giày dép tàu nữa, nó phải qua trung quốc ở mới đúng chứ ở việt nam chi <br>
+;> qua trung quốc như cá gặp nước cả đời xài đồ tàu, quá đã lun e
