@@ -57,4 +57,5 @@
 ;> a cũng ko phải người đội cha mẹ lên đầu đâu e, có qua thì có lại thôi<br>
 ;> sống vì mình ròi đòi ng khác phải vì mình nửa sao đc<br>
 ;> a biết tính mẹ a lắm, biết con có tiền kiểu gì cũng tòm tèm xin xỏ tiền à<br>
-;> hô mà làm tiền nhìu là kiểu gì cũng bị làm tiền thôi e
+;> hô mà làm tiền nhìu là kiểu gì cũng bị làm tiền thôi e<br>
+;> số tiền mà bả cho ngta mượn xong họ giựt ko trả gấp mấy lần số tiền mà nuôi a nữa
