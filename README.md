@@ -48,4 +48,5 @@
 ;> 1 lần nửa chai 2 lần hết chai, nghèo vì gel bôi lon là có thật e<br>
 ;> xài hết xúc nước lại xài hay miếng nào đc miếng đó<br>
 ;> còn chai ko thì lấy đựng tiêu, tỏi, mắm, muối , đồ ăn, đựng nước uống đem đi làm<br>
-;> vắt kiệt giá trị của 1 chai gel lun e
+;> vắt kiệt giá trị của 1 chai gel lun e<br>
+;> già ròi lông lon cứng như tăm tre z lấy xỉa răng còn đc
