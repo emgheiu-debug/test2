@@ -58,4 +58,5 @@
 ;> sống vì mình ròi đòi ng khác phải vì mình nửa sao đc<br>
 ;> a biết tính mẹ a lắm, biết con có tiền kiểu gì cũng tòm tèm xin xỏ tiền à<br>
 ;> hô mà làm tiền nhìu là kiểu gì cũng bị làm tiền thôi e<br>
-;> số tiền mà bả cho ngta mượn xong họ giựt ko trả gấp mấy lần số tiền mà nuôi a nữa
+;> số tiền mà bả cho ngta mượn xong họ giựt ko trả gấp mấy lần số tiền mà nuôi a nữa<br>
+;> kiểu như là dưới a nhìu người họ làm để dành xong ko biết làm gì thì đi cho vay, cho vay lấy lãi 3% 5% gì đó, xong bị giựt mất số tiền gốc lun, nhìu người lắm
