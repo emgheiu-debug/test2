@@ -65,4 +65,6 @@
 ;> mấy chục năm ròi ko bỏ tật cho vay<br>
 ;> bả đi mượn tiền ngta 3% xong bả cho vay lại 5% cuối cùng bị giựt ròi mắc nợ<br>
 ;> nói chung là bả làm nợ thì nhìu e, xưa bả nuôi a thì cha a nuôi 1 nửa<br>
-;> ròi bả làm chủ hụi cũng bị giựt hụi tiếp
+;> ròi bả làm chủ hụi cũng bị giựt hụi tiếp<br>
+;> bả thì sống tin người nghĩ xã hội ai cũng tốt ý e<br>
+;> a đâu có như z
