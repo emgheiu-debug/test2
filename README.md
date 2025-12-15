@@ -47,4 +47,5 @@
 ;> con giò heo mà bị khô lòn ý e, là nó sài gel tàu 1 lần nửa chai nặn vô ngón tay ròi quậy quậy vô lòn như tra mỡ heo z<br>
 ;> 1 lần nửa chai 2 lần hết chai, nghèo vì gel bôi lon là có thật e<br>
 ;> xài hết xúc nước lại xài hay miếng nào đc miếng đó<br>
-;> còn chai ko thì lấy đựng tiêu, tỏi, mắm, muối , đồ ăn, dựng nước uống đem đi làm
+;> còn chai ko thì lấy đựng tiêu, tỏi, mắm, muối , đồ ăn, đựng nước uống đem đi làm<br>
+;> vắt kiệt giá trị của 1 chai gel lun e
