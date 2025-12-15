@@ -40,4 +40,6 @@
 ;> e quen a thì kệ mẹ a đi e, a nhìu khi còn ko thích bả<br>
 ;> a coi clip sex của con giò heo vs chồng nó chắc ói lun quá<br>
 ;> lon của bà già nhìn ghê lắm e<br>
-;> a sợ mình mất cử cơm
+;> a sợ mình mất cử cơm<br>
+;> mấy bà già sồn sồn cỡ nó thường là người mỡ cục cục lon đen ,da chùng<br>
+;> mỡ mả thiếu điều bỏ vô chảo thắng mỡ thôi e, nói chung là ko nên coi lon bà già
