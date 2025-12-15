@@ -70,4 +70,5 @@
 ;> a đâu có như z<br>
 ;> e chơi hụi mà hốt hụi thì nó vẫn rẻ hơn là e đi vay nói thật lun e<br>
 ;> mà chơi hụi dễ bị giựt lắm e, chủ hụi bị ngta giựt nhìu quá ròi họ ko tiền trả họ giựt mình lun ý e<br>
+;> như con nhỏ chủ hụi trốn nợ trên mạng tiền tỉ tỉ ko e, đó là hụi lớn, còn dưới a chơi 5 triệu là cao<br>
 ;> 
