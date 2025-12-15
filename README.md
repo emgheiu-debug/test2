@@ -89,4 +89,6 @@
 ;> cho nên là tiêu chí làm vợ a thì 1 là ko lo chuyện bao đồng, 2 là ưu tiên gia đình, cha mẹ e lo cho e ngon lành thì e lo lại chuyện bth e<br>
 ;> đừng có giống con giò heo là đc e, đàn bà như nó tệ lắm<br>
 ;> mốt a đi sài gòn về thì hô làm đủ ăn, mua đồ thì trả góp, kinh doanh vs bạn bị thua lỗ mắc nợ gì đó bịa ra để khỏi bị vòi tiền e<br>
-;> đàn bà như con giò heo thì hay lo chuyện bao đồng e, mình éo lo mình lo soi mói ngta 24/24 sao giàu e
+;> đàn bà như con giò heo thì hay lo chuyện bao đồng e, mình éo lo mình lo soi mói ngta 24/24 sao giàu e<br>
+;> bản thân thì nghèo con thì học dở, mắc nợ, chồng thì như cứt chảy ko nhờ đc, lâu lấu nó lên mạng xin xỏ vài ngàn<br>
+;> như e giờ e làm e lo chuyện kinh doanh của e dư giả e lại đi chơi, ai làm gì kệ mịa ngta, mình lo mình ngon lành là đc
