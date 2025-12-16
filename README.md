@@ -3,4 +3,5 @@
 ;> cạo lông chem chép là xài dao cạo râu ý e<br>
 ;> có bôi kem gì để cạo cho dễ hem thì hem biết e<br>
 ;> mới giờ a bùn ngủ quá e<br>
-;> a iu mở mắt hết lên, sắp ngủ ròi e
+;> a iu mở mắt hết lên, sắp ngủ ròi e<br>
+;> ngủ ngon e, a ngủ à
