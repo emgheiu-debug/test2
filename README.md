@@ -8,4 +8,6 @@
 ;> coi tham khảo thôi e, ko tin hoàn toàn nhưng thấy cũng đúng<br>
 ;> bth a là ai nói gì nghĩ gì kệ, éo hợp tư tưởng nói chuyện mệt lắm e<br>
 ;> tệ để dứt hẳn những cái ko hợp<br>
-;> éo biết đúng ko, tới tết mới biết đc e
+;> éo biết đúng ko, tới tết mới biết đc e<br>
+<img width="1210" height="140" alt="image" src="https://github.com/user-attachments/assets/49bc8fd8-c2f2-4952-805b-2b31f0eff33a" /><br>
+;> e rành timeline tử vi hem e, a éo hỉu lắm
