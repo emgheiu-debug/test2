@@ -6,4 +6,6 @@
 ;> thấy cũng đúng e, đang khó thật<br>
 <img width="922" height="1204" alt="image" src="https://github.com/user-attachments/assets/fe5f559b-5d05-491e-aed8-eb8ebbf73167" <br>
 ;> coi tham khảo thôi e, ko tin hoàn toàn nhưng thấy cũng đúng<br>
-;> bth a là ai nói gì nghĩ gì kệ, éo hợp tư tưởng nói chuyện mệt lắm e
+;> bth a là ai nói gì nghĩ gì kệ, éo hợp tư tưởng nói chuyện mệt lắm e<br>
+;> tệ để dứt hẳn những cái ko hợp<br>
+;> éo biết đúng ko, tới tết mới biết đc e
