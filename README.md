@@ -11,4 +11,5 @@
 ;> éo biết đúng ko, tới tết mới biết đc e<br>
 <img width="1210" height="140" alt="image" src="https://github.com/user-attachments/assets/49bc8fd8-c2f2-4952-805b-2b31f0eff33a" /><br>
 ;> e rành timeline tử vi hem e, a éo hỉu lắm<br>
-;> à a hỉu gòi, tức là e sinh tháng 8 đi đó là timeline tháng 1 âm của e, rồi tháng sau tính tới 
+;> à a hỉu gòi, tức là e sinh tháng 8 đi đó là timeline tháng 1 âm của e, rồi tháng sau tính tới <br>
+;> tưởng AI nó bịp, để kiểm chứng coi đúng ko đã e
