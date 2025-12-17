@@ -13,4 +13,4 @@
 ;> e rành timeline tử vi hem e, a éo hỉu lắm<br>
 ;> à a hỉu gòi, tức là e sinh tháng 8 đi đó là timeline tháng 1 âm của e, rồi tháng sau tính tới <br>
 ;> tưởng AI nó bịp, để kiểm chứng coi đúng ko đã e<br>
-;> đời người có số hết e
+;> đời người có số hết e<br>
