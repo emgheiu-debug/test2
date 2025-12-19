@@ -11,4 +11,5 @@
 ;> lên mạng ai nói gì cũng tin chắc ăn qq sống thôi e<br>
 ;> xì spam hiến thận đồ e, sao nó éo đi hiến hay kêu chồng con nó hiến đi<br>
 ;> ý nó muốn hãm hại a đó e, nào là chơi cờ bạc, chơi game, hiến thận, bán laptop, ....<br>
-;> 
+;> nó muốn hãm hại a cũng gần 10 năm ròi<br>
+;> con nó học dở mà nó đâu có sửa điểm đc đâu e
