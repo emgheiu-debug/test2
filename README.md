@@ -1,4 +1,5 @@
 ;> a nhô ghệ<br>
 ;> mới giờ bùn ngủ quá e<br>
 ;> móc lavabo ít thôi e nhó<br>
-;> xíu a nhắn cho nhe
+;> xíu a nhắn cho nhe<br>
+;> tết chụp hình a coi nhe e
