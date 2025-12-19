@@ -7,4 +7,5 @@
 ;> con giò heo đang tiêu cực chắc đời vả khổ quá hoặc đang ghen tị <br>
 ;> lãm nhảm giãn lỗ miệng mà cũng z thôi e<br>
 ;> còn nungfgf lon thì giản lỗ lon<br>
-;> hồi trẻ sống an phận về già khổ kệ cmn e
+;> hồi trẻ sống an phận về già khổ kệ cmn e<br>
+;> lên mạng ai nói gì cũng tin chắc ăn qq sống thôi e
