@@ -8,4 +8,7 @@
 ;> lãm nhảm giãn lỗ miệng mà cũng z thôi e<br>
 ;> còn nungfgf lon thì giản lỗ lon<br>
 ;> hồi trẻ sống an phận về già khổ kệ cmn e<br>
-;> lên mạng ai nói gì cũng tin chắc ăn qq sống thôi e
+;> lên mạng ai nói gì cũng tin chắc ăn qq sống thôi e<br>
+;> xì spam hiến thận đồ e, sao nó éo đi hiến hay kêu chồng con nó hiến đi<br>
+;> ý nó muốn hãm hại a đó e, nào là chơi cờ bạc, chơi game, hiến thận, bán laptop, ....<br>
+;> 
