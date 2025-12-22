@@ -6,4 +6,5 @@
 ;> ít tiền thì 1 con là đủ thôi e, tùy theo thu nhập<br>
 ;> trên mạng đứa đéo nào spam kệ nó e, a có bao giờ đăng cái gì đâu e<br>
 ;> hỏng lẽ giờ đứa éo nào spam bài tarot hô sắp có người hãm hại e, cái e căng như dây đàn đa nghi ha<br>
-;> spam rác ý mà e, ko có trúng bao giờ đâu
+;> spam rác ý mà e, ko có trúng bao giờ đâu<br>
+;> nào thấy xàm lướt qua z thôi e, khỏi care chi mệt
