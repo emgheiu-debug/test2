@@ -4,4 +4,6 @@
 ;> hơn 5 tuổi cũng hong nhìu lắm đâu e, ngta còn hơn 9 10 tuổi đc, mà 1x tuổi thì già quá, lớn hơn ở ngưỡng cho phép hợp lý thôi e<br>
 ;> có con mình kiếm con gái trước đi giống e dị nè<br>
 ;> ít tiền thì 1 con là đủ thôi e, tùy theo thu nhập<br>
-;> trên mạng đứa đéo nào spam kệ nó e, a có bao giờ đăng cái gì đâu e
+;> trên mạng đứa đéo nào spam kệ nó e, a có bao giờ đăng cái gì đâu e<br>
+;> hỏng lẽ giờ đứa éo nào spam bài tarot hô sắp có người hãm hại e, cái e căng như dây đàn đa nghi ha<br>
+;> spam rác ý mà e, ko có trúng bao giờ đâu
