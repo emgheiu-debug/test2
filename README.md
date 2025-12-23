@@ -26,4 +26,7 @@
 ;> nó gặp chồng nó ròi nhào vô đụ đẻ liền lun mà e<br>
 ;> nồi nào thì vung nấy mà e<br>
 ;> chồng nó mê cái lồn của nó ý e, chắc dị =))<br>
-;> ai lên mạng đăng qq gì cái e tin à, e cũng tin người phết
+;> ai lên mạng đăng qq gì cái e tin à, e cũng tin người phết<br>
+;> e dễ tin người vs dễ bị thao túng phết e<br>
+;> bị đứa éo nào trên mạng lừa vs thao túng là ko đc nhe e<br>
+;> 
