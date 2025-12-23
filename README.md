@@ -29,4 +29,4 @@
 ;> ai lên mạng đăng qq gì cái e tin à, e cũng tin người phết<br>
 ;> e dễ tin người vs dễ bị thao túng phết e<br>
 ;> bị đứa éo nào trên mạng lừa vs thao túng là ko đc nhe e<br>
-;> 
+;> trên mạng coi chơi thôi chứ lợi lộc gì cho mình đâu e
