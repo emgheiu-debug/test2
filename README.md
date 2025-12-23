@@ -22,4 +22,6 @@
 ;> ko quan trọng, chả giúp éo gì mình thì kệ mịa nó e<br>
 ;> việc của xã hội mình ko nên ôm vào người chi mệt người e, dư giả thì mình đi từ thiện cũng đc, gặp tận mặt trao tận tay e, giờ lừa đảo nhìu lắm e<br>
 ;> nhìu đứa nó lừa đảo từ thiện nó chỉ biết là à giờ mình lừa đc của ngta mình có tiền ăn lại có tiền mua sắm đồ ăn chơi thế là ngon <br>
-;> 
+;> a thấy con yến lồn đen nào giờ tính nó z ròi từ lúc a còn học đại học cơ<br>
+;> nó gặp chồng nó ròi nhào vô đụ đẻ liền lun mà e<br>
+;> nồi nào thì vung nấy mà e
