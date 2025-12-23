@@ -24,4 +24,5 @@
 ;> nhìu đứa nó lừa đảo từ thiện nó chỉ biết là à giờ mình lừa đc của ngta mình có tiền ăn lại có tiền mua sắm đồ ăn chơi thế là ngon <br>
 ;> a thấy con yến lồn đen nào giờ tính nó z ròi từ lúc a còn học đại học cơ<br>
 ;> nó gặp chồng nó ròi nhào vô đụ đẻ liền lun mà e<br>
-;> nồi nào thì vung nấy mà e
+;> nồi nào thì vung nấy mà e<br>
+;> chồng nó mê cái lồn của nó ý e, chắc dị =))
