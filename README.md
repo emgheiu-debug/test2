@@ -47,4 +47,5 @@
 ;> ui nào là tập gym đồ, học kỹ năng mới đồ là bao bận ít khi nào cầm đt lên mà bấm lâu đc<br>
 ;> mình về với nhau là bao bận thôi e<br>
 ;> bận thì ít coi xàm xàm lại thôi mà e<br>
-;> xíu a nhắn cho nhe e
+;> xíu a nhắn cho nhe e<br>
+;> a cũng biết nấu vài món cơ bản, có dịp thì a làm cho e ăn
