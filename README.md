@@ -17,4 +17,5 @@
 ;> nay nó bùn mai nó vui ròi nó tửng lại như mọi ngày à, kệ nó e<br>
 ;> giờ nó nghỉ nó già còn ở trọ ko có cục đất chọi chim cái nó bùn, cái mai nó vui lại nó quên đi ròi nó lại khùng khùng xạo lồn như mọi ngày à e<br>
 ;> mà ai lên mạng than vãn gì kệ ngta đi e, ko phải việc của mình nhe e<br>
-;> đâu phải người thân hay bạn bè e đâu toàn người lạ thân thiết éo gì e, kệ họ đi ko phải việc của mình e
+;> đâu phải người thân hay bạn bè e đâu toàn người lạ thân thiết éo gì e, kệ họ đi ko phải việc của mình e<br>
+;> mình ko có việc phải giải thích bản thân mình vs người khác e, ai ko quan trọng thì mình kệ nó e
