@@ -40,4 +40,5 @@
 ;> a là tao chơi vs mày tao tốn thời gian nhưng mà tao phải vui vẻ còn đéo vui vẻ tao éo chơi<br>
 ;> 10 năm nữa thì a vẫn ghét con giò heo thôi e, tính nó thấy ghét lắm<br>
 ;> tại nó nhào vô a ấy chứ, chứ ghét nhau thì mình né nhau cho nhẹ đầu e nhỉ<br>
-;> 
+;> 1 phần do a cũng rảnh chứ a bận là a kệ full time lun e<br>
+;> gặp a có tiền nữa là bận nữa, bận đi chơi lướt coi đồ xịn
