@@ -31,4 +31,8 @@
 ;> bị đứa éo nào trên mạng lừa vs thao túng là ko đc nhe e<br>
 ;> trên mạng coi chơi thôi chứ lợi lộc gì cho mình đâu e<br>
 ;> e chơi vs ai là người đó phải đem lại lợi ích về mặt tinh thần hoặc vật chất còn éo có lợi ích gì chỉ phá hoại, làm mình mệt mỏi thì nghỉ éo chơi, éo tiếp xúc<br>
-;> con lồn già đâu có lợi lộc gì đâu ai chơi vs nghe nó làm gì e, nó cỡ tuổi mẹ a ở nhà
+;> con lồn già đâu có lợi lộc gì đâu ai chơi vs nghe nó làm gì e, nó cỡ tuổi mẹ a ở nhà<br>
+;> e gặp khách hàng thì ngta đem lại lợi ích về vật chất<br>
+;> còn a thì đem lại lợi ích về tinh thần cho e<br>
+;> còn họ hàng thì đem lại về tinh thần hoặc vật chất gì đó thôi<br>
+;> 
