@@ -14,4 +14,5 @@
 ;> 1 kiếp người 20 tỉ là đủ e, bây giờ nhe e<br>
 ;> con lồn đen nó tửng ý e, hay lên mạng xạo lồn gia đình tan nát , chồng ngoại tình này kia ý e, chắc e đọc bài xạo lồn của nó là nhìu<br>
 ;> tính nó z đó e, tuổi khỉ mà nhìu khi nó tưng tửng lúc này lúc khác ý e<br>
-;> nay nó bùn mai nó vui ròi nó tửng lại như mọi ngày à, kệ nó e
+;> nay nó bùn mai nó vui ròi nó tửng lại như mọi ngày à, kệ nó e<br>
+;> giờ nó nghỉ nó già còn ở trọ ko có cục đất chọi chim cái nó bùn, cái mai nó vui lại nó quên đi ròi nó lại khùng khùng xạo lồn như mọi ngày à e
