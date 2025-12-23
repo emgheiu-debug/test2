@@ -35,4 +35,6 @@
 ;> e gặp khách hàng thì ngta đem lại lợi ích về vật chất<br>
 ;> còn a thì đem lại lợi ích về tinh thần cho e<br>
 ;> còn họ hàng thì đem lại về tinh thần hoặc vật chất gì đó thôi<br>
-;> e ở bên a e cảm thấy thoải mái về tinh thần, thấy bình yên cũng là 1 loại lợi ích mà e
+;> e ở bên a e cảm thấy thoải mái về tinh thần, thấy bình yên cũng là 1 loại lợi ích mà e<br>
+;> nhìu ng đi làm ngta bị chửi ngta thấy cực khổ nhưng ngta vẫn làm ý e vì tiền ý e<br>
+;> 
