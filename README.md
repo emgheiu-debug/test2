@@ -3,4 +3,6 @@
 ;> a tưởng nó vô tri, tửng e<br>
 ;> biết nấu ăn nửa xu cà na mình già ko biết làm gì ăn, nấu ăn để bán quán bán tiệm e =)<br>
 ;> e đứng bán còn a dọn bàn, lau bàn<br>
-;> e biết xà bông gội đầu nào mà xài ngon hem, chứ a xài toàn đồ bth enchanter,head and shoulder,rè choi đồ ko à
+;> e biết xà bông gội đầu nào mà xài ngon hem, chứ a xài toàn đồ bth enchanter,head and shoulder,rè choi đồ ko à<br>
+;> mới coi con game bad parenting cốt truyện hay e, game ra mắt 2024 mà tưởng game cả chục năm, đồ họa xấu nhưng cốt truyện hay e<br>
+;>
