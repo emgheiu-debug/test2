@@ -44,4 +44,5 @@
 ;> gặp a có tiền nữa là bận nữa, bận đi chơi lướt coi đồ xịn<br>
 ;> ko thì đi chơi vs e là bận thôi e, ở chung e nấu ăn làm việc nhà nửa là bận thôi e<br>
 ;> 1 ngày đi làm nội nấu ăn làm việc nhà + cuối tuần đi chơi là bao bận<br>
-;> ui nào là tập gym đồ, học kỹ năng mới đồ là bao bận ít khi nào cầm đt lên mà bấm lâu đc
+;> ui nào là tập gym đồ, học kỹ năng mới đồ là bao bận ít khi nào cầm đt lên mà bấm lâu đc<br>
+;> mình về với nhau là bao bận thôi e
