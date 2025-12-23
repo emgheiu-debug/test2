@@ -10,4 +10,8 @@
 ;> nó thèm ăn đủ thứ thịt thì đâu ăn hằng ngày đâu e, nước miếng chảy chèm nhem ướt háng lun, mún đủ thứ nhưng ko có<br>
 ;> như a nói là kiếp người trọn vẹn thôi e<br>
 ;> đừng như con lồn đen e nhó, già còn chật vật vì tiền ko có tài sản tích lũy gì nửa già khổ<br>
-;> éo có tiền thì khổ thôi e
+;> éo có tiền thì khổ thôi e<br>
+;> 1 kiếp người 20 tỉ là đủ e, bây giờ nhe e<br>
+;> con lồn đen nó tửng ý e, hay lên mạng xạo lồn gia đình tan nát , chồng ngoại tình này kia ý e, chắc e đọc bài xạo lồn của nó là nhìu<br>
+;> tính nó z đó e, tuổi khỉ mà nhìu khi nó tưng tửng lúc này lúc khác ý e<br>
+;> nay nó bùn mai nó vui ròi nó tửng lại như mọi ngày à, kệ nó e
