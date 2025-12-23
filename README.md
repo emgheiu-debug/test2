@@ -38,4 +38,4 @@
 ;> e ở bên a e cảm thấy thoải mái về tinh thần, thấy bình yên cũng là 1 loại lợi ích mà e<br>
 ;> nhìu ng đi làm ngta bị chửi ngta thấy cực khổ nhưng ngta vẫn làm ý e vì tiền ý e<br>
 ;> a là tao chơi vs mày tao tốn thời gian nhưng mà tao phải vui vẻ còn đéo vui vẻ tao éo chơi<br>
-;>
+;> 10 năm nữa thì a vẫn ghét con giò heo thôi e
