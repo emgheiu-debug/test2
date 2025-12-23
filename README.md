@@ -25,4 +25,5 @@
 ;> a thấy con yến lồn đen nào giờ tính nó z ròi từ lúc a còn học đại học cơ<br>
 ;> nó gặp chồng nó ròi nhào vô đụ đẻ liền lun mà e<br>
 ;> nồi nào thì vung nấy mà e<br>
-;> chồng nó mê cái lồn của nó ý e, chắc dị =))
+;> chồng nó mê cái lồn của nó ý e, chắc dị =))<br>
+;> ai lên mạng đăng qq gì cái e tin à, e cũng tin người phết
