@@ -41,4 +41,5 @@
 ;> 10 năm nữa thì a vẫn ghét con giò heo thôi e, tính nó thấy ghét lắm<br>
 ;> tại nó nhào vô a ấy chứ, chứ ghét nhau thì mình né nhau cho nhẹ đầu e nhỉ<br>
 ;> 1 phần do a cũng rảnh chứ a bận là a kệ full time lun e<br>
-;> gặp a có tiền nữa là bận nữa, bận đi chơi lướt coi đồ xịn
+;> gặp a có tiền nữa là bận nữa, bận đi chơi lướt coi đồ xịn<br>
+;> ko thì đi chơi vs e là bận thôi e, ở chung e nấu ăn làm việc nhà nửa là bận thôi e
