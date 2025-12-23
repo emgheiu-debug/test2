@@ -2,4 +2,5 @@
 ;> con yến giò heo nó già ròi ko bằng ai nó stress nhức đầu e<br>
 ;> a tưởng nó vô tri, tửng e<br>
 ;> biết nấu ăn nửa xu cà na mình già ko biết làm gì ăn, nấu ăn để bán quán bán tiệm e =)<br>
-;> e đứng bán còn a dọn bàn, lau bàn
+;> e đứng bán còn a dọn bàn, lau bàn<br>
+;> e biết xà bông gội đầu nào mà xài ngon hem, chứ a xài toàn đồ bth enchanter,head and shoulder,rè choi đồ ko à
