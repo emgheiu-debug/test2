@@ -45,4 +45,6 @@
 ;> ko thì đi chơi vs e là bận thôi e, ở chung e nấu ăn làm việc nhà nửa là bận thôi e<br>
 ;> 1 ngày đi làm nội nấu ăn làm việc nhà + cuối tuần đi chơi là bao bận<br>
 ;> ui nào là tập gym đồ, học kỹ năng mới đồ là bao bận ít khi nào cầm đt lên mà bấm lâu đc<br>
-;> mình về với nhau là bao bận thôi e
+;> mình về với nhau là bao bận thôi e<br>
+;> bận thì ít coi xàm xàm lại thôi mà e<br>
+;> xíu a nhắn cho nhe e
