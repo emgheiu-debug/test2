@@ -9,4 +9,5 @@
 ;> già mà như con yến lồn đen là chết nhe e<br>
 ;> nó thèm ăn đủ thứ thịt thì đâu ăn hằng ngày đâu e, nước miếng chảy chèm nhem ướt háng lun, mún đủ thứ nhưng ko có<br>
 ;> như a nói là kiếp người trọn vẹn thôi e<br>
-;> đừng như con lồn đen e nhó, già còn chật vật vì tiền ko có tài sản tích lũy gì nửa già khổ
+;> đừng như con lồn đen e nhó, già còn chật vật vì tiền ko có tài sản tích lũy gì nửa già khổ<br>
+;> éo có tiền thì khổ thôi e
