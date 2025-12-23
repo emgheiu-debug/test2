@@ -5,4 +5,5 @@
 ;> e đứng bán còn a dọn bàn, lau bàn<br>
 ;> e biết xà bông gội đầu nào mà xài ngon hem, chứ a xài toàn đồ bth enchanter,head and shoulder,rè choi đồ ko à<br>
 ;> mới coi con game bad parenting cốt truyện hay e, game ra mắt 2024 mà tưởng game cả chục năm, đồ họa xấu nhưng cốt truyện hay e<br>
-;>
+;> hình ảnh ẩn dụ nhìu<br>
+;> 
