@@ -3,4 +3,6 @@
 ;> e mà có thích làm game bán thì làm con đồ họa tạm tạm thôi tập trung vào cốt truyện hay là đc<br>
 ;> mới đầu nhìn xấu xấu ko mún coi đâu e, mà thấy review tốt nên là coi<br>
 ;> ghệ a lâu lâu up hình a coi coi e<br>
-;> ngủ chung là đắp chung 1 cái mềnh hay mềnh ai nấy đắp e
+;> ngủ chung là đắp chung 1 cái mềnh hay mềnh ai nấy đắp e<br>
+;> e thích đắp chung à<br>
+;> thì đắp chung thôi e
