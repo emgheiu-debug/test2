@@ -6,4 +6,5 @@
 ;> ngủ chung là đắp chung 1 cái mềnh hay mềnh ai nấy đắp e<br>
 ;> e thích đắp chung à<br>
 ;> thì đắp chung thôi e<br>
-;> đắp mềnh chung dễ nungfdg lắm e
+;> đắp mềnh chung dễ nungfdg lắm e<br>
+;> chắc làm tình nhìu hơn =))
