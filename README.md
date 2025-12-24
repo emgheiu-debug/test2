@@ -7,4 +7,6 @@
 ;> e thích đắp chung à<br>
 ;> thì đắp chung thôi e<br>
 ;> đắp mềnh chung dễ nungfdg lắm e<br>
-;> chắc làm tình nhìu hơn =))
+;> chắc làm tình nhìu hơn =))<br>
+;> bóp xệ dú e lun<br>
+;> khuya ròi ngủ đi e, mai nhắn tiếp
