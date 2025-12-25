@@ -6,4 +6,5 @@
 ;> e thích đắp chung mềnh vs a hả<br>
 <img width="1071" height="249" alt="image" src="https://github.com/user-attachments/assets/de1fc579-233a-43e0-9962-34aed82b53f5" /><br>
 ;> éo phải tam tai ai cũng khổ hả e<br>
-;> cúng vẫn hơn e
+;> cúng vẫn hơn e<br>
+;> coi tử vi hô a khổ lúc 19-27 thôi trung niên già hết khổ ròi
