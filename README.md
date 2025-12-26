@@ -13,4 +13,5 @@
 ;> 2027 là hết khổ càng già càng sướng<br>
 ;> éo phải mê tín đâu e cái nào ngta nói có xảy ra là nên tin e<br>
 ;> 1 người đang mắc nợ làm hoài ko dư mà bà thầy bói hô có miếng đất<br>
-;> vài tháng sau có lun e, ở dưới a á
+;> vài tháng sau có lun e, ở dưới a á<br>
+;> ban đầu a nghe tưởng bịp nói xà lơ
