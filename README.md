@@ -19,4 +19,8 @@
 ;> già ròi nó ko thay đổi gì nhìu đâu e<br>
 ;> 1 là cha mẹ chet chia của lại mà nó gia đình nó nghèo mạc lun e<br>
 ;> 2 là trúng vé số<br>
-;> công việc tháng làm vài triệu từ năm này qua năm nọ 10 năm nữa vẫn z à e, khác cái nghỉ hưu
+;> công việc tháng làm vài triệu từ năm này qua năm nọ 10 năm nữa vẫn z à e, khác cái nghỉ hưu<br>
+;> con nó thì lười nhác học dở<br>
+;> số nghèo cả đời chứ gì e, già ròi nó ko có tài sản tích lũy đang mắc nợ, ko nhà ko đất có mỗi chiếc xe ghẻ<br>
+;> nó còn sĩ diện đòi đỏi xe nữa mà e<br>
+;> thôi khuya ròi ngủ nhe e
