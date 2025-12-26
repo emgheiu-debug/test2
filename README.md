@@ -7,4 +7,6 @@
 ;> coi tử vi qua AI chơi chơi thôi e, kiếm ai coi bói hay coi vẫn hơn<br>
 ;> coi qua AI thì a thấy cũng đúng mà lúc này lúc khác ko tin đc, giống như code z nó có đưa code chuẩn ngay từ đầu bao giờ, toàn bug chạy ko đc là nhìu<br>
 ;> nó nói đúng e, số a ko nhờ cha nhờ mẹ, vs chật vật hồi năm nhất tới bây giờ thật<br>
-;> số khổ trước sướng sau giờ tới năm 2027 là hết khổ về già an nhàn ổn định hưởng phúc
+;> số khổ trước sướng sau giờ tới năm 2027 là hết khổ về già an nhàn ổn định hưởng phúc<br>
+;> coi từng tháng thì nó nói lúc này lúc khác chứ coi cả đời thì nó nói như nhau à e<br>
+;> 
