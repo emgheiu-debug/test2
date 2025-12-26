@@ -16,4 +16,7 @@
 ;> vài tháng sau có lun e, ở dưới a á<br>
 ;> ban đầu a nghe tưởng bịp nói xà lơ<br>
 ;> con yến lồn đen khỏi coi thầy bà a cũng biết số nghèo khổ cà đời, giờ nó chỉ có nước trúng vé số thôi e, mà mua vé số tiếc đứt ruột<br>
-;> già ròi nó ko thay đổi gì nhìu đâu e
+;> già ròi nó ko thay đổi gì nhìu đâu e<br>
+;> 1 là cha mẹ chet chia của lại mà nó gia đình nó nghèo mạc lun e<br>
+;> 2 là trúng vé số<br>
+;> công việc tháng làm vài triệu từ năm này qua năm nọ 10 năm nữa vẫn z à e, khác cái nghỉ hưu
