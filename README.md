@@ -10,4 +10,7 @@
 ;> số khổ trước sướng sau giờ tới năm 2027 là hết khổ về già an nhàn ổn định hưởng phúc<br>
 ;> coi từng tháng thì nó nói lúc này lúc khác chứ coi cả đời thì nó nói như nhau à e<br>
 ;> già ko có khổ như con lồn đen<br>
-;> 2027 là hết khổ càng già càng sướng 
+;> 2027 là hết khổ càng già càng sướng<br>
+;> éo phải mê tín đâu e cái nào ngta nói có xảy ra là nên tin e<br>
+;> 1 người đang mắc nợ làm hoài ko dư mà hô có miếng đất<br>
+;> vài tháng sau có lun e, ở dưới a á
