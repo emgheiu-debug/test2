@@ -14,4 +14,6 @@
 ;> éo phải mê tín đâu e cái nào ngta nói có xảy ra là nên tin e<br>
 ;> 1 người đang mắc nợ làm hoài ko dư mà bà thầy bói hô có miếng đất<br>
 ;> vài tháng sau có lun e, ở dưới a á<br>
-;> ban đầu a nghe tưởng bịp nói xà lơ
+;> ban đầu a nghe tưởng bịp nói xà lơ<br>
+;> con yến lồn đen khỏi coi thầy bà a cũng biết số nghèo khổ cà đời, giờ nó chỉ có nước trúng vé số thôi e, mà mua vé số tiếc đứt ruột<br>
+;> già ròi nó ko thay đổi gì nhìu đâu e
