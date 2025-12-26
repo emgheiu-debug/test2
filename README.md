@@ -9,4 +9,5 @@
 ;> nó nói đúng e, số a ko nhờ cha nhờ mẹ, vs chật vật hồi năm nhất tới bây giờ thật<br>
 ;> số khổ trước sướng sau giờ tới năm 2027 là hết khổ về già an nhàn ổn định hưởng phúc<br>
 ;> coi từng tháng thì nó nói lúc này lúc khác chứ coi cả đời thì nó nói như nhau à e<br>
-;> già ko có khổ như con lồn đen
+;> già ko có khổ như con lồn đen<br>
+;> 2027 là hết khổ càng già càng sướng 
