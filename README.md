@@ -2,4 +2,5 @@
 ;> nhớ a cứ nhắn qua zalo số cũ nhe e<br>
 ;> nay 1 tây có đi đâu chơi hem e up hình a coi<br>
 ;> a bùn ngủ quá e ơi<br>
-;> mắt mún híp lại ròi e
+;> mắt mún híp lại ròi e<br>
+;> a ngủ nhe vợ, e cũng ngủ đi
