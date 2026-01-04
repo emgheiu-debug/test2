@@ -6,4 +6,5 @@
 ;> nói quài a cũng lì cũng tin người<br>
 ;> trên mạng hô dầu gội độc hại, kem đánh răng độc hại cái e tin hả<br>
 ;> bịp mà e có ai kiểm duyệt nội dung đâu e<br>
-;> đừng xài đồ tàu e nhó mau xuống lỗ lắm
+;> đừng xài đồ tàu e nhó mau xuống lỗ lắm<br>
+;> quần áo còn xài đc, hoặc đồ thương hiệu xài đc e
