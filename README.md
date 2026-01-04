@@ -8,4 +8,5 @@
 ;> bịp mà e có ai kiểm duyệt nội dung đâu e<br>
 ;> đừng xài đồ tàu e nhó mau xuống lỗ lắm<br>
 ;> quần áo còn xài đc, hoặc đồ thương hiệu xài đc e<br>
-;> già ở chung vs a nhe e
+;> già ở chung vs a nhe e<br>
+;> ngủ e, a off à
