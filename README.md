@@ -8,4 +8,5 @@
 ;> e có nhà ở quê e ròi chứ gì<br>
 ;> cha mẹ a ngủm hết kìa a mới có nhà riêng chứ ở chung mệt đầu ko có hợp tính<br>
 ;> nhà mặt đất càng tốt e<br>
-;> mua nhà ở vũng tàu, đà lạt, bình dương, quê e cũng đc
+;> mua nhà ở vũng tàu, đà lạt, bình dương, quê e cũng đc<br>
+;> nhà a ở quê gần họ hàng hỉu hem họ hay soi mói lắm nhìu khi thấy mình hơn con họ là ganh tị á, bàn lùi á<br>
