@@ -6,4 +6,5 @@
 ;> xíu nữa ngủ nhe e<br>
 ;> ước mơ có nhà riêng ở chung vs nhau ko biết khi nào mới làm đc e<br>
 ;> e có nhà ở quê e ròi chứ gì<br>
-;> cha mẹ a ngủm hết kìa a mới có nhà riêng chứ ở chung mệt đầu ko có hợp tính
+;> cha mẹ a ngủm hết kìa a mới có nhà riêng chứ ở chung mệt đầu ko có hợp tính<br>
+;> nhà mặt đất càng tốt e
