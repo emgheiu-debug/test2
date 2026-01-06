@@ -11,4 +11,5 @@
 ;> mua nhà ở vũng tàu, đà lạt, bình dương, quê e cũng đc<br>
 ;> nhà a ở quê gần họ hàng hỉu hem họ hay soi mói lắm nhìu khi thấy mình hơn con họ là ganh tị á, bàn lùi á<br>
 ;> có nhà thì mỗi tháng ko phải đóng tiền trọ, muốn trang trí theo ý mình cũng dễ, phòng trừ trường hợp mình thu nhập thấp nữa e, cuộc đời mà e<br>
-;> già ko có nhà khổ lắm e
+;> già ko có nhà khổ lắm e<br>
+;> ngủ ngon vợ iu
