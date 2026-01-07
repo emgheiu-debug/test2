@@ -6,4 +6,4 @@
 ;> mốt ko hết đi cắt mí thôi e<br>
 ;> ko tiền thì thôi chứ có tiền thì cái gì cũng có e<br>
 ;> xưa a uống matcha chỗ kia dở òm, nghĩ matcha dở ẹc có cái gì mà nó hot ngta uống quài<br>
-;> 
+;> cái uống chỗ hợp vị thay đổi suy nghĩ liền e
