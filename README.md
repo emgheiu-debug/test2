@@ -7,4 +7,5 @@
 ;> ko tiền thì thôi chứ có tiền thì cái gì cũng có e<br>
 ;> xưa a uống matcha chỗ kia dở òm, nghĩ matcha dở ẹc có cái gì mà nó hot ngta uống quài<br>
 ;> cái uống chỗ hợp vị thay đổi suy nghĩ liền e<br>
-;> cắt mí mắt đơn giản mà e, chứ mà mấy ng ngta xấu nâng mũi gọt cằm trúng chỗ làm dở cái hư mặt lun
+;> cắt mí mắt đơn giản mà e, chứ mà mấy ng ngta xấu nâng mũi gọt cằm trúng chỗ làm dở cái hư mặt lun<br>
+;> xấu mà đi thẫm mỹ cũng rủi ro lắm e
