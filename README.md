@@ -6,4 +6,5 @@
 ;> tự mua nhà ở riêng vẫn ngon e à<br>
 ;> xíu nữa ngủ e<br>
 ;> bth thì ở nhà cha mẹ a nói gì a cũng kệ ít khi nào nghe lắm<br>
-;> quen e thì mình bàn 2 mình nghe e nhó
+;> quen e thì mình bàn 2 mình nghe e nhó<br>
+;> tính a là thấy 1 người ko ra gì là nói chuyện làm biếng nghe lắm a nói thật
