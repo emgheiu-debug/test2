@@ -7,4 +7,6 @@
 ;> xíu nữa ngủ e<br>
 ;> bth thì ở nhà cha mẹ a nói gì a cũng kệ ít khi nào nghe lắm<br>
 ;> quen e thì mình bàn 2 mình nghe e nhó<br>
-;> tính a là thấy 1 người ko ra gì là nói chuyện làm biếng nghe lắm a nói thật
+;> tính a là thấy 1 người ko ra gì là nói chuyện làm biếng nghe lắm a nói thật<br>
+;> <img width="1557" height="1003" alt="image" src="https://github.com/user-attachments/assets/c0318c27-1ccb-47b4-87c2-c890e8efda65" /><br>
+;> rảnh search chatgpt học thêm thôi e
