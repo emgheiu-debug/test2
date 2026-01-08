@@ -10,4 +10,5 @@
 ;> tính a là thấy 1 người ko ra gì là nói chuyện làm biếng nghe lắm a nói thật<br>
 ;> <img width="1557" height="1003" alt="image" src="https://github.com/user-attachments/assets/c0318c27-1ccb-47b4-87c2-c890e8efda65" /><br>
 ;> rảnh search chatgpt học thêm thôi e<br>
-;> a thấy ngta bán con game qq gì chơi 20 phút phá đảo ròi e
+;> a thấy ngta bán con game qq gì chơi 20 phút phá đảo ròi e<br>
+;> e ngủ trước đi a coi livestream a ngủ sau
