@@ -3,4 +3,5 @@
 ;> xíu a nhắn cho nhe e<br>
 ;> mấy nay có coi séc hem e<br>
 ;> e dạo này chắc áp lực tại cuối năm mà, cúng tam tai vẫn xu à e<br>
-;> thời tiết dạo này lạnh hén e
+;> thời tiết dạo này lạnh hén e<br>
+;> lạnh lạnh vầy hơi ngứa mũi xíu e
