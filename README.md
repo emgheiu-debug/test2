@@ -6,4 +6,5 @@
 ;> mấy nay có nungdf hem e<br>
 ;> nắc cái e<br>
 ;> bùn ngủ chưa e<br>
-;> nhớ a iu hem e, chịu khó nhe e
+;> nhớ a iu hem e, chịu khó nhe e<br>
+;> khuya r ngủ đi e
