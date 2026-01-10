@@ -7,4 +7,5 @@
 ;> nắc cái e<br>
 ;> bùn ngủ chưa e<br>
 ;> nhớ a iu hem e, chịu khó nhe e<br>
-;> khuya r ngủ đi e
+;> khuya r ngủ đi e<br>
+;> nửa làm vợ ngủ chung vs a nhe e
