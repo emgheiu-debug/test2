@@ -5,4 +5,5 @@
 ;> tranh thủ xài ko nó xệ mất e<br>
 ;> mấy nay có nungdf hem e<br>
 ;> nắc cái e<br>
-;> bùn ngủ chưa e
+;> bùn ngủ chưa e<br>
+;> nhớ a iu hem e, chịu khó nhe e
