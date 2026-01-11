@@ -1,11 +1,3 @@
 ;> a nhô e<br>
-;> bùn ngủ quá vợ ơi<br>
-;> xíu nhắn nhe e<br>
-;> ở chung e là bùn ngủ ụp vô dú e ngủ liền e<br>
-;> tranh thủ xài ko nó xệ mất e<br>
-;> mấy nay có nungdf hem e<br>
-;> nắc cái e<br>
-;> bùn ngủ chưa e<br>
-;> nhớ a iu hem e, chịu khó nhe e<br>
-;> khuya r ngủ đi e<br>
-;> nửa làm vợ ngủ chung vs a nhe e
+;> <img width="1074" height="962" alt="image" src="https://github.com/user-attachments/assets/5bc831f8-e400-4a78-a525-9a64517906cd" /><br>
+;> e xăm lên dú lên bím như này đi tên a
