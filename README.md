@@ -13,4 +13,5 @@
 ;> nghèo quá thì đợi ông bà già a ngủm bán đất mua đất tỉnh khác 2 mình ở chung<br>
 ;> ở chung nhà cũng ko ưa mấy e<br>
 ;> đợi ngủm mới thành của mình đc, mẹ a đi coi bói ngta hô bả 70 tuổi ngủm, ngủ xong đi lun =)), ai biết có đúng ko e<br>
-;> 10 năm a tự bơi đc
+;> 10 năm a tự bơi đc<br>
+;> a thích cuộc sống ai nấy sống ko hợp nhau thì đừng phiền nhau, có tiền mua nhà ở chổ khác vẫn hơn là đợi ông bà già ngủm để có e à
