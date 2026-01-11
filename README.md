@@ -32,4 +32,5 @@
 ;> xin xăm toàn là chờ thời, danh có nhưng chậm nói chung là kiểu phải đợi tới số kiều z =))<br>
 ;> ví dụ như 1 người ko có số trúng số ròi xin ngta trúng số vẫn trúng hả e<br>
 ;> nói chung là những người trả lễ là chắc chắn họ xin đc ròi e<br>
-;> e quen a thì e biết tới a thôi gia đình dòng họ a gì kì lắm
+;> e quen a thì e biết tới a thôi gia đình dòng họ a gì kì lắm<br>
+;> nghèo quá thì mình ở vs nhau khỏi có con thôi e
