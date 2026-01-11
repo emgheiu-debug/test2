@@ -9,4 +9,5 @@
 ;> e quen a đói rách a cũng ko có tiền cho e mượn<br>
 ;> e có nhà dưới quê đó lấy sổ đỏ cầm chắc ít trăm lãi rẻ<br>
 ;> dưới a ngta hay z<br>
-;> kinh tế giờ có như xưa đâu e, dưới a ngta bán đồ ế nhệ
+;> kinh tế giờ có như xưa đâu e, dưới a ngta bán đồ ế nhệ<br>
+;> nghèo quá thì đợi ông bà già a ngủm bán đất mua đất tỉnh khác 2 mình ở chung
