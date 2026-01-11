@@ -4,4 +4,5 @@
 ;> xăm dị đó chịu hem e<br>
 ;> xăm lên bím phải cạo lông kìa mới xăm đc e<br>
 ;> hoy xăm z ngta vịn con chem chép của a ko đc<br>
-;> cty e kinh doanh đc ko e
+;> cty e kinh doanh đc ko e<br>
+;> cắt giảm nhân sự bớt e
