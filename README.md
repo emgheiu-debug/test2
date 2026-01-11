@@ -28,4 +28,6 @@
 ;> a xin thì chả thấy đâu e =))<br>
 ;> sài gòn có chùa định lâu cũng thờ mẹ mẫu mà e<br>
 ;> lên mạng thấy ngta xin đc còn a xin thì chưa thấy đâu éo hỉu lun<br>
-;> ngta xin đc thì ngta trả lễ thôi e, còn mình ko đc thì khỏi trả
+;> ngta xin đc thì ngta trả lễ thôi e, còn mình ko đc thì khỏi trả<br>
+;> xin xăm toàn là chờ thời, danh có nhưng chậm nói chung là kiểu phải đợi tới số kiều z =))<br>
+;> ví dụ như 1 người ko có số trúng số ròi xin ngta trúng số vẫn trúng hả e
