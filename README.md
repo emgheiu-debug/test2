@@ -22,4 +22,7 @@
 ;> nhỏ đó quen thg bắc kì cỡ tuổi a mà trùm sò đó e, quen cũng nhìu năm r<br>
 ;> thì a ở chung nó nghe nó call video vs thg đó, con e họ a nó kể hô nay đi làm bị đồng nghiệp nói kiểu như là bận áo sơ mi trắng mà áo dú đen vs thg bồ nó xong thg đó cũng im im lun, ròi con nhỏ này tự động đặt áo dú trên mạng<br>
 ;> kiểu là thg đó ko biết dắt nó đi mua áo dú vì sợ tốn tiền ý e, nghe bồ kể z cái im lun<br>
-;> chắc e cảm thấy aiu gì nhìu chuyện giống chị e quá 
+;> chắc e cảm thấy aiu gì nhìu chuyện giống chị e quá <br>
+;> e đi chùa xin mẹ mẫu cho con vượt qua giai đoạn này con trả lễ gì đó<br>
+;> thấy nhỏ kia trên mạng xin có bầu 1 tháng có bầu lun, cúng dường 700 suất mì tôm túi gạo 10kg, cỡ 200 triệu à e<br>
+;> a xin thì chả thấy đâu e =))
