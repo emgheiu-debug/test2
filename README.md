@@ -6,4 +6,5 @@
 ;> hoy xăm z ngta vịn con chem chép của a ko đc<br>
 ;> cty e kinh doanh đc ko e<br>
 ;> cắt giảm nhân sự bớt e<br>
-;> e quen a đói rách a cũng ko có tiền cho e mượn
+;> e quen a đói rách a cũng ko có tiền cho e mượn<br>
+;> e có nhà dưới quê đó lấy sổ đỏ cầm chắc ít trăm lãi rẻ
