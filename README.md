@@ -14,4 +14,6 @@
 ;> ở chung nhà cũng ko ưa mấy e<br>
 ;> đợi ngủm mới thành của mình đc, mẹ a đi coi bói ngta hô bả 70 tuổi ngủm, ngủ xong đi lun =)), ai biết có đúng ko e<br>
 ;> 10 năm a tự bơi đc<br>
-;> a thích cuộc sống ai nấy sống ko hợp nhau thì đừng phiền nhau, có tiền mua nhà ở chổ khác vẫn hơn là đợi ông bà già ngủm để có e à
+;> a thích cuộc sống ai nấy sống ko hợp nhau thì đừng phiền nhau, có tiền mua nhà ở chổ khác vẫn hơn là đợi ông bà già ngủm để có e à<br>
+;> bà ngoại a gần 80 tuổi nuôi heo bth ko làm gì thì xỉa sói moi móc người này người kia ai mắc nợ mắc nần hay con rể, con dâu ko vừa bụng là cũng chê bai đủ điểu<br>
+;> nói riết cái môi trề lun e
