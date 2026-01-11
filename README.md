@@ -17,4 +17,6 @@
 ;> a thích cuộc sống ai nấy sống ko hợp nhau thì đừng phiền nhau, có tiền mua nhà ở chổ khác vẫn hơn là đợi ông bà già ngủm để có e à<br>
 ;> bà ngoại a gần 80 tuổi nuôi heo bth ko làm gì thì xỉa sói moi móc người này người kia ai mắc nợ mắc nần hay con rể, con dâu ko vừa bụng là cũng chê bai đủ điểu<br>
 ;> nói riết cái môi trề lun e<br>
-;> nói nhai đi nhai lại ngày này qua ngày khác tháng này qua tháng nọ
+;> nói nhai đi nhai lại ngày này qua ngày khác tháng này qua tháng nọ<br>
+;> dạy con nhỏ e họ a đợt nó ở chung a đó, chăm chỉ chịu khó mới có tiền<br>
+;> nhỏ đó quen thg bắc kì cỡ tuổi a mà trùm sò đó e, quen cũng nhìu năm r
