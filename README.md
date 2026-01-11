@@ -35,4 +35,5 @@
 ;> e quen a thì e biết tới a thôi gia đình dòng họ a gì kì lắm<br>
 ;> nghèo quá thì mình ở vs nhau khỏi có con thôi e<br>
 ;> e có cảm thấy a ko thích cha mẹ mình, ròi ko nuôi khi về già để tự bơi là bất hiếu ko<br>
-;> có tiền thì hỗ trợ tí tiền thôi chứ cha mẹ a nào giờ chả dạy a đc gì
+;> có tiền thì hỗ trợ tí tiền thôi chứ cha mẹ a nào giờ chả dạy a đc gì<br>
+;> a thì quan điểm của a thì có qua thì có lại thôi chứ ko phải cha mẹ mình ko ra gì ròi đội lên đầu như vua chúa đc
