@@ -19,4 +19,6 @@
 ;> nói riết cái môi trề lun e<br>
 ;> nói nhai đi nhai lại ngày này qua ngày khác tháng này qua tháng nọ<br>
 ;> dạy con nhỏ e họ a đợt nó ở chung a đó, chăm chỉ chịu khó mới có tiền<br>
-;> nhỏ đó quen thg bắc kì cỡ tuổi a mà trùm sò đó e, quen cũng nhìu năm r
+;> nhỏ đó quen thg bắc kì cỡ tuổi a mà trùm sò đó e, quen cũng nhìu năm r<br>
+;> thì a ở chung nó nghe nó call video vs thg đó, con e họ a nó kể hô nay đi làm bị đồng nghiệp nói kiểu như là bận áo sơ mi trắng mà áo dú đen vs thg bồ nó xong thg đó cũng im im lun, ròi con nhỏ này tự động đặt áo dú trên mạng<br>
+;> kiểu là thg đó ko biết dắt nó đi mua áo dú vì sợ tốn tiền ý e, nghe bồ kể z cái im lun
