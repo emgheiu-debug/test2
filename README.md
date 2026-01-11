@@ -7,4 +7,8 @@
 ;> kiểu như đang hành xác nhau ý e<br>
 ;> nói chung là e thấy a đi làm chạy xe cà tàng là e hỉu r<br>
 ;> quen a thì e biết a thôi e, cha mẹ a e khỏi gặp cũng đc<br>
-;> ăn thua có tiền là mình sống cuộc sống mình thôi e
+;> ăn thua có tiền là mình sống cuộc sống mình thôi e<br>
+;> quen a là ko đc nhắc đến cha mẹ họ hàng a nhe hem e<br>
+;> z quen mới bền đc e<br>
+;> e cứ kệ đi e, e người dưng mà ko cần quan tâm làm gì<br>
+;> ngủ đi nhe ghệ iu
