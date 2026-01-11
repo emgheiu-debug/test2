@@ -31,4 +31,5 @@
 ;> ngta xin đc thì ngta trả lễ thôi e, còn mình ko đc thì khỏi trả<br>
 ;> xin xăm toàn là chờ thời, danh có nhưng chậm nói chung là kiểu phải đợi tới số kiều z =))<br>
 ;> ví dụ như 1 người ko có số trúng số ròi xin ngta trúng số vẫn trúng hả e<br>
-;> nói chung là những người trả lễ là chắc chắn họ xin đc ròi e
+;> nói chung là những người trả lễ là chắc chắn họ xin đc ròi e<br>
+;> e quen a thì e biết tới a thôi gia đình dòng họ a gì kì lắm
