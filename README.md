@@ -25,4 +25,6 @@
 ;> chắc e cảm thấy aiu gì nhìu chuyện giống chị e quá <br>
 ;> e đi chùa xin mẹ mẫu cho con vượt qua giai đoạn này con trả lễ gì đó<br>
 ;> thấy nhỏ kia trên mạng xin có bầu 1 tháng có bầu lun, cúng dường 700 suất mì tôm túi gạo 10kg, cỡ 200 triệu à e<br>
-;> a xin thì chả thấy đâu e =))
+;> a xin thì chả thấy đâu e =))<br>
+;> sài gòn có chùa định lâu cũng thờ mẹ mẫu mà e<br>
+;> lên mạng thấy ngta xin đc còn a xin thì chưa thấy đâu éo hỉu lun
