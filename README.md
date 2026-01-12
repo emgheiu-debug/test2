@@ -5,4 +5,5 @@
 ;> ngủ quên giờ chưa bùn ngủ lun e<br>
 ;> e nửa làm vợ a nhe hem e<br>
 ;> nửa mình ở vs nhau a sẽ share tài chính việc nhà nấu ăn giặt đồ chăm mèo cho e<br>
-;> con mèo của e, chứ ko phải chem chép của e à
+;> con mèo của e, chứ ko phải chem chép của e à<br>
+;> ngủ thôi e, a cũng hơi bùn ngủ r
