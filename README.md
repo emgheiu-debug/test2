@@ -1,4 +1,5 @@
 ;> a nhô e, aiu ngủ quên<br>
 ;> nào đi đẻ a cạo lông chem chép cho nhe e<br>
 ;> nghèo quá ko có con thôi chứ giờ chưa nghèo tới mức đó mà e, dự phòng z<br>
-;> e cũng răm lắm, hồi mới gặp a là thấy e răm ròi
+;> e cũng răm lắm, hồi mới gặp a là thấy e răm ròi<br>
+;> ngủ quên giờ chưa bùn ngủ lun e
