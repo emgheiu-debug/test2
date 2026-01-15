@@ -19,4 +19,5 @@
 ;> ngủ để tay vịn chém chép lun<br>
 ;> ngủ là phải mò con chem chép là hôm nay ướt hay khô e<br>
 ;> chem chép e mà ngon vs ngừa bệnh tình dục hết ròi là a bú lun<br>
-;> ăn lon là có thật mà e
+;> ăn lon là có thật mà e<br>
+;> tối mà vạch áo e bú dú a tưởng a là e bé của e z
