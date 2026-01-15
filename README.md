@@ -24,4 +24,5 @@
 ;> 1 bên thì nút đầu ti còn 1 bên thì bóp nắn, ko thì mò lon, mò đít<br>
 ;> lâu lâu a vẫn nungfg mà tần suất ít thôi e<br>
 ;> biết bao giờ a để dành tiền mua miếng đất, căn nhà ở riêng ta<br>
-;> nhà ở sài gòn càng tốt e, 5-6 tỉ chứ đùa e
+;> nhà ở sài gòn càng tốt e, 5-6 tỉ chứ đùa e<br>
+;> cái ngu ở trên đời này là cuộc sống của mình mà cứ chăm chăm làm vừa ý người khác e
