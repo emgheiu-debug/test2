@@ -14,4 +14,5 @@
 ;> ở nhà vs ngủ chỉ có 2 đứa mình thì mặc gì mặc e<br>
 ;> e muốn ngủ cho mát thoáng thì bận 1 lớp quần tới đùi thôi, ngủ vs a á<br>
 ;> còn e ngủ 1 bth thì bận 2 lớp để ra nước ước nệm hết<br>
-;> ngủ vs a, a mò lon mò dú bóp đít cho
+;> ngủ vs a, a mò lon mò dú bóp đít cho<br>
+;> a móc cho ra nước thì thôi
