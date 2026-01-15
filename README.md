@@ -25,4 +25,6 @@
 ;> lâu lâu a vẫn nungfg mà tần suất ít thôi e<br>
 ;> biết bao giờ a để dành tiền mua miếng đất, căn nhà ở riêng ta<br>
 ;> nhà ở sài gòn càng tốt e, 5-6 tỉ chứ đùa e<br>
-;> cái ngu ở trên đời này là cuộc sống của mình mà cứ chăm chăm làm vừa ý người khác e
+;> cái ngu ở trên đời này là cuộc sống của mình mà cứ chăm chăm làm vừa ý người khác e<br>
+;> a đang vọc devops thử coi sao e<br>
+;> mà khuya ròi vợ a ngủ đi e
