@@ -17,4 +17,6 @@
 ;> ngủ vs a, a mò lon mò dú bóp đít cho<br>
 ;> a móc cho ra nước thì thôi<br>
 ;> ngủ để tay vịn chém chép lun<br>
-;> ngủ là phải mò con chem chép là hôm nay ướt hay khô e
+;> ngủ là phải mò con chem chép là hôm nay ướt hay khô e<br>
+;> chem chép e mà ngon vs ngừa bệnh tình dục hết ròi là a bú lun<br>
+;> ăn lon là có thật mà e
