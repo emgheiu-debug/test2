@@ -9,4 +9,8 @@
 ;> đẩy 2 bên mép lộ 2 mép bị thâm =)))<br>
 ;> lớn ròi dậy thì ròi mép thâm bth e<br>
 ;> e chắc thích môn mò lon mò dú lắm<br>
-;> nhìu người iu nhau ở vs nhau lâu thì từng ngóc ngách trên cơ thể ngta còn biết thấy hết
+;> nhìu người iu nhau ở vs nhau lâu thì từng ngóc ngách trên cơ thể ngta còn biết thấy hết<br>
+;> xài chán chê lun<br>
+;> ở nhà vs ngủ chỉ có 2 đứa mình thì mặc gì mặc e<br>
+;> e muốn ngủ cho mát thoáng thì bận 1 lớp quần tới đùi thôi, ngủ vs a á<br>
+;> còn e ngủ 1 bth thì bận 2 lớp để ra nước ước nệm hết
