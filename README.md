@@ -8,4 +8,5 @@
 ;> cạo từ lỗ đít lên bên trên hết 2 mép để 1 tí ngay mu là đẹp e<br>
 ;> đẩy 2 bên mép lộ 2 mép bị thâm =)))<br>
 ;> lớn ròi dậy thì ròi mép thâm bth e<br>
-;> e chắc thích môn mò lon mò dú lắm
+;> e chắc thích môn mò lon mò dú lắm<br>
+;> nhìu người iu nhau ở vs nhau lâu thì từng ngóc ngách trên cơ thể ngta còn biết thấy hết
