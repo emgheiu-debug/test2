@@ -16,4 +16,5 @@
 ;> còn e ngủ 1 bth thì bận 2 lớp để ra nước ước nệm hết<br>
 ;> ngủ vs a, a mò lon mò dú bóp đít cho<br>
 ;> a móc cho ra nước thì thôi<br>
-;> ngủ để tay vịn chém chép lun
+;> ngủ để tay vịn chém chép lun<br>
+;> ngủ là phải mò con chem chép là hôm nay ướt hay khô e
