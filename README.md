@@ -22,4 +22,5 @@
 ;> ăn lon là có thật mà e<br>
 ;> tối mà vạch áo e bú dú a tưởng a là e bé của e z<br>
 ;> 1 bên thì nút đầu ti còn 1 bên thì bóp nắn, ko thì mò lon, mò đít<br>
-;> lâu lâu a vẫn nungfg mà tần suất ít thôi e
+;> lâu lâu a vẫn nungfg mà tần suất ít thôi e<br>
+;> biết bao giờ a để dành tiền mua miếng đất, căn nhà ở riêng ta
