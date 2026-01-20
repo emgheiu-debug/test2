@@ -4,4 +4,5 @@
 ;> cuối năm e có đi đâu chơi tết hem e<br>
 ;> hay kinh tế khó quá nào tốt tí thì đi, tết đâu nhất thiết phải đi chơi<br>
 ;> tết dưới quê a nhạt lắm, mà lớn ròi thấy tết cũng bth, có tiền thì lúc nào cũng là tết thôi e<br>
-;> có tiền ngày nào cũng là tết thôi e
+;> có tiền ngày nào cũng là tết thôi e, đúng hem e<br>
+;> vợ a giờ tròn béo sao a cũng éo biết
