@@ -7,4 +7,5 @@
 ;> có tiền ngày nào cũng là tết thôi e, đúng hem e<br>
 ;> vợ a giờ tròn béo sao a cũng éo biết<br>
 ;> đợt nào a nhớ e gầy lắm<br>
-;> e tập thể dục cho săn thịt lại xíu body ngon a mới dễ nungfd đc
+;> e tập thể dục cho săn thịt lại xíu body ngon a mới dễ nungfd đc<br>
+;> ngủ vợ ơi, khuya ròi e
