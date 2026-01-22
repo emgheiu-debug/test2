@@ -10,4 +10,5 @@
 ;> như là đi dạy đâu có làm 1 ngày đủ 8 tiếng đâu e rảnh nhìu mà, như con yến giò heo rảnh cái lên mạng xàm lồn, xin tiền online các thứ<br>
 ;> 47 tuồi lên mạng ăn cắp video nghèo khổ ròi xin xỏ tiền bạc 1 ngày làm 3 tiếng =)))<br>
 ;> còn lại rảnh thì soi mói xỉa xói ng này ng kia vì ko bằng ai nên nhìn ai nó cũng ganh tị bàn lùi chuyện ngta<br>
-;> lo chuyện thiên hạ ko à
+;> lo chuyện thiên hạ ko à<br>
+;> ko biết 2027 a làm cái gì mà có nhìu tiền nữa e, éo biết lun, hay bói ko trúng gì đó chả biết e
