@@ -12,4 +12,5 @@
 ;> lo chuyện thiên hạ ko à<br>
 ;> ko biết 2027 a làm cái gì mà có nhìu tiền nữa e, éo biết lun, hay bói ko trúng gì đó chả biết e<br>
 ;> nói chung thì đi làm a quan trọng mức lương vs môi trường thôi e, ưu tiên tiền hơn e<br>
-;> tết đồ chụp hình up aiu coi nhe e
+;> tết đồ chụp hình up aiu coi nhe e<br>
+;> hi vọng con yến giò heo làm nợ nhìu nhìu để ngay năm tuổi nó khổ tận cam lai e =)))
