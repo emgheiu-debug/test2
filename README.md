@@ -15,4 +15,5 @@
 ;> tết đồ chụp hình up aiu coi nhe e<br>
 ;> hi vọng con yến giò heo làm nợ nhìu nhìu để ngay năm tuổi nó khổ tận cam lai e =)))<br>
 ;> năm tuổi cái trổ nghiệp ra quật lòi lồn, cái lồn văng lên đọt me, cột điện lun<br>
-;> quật nó chết lun càng tốt e
+;> quật nó chết lun càng tốt e<br>
+;> hưởng dương 49 tuổi =))
