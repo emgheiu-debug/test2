@@ -6,4 +6,5 @@
 ;> nào giờ e chưa biết iu nên ko nungfd, còn iu vào là nungdf tối ngày<br>
 ;> iu vào là chem chép ướt<br>
 ;> chem chép rỉ nước<br>
-;> a biết e coi séc lâu ròi mà
+;> a biết e coi séc lâu ròi mà<br>
+;> mé mém ngủ quên e
