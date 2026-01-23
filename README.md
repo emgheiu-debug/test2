@@ -7,4 +7,5 @@
 ;> iu vào là chem chép ướt<br>
 ;> chem chép rỉ nước<br>
 ;> a biết e coi séc lâu ròi mà<br>
-;> mé mém ngủ quên e
+;> mé mém ngủ quên e<br>
+;> ngủ vợ ơi, a bùn ngủ ròi
