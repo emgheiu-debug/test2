@@ -4,4 +4,5 @@
 ;> đợi a đóng phim séc dài tập vs e phải hem e<br>
 ;> phim séc a và e =)), nội dung là "bulon vợ iu" =)))<br>
 ;> nào giờ e chưa biết iu nên ko nungfd, còn iu vào là nungdf tối ngày<br>
-;> iu vào là chem chép ướt
+;> iu vào là chem chép ướt<br>
+;> chem chép rỉ nước
