@@ -4,4 +4,5 @@
 ;> nửa ngủ chung đắp mềnh chung à e<br>
 ;> yến giò heo vs chồng nó làm ko đủ nuôi con lên mạng xin tiền ngta =))<br>
 ;> khổ mà vô tri<br>
-;> thôi ngủ đi e, a bùn ngủ ròi e
+;> thôi ngủ đi e, a bùn ngủ ròi e<br>
+;> nửa làm vợ a nhe e
