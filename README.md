@@ -4,4 +4,5 @@
 ;> gần tết chỗ e trời lạnh hem e<br>
 ;> lạnh teo chem chép lun hả e<br>
 ;> ngủ đi e<br>
-;> khuya giờ lạnh quá e
+;> khuya giờ lạnh quá e<br>
+;> e thức khuya e dậy nổi hem, chứ a dậy hem nổi
