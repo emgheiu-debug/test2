@@ -3,4 +3,5 @@
 ;> mới giờ a bùn ngủ quá e<br>
 ;> xíu a nhắn nhe e<br>
 ;> chịu khó iu xa e nhó, nào gặp đc chồng nhắn, do kinh tế khó khăn quá<br>
-;> a thì a chốt quen e ròi, mình ở vs nhau tới già e nhó
+;> a thì a chốt quen e ròi, mình ở vs nhau tới già e nhó<br>
+;> tết năm nay hem có gì vui hết e, đơn giản vì tiền ít còn lắm tiền thì vui thôi e
