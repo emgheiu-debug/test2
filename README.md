@@ -7,4 +7,5 @@
 ;> chồng vẫn bùn ngủ e<br>
 ;> e ngại gì e mà hem nhắn tin vs a<br>
 ;> cty e có ăn tất niên ko e<br>
-;> aiu đánh răng, đi tiểu cái ròi ngủ, a bùn ngủ ròi e
+;> aiu đánh răng, đi tiểu cái ròi ngủ, a bùn ngủ ròi e<br>
+;> tối nào đi ngủ a cũng đi đái hết, trước khi đi làm cũng z =)))
