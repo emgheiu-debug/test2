@@ -4,4 +4,6 @@
 ;> e chắc đi ăn đi chơi a e ngại lắm<br>
 ;> uống miếng nước trà vô hết bùn ngủ lun e<br>
 ;> e cho a nhắn vs e đi ròi nào mình gặp a alo là mình gặp<br>
-;> chồng vẫn bùn ngủ e
+;> chồng vẫn bùn ngủ e<br>
+;> e ngại gì e mà hem nhắn tin vs a<br>
+;> cty e có ăn tất niên ko e
