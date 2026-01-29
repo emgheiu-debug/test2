@@ -6,4 +6,5 @@
 ;> e cho a nhắn vs e đi ròi nào mình gặp a alo là mình gặp<br>
 ;> chồng vẫn bùn ngủ e<br>
 ;> e ngại gì e mà hem nhắn tin vs a<br>
-;> cty e có ăn tất niên ko e
+;> cty e có ăn tất niên ko e<br>
+;> aiu đánh răng, đi tiểu cái ròi ngủ, a bùn ngủ ròi e
