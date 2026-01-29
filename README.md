@@ -3,4 +3,5 @@
 ;> e có lựa chọn nào khác ngoài đợi a đâu, a đâu thích quen bừa<br>
 ;> e chắc đi ăn đi chơi a e ngại lắm<br>
 ;> uống miếng nước trà vô hết bùn ngủ lun e<br>
-;> e cho a nhắn vs e đi ròi nào mình gặp a alo là mình gặp
+;> e cho a nhắn vs e đi ròi nào mình gặp a alo là mình gặp<br>
+;> chồng vẫn bùn ngủ e
