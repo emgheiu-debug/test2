@@ -8,4 +8,5 @@
 ;> a đi ăn tiệc là uống 2-3 bia thôi e<br>
 ;> a có ăn nhậu sỉn bao giờ đâu e<br>
 ;> cty e nghỉ tết 14 tây hả<br>
-;> iu xa vẫn nungf bth hả e
+;> iu xa vẫn nungf bth hả e<br>
+;> chủ nhật a rảnh thì chiều chiều nhắn tới tối nhe e, chịu hem
