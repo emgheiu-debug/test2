@@ -3,4 +3,5 @@
 ;> chủ nhật vợ iu có đi chơi đâu hem e<br>
 ;> nữa a cạo lông bím để đi đẻ cho nhe<br>
 ;> cơm nước gì chưa e<br>
-;> tắm rửa, rửa bím gì chưa e
+;> tắm rửa, rửa bím gì chưa e<br>
+;> chiều e ngủ hay gì e
