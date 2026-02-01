@@ -6,4 +6,5 @@
 ;> tắm rửa, rửa bím gì chưa e<br>
 ;> chiều e ngủ hay gì e<br>
 ;> a đi ăn tiệc là uống 2-3 bia thôi e<br>
-;> a có ăn nhậu sỉn bao giờ đâu e
+;> a có ăn nhậu sỉn bao giờ đâu e<br>
+;> cty e nghỉ tết 14 tây hả
