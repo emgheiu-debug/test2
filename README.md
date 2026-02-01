@@ -5,4 +5,5 @@
 ;> cơm nước gì chưa e<br>
 ;> tắm rửa, rửa bím gì chưa e<br>
 ;> chiều e ngủ hay gì e<br>
-;> a đi ăn tiệc là uống 2-3 bia thôi e
+;> a đi ăn tiệc là uống 2-3 bia thôi e<br>
+;> a có ăn nhậu sỉn bao giờ đâu e
