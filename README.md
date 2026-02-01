@@ -9,4 +9,5 @@
 ;> a có ăn nhậu sỉn bao giờ đâu e<br>
 ;> cty e nghỉ tết 14 tây hả<br>
 ;> iu xa vẫn nungf bth hả e<br>
-;> chủ nhật a rảnh thì chiều chiều nhắn tới tối nhe e, chịu hem
+;> chủ nhật a rảnh thì chiều chiều nhắn tới tối nhe e, chịu hem<br>
+;> ngủ nhe e bùn ngủ ròi
