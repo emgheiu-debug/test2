@@ -1,4 +1,2 @@
 ;> a nhô e<br>
-;> tối a iu ngủ quên e<br>
-;> có gì a nhắn bù cho nhe e<br>
-;> tối a nhắn bù cho nhe e 
+;> cơm nước tắm rửa đi xíu a iu nhắn nhe
