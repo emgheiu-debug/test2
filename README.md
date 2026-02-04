@@ -3,4 +3,5 @@
 ;> vợ a nay ăn cơm vs gì e<br>
 ;> a ăn món nấu lúc trưa quá chán lun<br>
 ;> ghệ iu nhớ a hem<br>
-;> mấy nay có nungf hem vợ iu
+;> mấy nay có nungf hem vợ iu<br>
+;> ngủ chung vs a đừng có hay nungf nhen e
