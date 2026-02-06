@@ -1,7 +1,2 @@
 ;> a nhô e<br>
-;> cơm nước gì chưa e<br>
-;> cty vợ a 28 âm nghĩ tết hả<br>
-;> vợ a chắc thích làm tình vs a lắm<br>
-;> e cứ học nấu ăn đi nửa nấu a ăn<br>
-;> a bùn ngủ quá vợ iu ơi, tý lại ngủ quên giờ<br>
-;> mắt a muốn híp ròi e, có gì mai nhắn nhe e, ngủ ngon e
+;> tí a nhắn nhe e
