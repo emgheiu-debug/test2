@@ -6,4 +6,5 @@
 ;> tối có lạnh hem e<br>
 ;> mấy nay có mơ nắc hem e<br>
 ;> vợ a có ngủ thì ngủ đi a cũng bùn ngủ ròi e<br>
-;> mấy nay có nungf hem e
+;> mấy nay có nungf hem e<br>
+;> ở tuổi e làm gì nungf nhìu dị e, này là do sinh lý e cao thôi
