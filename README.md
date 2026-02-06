@@ -4,4 +4,6 @@
 ;> tết vợ có đi đâu chơi hem e<br>
 ;> nhớ up hình a coi nhe e, tuần sau nghỉ tết ròi e<br>
 ;> tối có lạnh hem e<br>
-;> mấy nay có mơ nắc hem e
+;> mấy nay có mơ nắc hem e<br>
+;> vợ a có ngủ thì ngủ đi a cũng bùn ngủ ròi e<br>
+;> mấy nay có nungf hem e
