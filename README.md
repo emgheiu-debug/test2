@@ -7,4 +7,5 @@
 ;> mấy nay có mơ nắc hem e<br>
 ;> vợ a có ngủ thì ngủ đi a cũng bùn ngủ ròi e<br>
 ;> mấy nay có nungf hem e<br>
-;> ở tuổi e làm gì nungf nhìu dị e, này là do sinh lý e cao thôi
+;> ở tuổi e làm gì nungf nhìu dị e, này là do sinh lý e cao thôi<br>
+;> rửa bím đi ngủ đi e a cũng sắp ngủ ròi, bùn ngủ ròi e
