@@ -9,4 +9,6 @@
 ;> nửa ngủ chung nhe e<br>
 ;> vợ a rảnh bth làm gì e, coi xàm lon à<br>
 ;> tập ngủ sớm đi e, nửa a ngủ trước e ngồi chèo queo 1 mình à<br>
-;> nửa a iu ngủ trước e cho coi =))
+;> nửa a iu ngủ trước e cho coi =)<br>
+;> mé a xài mạng viettel tối yếu vãi e<br>
+;>
