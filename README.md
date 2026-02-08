@@ -2,4 +2,5 @@
 ;> a nhô e ghệ, nay e rảnh có làm gì hem e<br>
 ;> có thèm ăn vặt hem, mua gì ăn ngồi a nhắn cho nhe e<br>
 ;> trưa a mới đi hớt tóc hết 120k<br>
-;> tuần sau nghỉ tết ăn tất niên chụp hình a coi nhe e
+;> tuần sau nghỉ tết ăn tất niên chụp hình a coi nhe e<br>
+;> cơm nước gì chưa e
