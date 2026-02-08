@@ -6,4 +6,5 @@
 ;> cơm nước gì chưa e<br>
 ;> vợ a tắm rửa thơm bím chưa e<br>
 ;> nay a mặt a hơi tròn xíu e, chắc giảm cân lần quá<br>
-;> nửa ngủ chung nhe e
+;> nửa ngủ chung nhe e<br>
+;> vợ a rảnh bth làm gì e, coi xàm lon à
