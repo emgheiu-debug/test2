@@ -11,4 +11,5 @@
 ;> tập ngủ sớm đi e, nửa a ngủ trước e ngồi chèo queo 1 mình à<br>
 ;> nửa a iu ngủ trước e cho coi =)<br>
 ;> mé a xài mạng viettel tối yếu vãi e<br>
-;> vợ a đâu nhớ có thời điểm e gầy lắm mà e
+;> vợ a đâu nhớ có thời điểm e gầy lắm mà e<br>
+;> vợ a, a đoán 6x kg 
