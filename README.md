@@ -7,4 +7,5 @@
 ;> vợ a tắm rửa thơm bím chưa e<br>
 ;> nay a mặt a hơi tròn xíu e, chắc giảm cân lần quá<br>
 ;> nửa ngủ chung nhe e<br>
-;> vợ a rảnh bth làm gì e, coi xàm lon à
+;> vợ a rảnh bth làm gì e, coi xàm lon à<br>
+;> tập ngủ sớm đi e, nửa a ngủ trước e ngồi chèo queo 1 mình à
