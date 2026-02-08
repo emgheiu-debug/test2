@@ -18,4 +18,6 @@
 ;> đợt a nhớ e ốm quá làm như mất dú lun mà<br>
 ;> cứ điều điều chủ nhật a lên đây nhắn nhe e<br>
 ;> nào off chủ nhật thì a nhắn nhe, chứ mặc định chủ nhật chiều là nhắn trên đây nhe e<br>
-;> khuya ròi rửa bím đi ngủ đi e
+;> khuya ròi rửa bím đi ngủ đi e<br>
+;> ngày nghỉ thì a mua đồ ăn vặt, có thể làm chuyện khác, làm việc nhà dọn dẹp gì đó nên là nhắn vs e rep hơi lâu xíu nhe vợ<br>
+;> ròi ngủ đi e
