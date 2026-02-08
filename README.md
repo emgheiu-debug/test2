@@ -12,4 +12,6 @@
 ;> nửa a iu ngủ trước e cho coi =)<br>
 ;> mé a xài mạng viettel tối yếu vãi e<br>
 ;> vợ a đâu nhớ có thời điểm e gầy lắm mà e<br>
-;> vợ a, a đoán 6x kg 
+;> vợ a, a đoán 6x kg <br>
+;> bth e đi làm ở cty e có ngủ hem e<br>
+;> nào mình có tiền mua đc căn nhà như chỗ e thuê để làm ngon hén e
