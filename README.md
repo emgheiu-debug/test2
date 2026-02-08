@@ -4,4 +4,5 @@
 ;> trưa a mới đi hớt tóc hết 120k<br>
 ;> tuần sau nghỉ tết ăn tất niên chụp hình a coi nhe e<br>
 ;> cơm nước gì chưa e<br>
-;> vợ a tắm rửa thơm bím chưa e
+;> vợ a tắm rửa thơm bím chưa e<br>
+;> nay a mặt a hơi tròn xíu e, chắc giảm cân lần quá
