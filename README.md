@@ -1,1 +1,1 @@
-;> a ngủ quên nhe vợ
+;> a nhô e, cơm nước gì chưa e
