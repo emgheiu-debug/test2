@@ -4,4 +4,5 @@
 ;> phải 14/02 đi nhà nghỉ nắc cái hả e =)))<br>
 ;> a dòm bướm e đồ đó<br>
 ;> a sức kem chuẩn bị ngủ ròi e để ngủ quên mặt mụn ko<br>
-;> ngủ đi vợ iu, a bùn ngủ ròi
+;> ngủ đi vợ iu, a bùn ngủ ròi<br>
+;> giờ chưa đi chơi ròi nào ngủ chung e
