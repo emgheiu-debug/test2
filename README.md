@@ -5,4 +5,5 @@
 ;> a dòm bướm e đồ đó<br>
 ;> a sức kem chuẩn bị ngủ ròi e để ngủ quên mặt mụn ko<br>
 ;> ngủ đi vợ iu, a bùn ngủ ròi<br>
-;> giờ chưa đi chơi ròi nào ngủ chung e
+;> giờ chưa đi chơi ròi nào ngủ chung e<br>
+;> thôi mà e ngủ đi, mai nhắn nhe e
