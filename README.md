@@ -9,4 +9,5 @@
 ;> sao mà bóp dú đc, mò mẫm đc e<br>
 ;> ghệ răm tết có đi du lịch đâu hem e<br>
 ;> bùn ngủ quá e xíu a ngủ quên à<br>
-;> thôi chắc a ngủ sớm
+;> thôi chắc a ngủ sớm<br>
+;> ngủ đi vợ a ngủ trước à e, 14/02 vui vẻ nhe e
