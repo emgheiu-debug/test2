@@ -10,4 +10,5 @@
 ;> ghệ răm tết có đi du lịch đâu hem e<br>
 ;> bùn ngủ quá e xíu a ngủ quên à<br>
 ;> thôi chắc a ngủ sớm<br>
-;> ngủ đi vợ a ngủ trước à e, 14/02 vui vẻ nhe e
+;> ngủ đi vợ a ngủ trước à e, 14/02 vui vẻ nhe e<br>
+;> vợ nửa học nấu ăn, a ăn đi
