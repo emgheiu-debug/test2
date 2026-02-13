@@ -5,4 +5,5 @@
 ;> mai lễ tình nhân e ở nhà ngủ hả e<br>
 ;> chưa đi chơi nữa lấy gì ngủ chung e<br>
 ;> có ăn tất niên hem e<br>
-;> a vs e còn ngại mà sao nắc đc e
+;> a vs e còn ngại mà sao nắc đc e<br>
+;> sao mà bóp dú đc, mò mẫm đc e
