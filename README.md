@@ -6,4 +6,5 @@
 ;> chưa đi chơi nữa lấy gì ngủ chung e<br>
 ;> có ăn tất niên hem e<br>
 ;> a vs e còn ngại mà sao nắc đc e<br>
-;> sao mà bóp dú đc, mò mẫm đc e
+;> sao mà bóp dú đc, mò mẫm đc e<br>
+;> ghệ răm tết có đi du lịch đâu hem e
