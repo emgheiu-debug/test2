@@ -7,4 +7,5 @@
 <img width="417" height="557" alt="image" src="https://github.com/user-attachments/assets/7053d677-9588-4156-9eb2-1e67ea66b968" /><br>
 ;> thế thôi e<br>
 ;> áo đẹp hem e<br>
-;> đáng lí ra là hôm nay mình phải đi chơi vs nhau, a tặng bông tặng quà e cơ mà thôi
+;> đáng lí ra là hôm nay mình phải đi chơi vs nhau, a tặng bông tặng quà e cơ mà thôi<br>
+;> bùn ngủ quá e
