@@ -4,4 +4,5 @@
 ;> mé bữa ăn buffet lại quán cũ mà bán mắc hơn đồ ăn ít hơn nữa e, chắc ko ghé nữa, con tôm nhỏ xíu cỡ con tép z, ăn lỗ lun<br>
 ;> hay giờ cái gì cũng mắc nên ngta bán như z, éo biết e<br>
 ;> đi ăn buffet mà cái gì cũng hết ko biết ăn gì đi lúc 7h30<br>
-;> cơm nước gì chưa e
+;> cơm nước gì chưa e<br>
+;> về quê chưa e
