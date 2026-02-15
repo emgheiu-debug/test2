@@ -5,4 +5,5 @@
 ;> hay giờ cái gì cũng mắc nên ngta bán như z, éo biết e<br>
 ;> đi ăn buffet mà cái gì cũng hết ko biết ăn gì đi lúc 7h30<br>
 ;> cơm nước gì chưa e<br>
-;> về quê chưa e
+;> về quê chưa e<br>
+;> đợi a đón tết vs e hơi lâu e nhễ
