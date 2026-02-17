@@ -3,4 +3,5 @@
 ;> cổ vợ a đeo vàng mấy chỉ e<br>
 ;> giờ vàng mắc quá ko biết khi nào giá mềm xíu để mua e<br>
 ;> mùng 1 mình đụ nhau khai xuân e =)))<br>
-;> a đi chợ hoa mà hem có gì chơi mới về
+;> a đi chợ hoa mà hem có gì chơi mới về<br>
+;> tết dưới a giờ ko nấu thịt kho tàu, khổ qua nữa e, thích ăn gì nấu nấy à
