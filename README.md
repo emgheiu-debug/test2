@@ -9,4 +9,5 @@
 ;> e thích a bận quần jean hem, a thấy chỗ kia cũng đẹp<br>
 ;> a đâu có se sua quần áo nhìu đâu e, thỉnh thoảng mua 1 2 món<br>
 ;> hoặc thích thì mới mua, đồ a đơn giản lắm, cũng lười phối đồ nữa<br>
-;> quan trọng có tiền thôi chứ mua quần áo để đó làm gì e, nào cần mua cũng đc
+;> quan trọng có tiền thôi chứ mua quần áo để đó làm gì e, nào cần mua cũng đc<br>
+;> ngủ ngon nhe e 
