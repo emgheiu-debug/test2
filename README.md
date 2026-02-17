@@ -7,4 +7,5 @@
 ;> tết dưới a giờ ko nấu thịt kho tàu, khổ qua nữa e, thích ăn gì nấu nấy à<br>
 ;> e nghĩ tới sáng đi làm tối về mình ngủ chung giường là e thấy khoái ha<br>
 ;> e thích a bận quần jean hem, a thấy chỗ kia cũng đẹp<br>
-;> a đâu có se sua quần áo nhìu đâu e, thỉnh thoảng mua 1 2 món
+;> a đâu có se sua quần áo nhìu đâu e, thỉnh thoảng mua 1 2 món<br>
+;> hoặc thích thì mới mua, đồ a đơn giản lắm, cũng lười phối đồ nữa
