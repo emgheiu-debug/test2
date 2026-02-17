@@ -5,4 +5,5 @@
 ;> mùng 1 mình đụ nhau khai xuân e =)))<br>
 ;> a đi chợ hoa mà hem có gì chơi mới về<br>
 ;> tết dưới a giờ ko nấu thịt kho tàu, khổ qua nữa e, thích ăn gì nấu nấy à<br>
-;> e nghĩ tới sáng đi làm tối về mình ngủ chung giường là e thấy khoái ha
+;> e nghĩ tới sáng đi làm tối về mình ngủ chung giường là e thấy khoái ha<br>
+;> e thích a bận quần jean hem, a thấy chỗ kia cũng đẹp
