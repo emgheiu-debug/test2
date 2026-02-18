@@ -8,4 +8,5 @@
 ;> nửa ngủ chung a nha e<br>
 ;> e đợi a tới giữa năm coi sao e, nhe<br>
 ;> làm 1 tháng dư đc 3 củ đi thì 3x6 =18 =))), chán<br>
-;> chắc đổi cty
+;> chắc đổi cty<br>
+;> 1 tháng vài trăm củ mới thấy gì đc e
