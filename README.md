@@ -9,4 +9,7 @@
 ;> e đợi a tới giữa năm coi sao e, nhe<br>
 ;> làm 1 tháng dư đc 3 củ đi thì 3x6 =18 =))), chán<br>
 ;> chắc đổi cty<br>
-;> 1 tháng vài trăm củ mới thấy gì đc e
+;> 1 tháng vài trăm củ mới thấy gì đc e<br>
+;> a bth thì thích bận áo thun cho thoải mái thôi e, để mốt a mua ít cái nữa<br>
+;> quần thì a cũng ko thích bận quần jean lắm, chắc đi chơi du lịch thì bận hợp thôi<br>
+;>
