@@ -5,4 +5,7 @@
 ;> lố e<br>
 ;> xíu a iu nhắn nhe e<br>
 ;> ở chung e chắc 1 sào đồ e máng hết tại a ít đồ<br>
-;> nửa ngủ chung a nha e
+;> nửa ngủ chung a nha e<br>
+;> e đợi a tới giữa năm coi sao e, nhe<br>
+;> làm 1 tháng dư đc 3 củ đi thì 3x6 =18 =))), chán<br>
+;> chắc đổi cty
