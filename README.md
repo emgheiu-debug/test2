@@ -12,4 +12,5 @@
 ;> 1 tháng vài trăm củ mới thấy gì đc e<br>
 ;> a bth thì thích bận áo thun cho thoải mái thôi e, để mốt a mua ít cái nữa<br>
 ;> quần thì a cũng ko thích bận quần jean lắm, chắc đi chơi du lịch thì bận hợp thôi<br>
-;>
+;> mua đồ lặt vặt như xà bông rửa tay, tắm, dầu gội, kem đánh răng, sửa rửa mặt, khăn tắm, mỹ phẩm...<br>
+;> a đặt đồ lặt vặt trên sộp pe qua tết ship ròi e
