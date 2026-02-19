@@ -12,4 +12,5 @@
 ;> cài con server nãy giờ éo đc lun e =))<br>
 ;> từ từ a cài cũng đc<br>
 ;> ai muốn mình nhìu tiền, mình ăn ngon mặc đẹp,sống tốt là muốn tốt cho mình z thôi e<br>
-;> đánh giá người quá dễ e
+;> đánh giá người quá dễ e<br>
+;> nửa a học vài món a nấu cho e ăn nhe
