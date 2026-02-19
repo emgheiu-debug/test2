@@ -9,4 +9,7 @@
 ;> đời ko tiền mới khổ thôi e<br>
 ;> có tiền là thấy happy liền =)))<br>
 ;> bớt coi xàm xàm tiktok đi e, bth a chả coi<br>
-;> cài con server nãy giờ éo đc lun e =))
+;> cài con server nãy giờ éo đc lun e =))<br>
+;> từ từ a cài cũng đc<br>
+;> ai muốn mình nhìu tiền, mình ăn ngon mặc đẹp,sống tốt là muốn tốt cho mình z thôi e<br>
+;> đánh giá người quá dễ e
