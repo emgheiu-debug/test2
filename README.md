@@ -4,4 +4,5 @@
 ;> xíu a nhắn tin cho nhe e<br>
 ;> tối mạng lag chán thật e, cài server mãi ko đc, bth thì cài đc<br>
 ;> chắc tết ngta ở nhà sài mạng nhìu<br>
-;> đặt đồ chắc tới tuần sau mới lấy đc e
+;> đặt đồ chắc tới tuần sau mới lấy đc e<br>
+;> a đang con con game ngắn thấy cũng hay
