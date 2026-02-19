@@ -1,17 +1,2 @@
 ;> a nhô e<br>
-;> tết có đi đâu chơi ko e<br>
-;> tết chán vãi e, tuần sau làm lại ròi e<br>
-;> cơm nước gì chưa e<br>
-;> lố e<br>
-;> xíu a iu nhắn nhe e<br>
-;> ở chung e chắc 1 sào đồ e máng hết tại a ít đồ<br>
-;> nửa ngủ chung a nha e<br>
-;> e đợi a tới giữa năm coi sao e, nhe<br>
-;> làm 1 tháng dư đc 3 củ đi thì 3x6 =18 =))), chán<br>
-;> chắc đổi cty<br>
-;> 1 tháng vài trăm củ mới thấy gì đc e<br>
-;> a bth thì thích bận áo thun cho thoải mái thôi e, để mốt a mua ít cái nữa<br>
-;> quần thì a cũng ko thích bận quần jean lắm, chắc đi chơi du lịch thì bận hợp thôi<br>
-;> mua đồ lặt vặt như xà bông rửa tay, tắm, dầu gội, kem đánh răng, sửa rửa mặt, khăn tắm, mỹ phẩm, đồ ăn vặt, đồ lót...<br>
-;> a đặt đồ lặt vặt trên sộp pe qua tết ship ròi e<br>
-;> mà khuya ròi ngủ đi e, ngủ ngon e
+;> hết mùng 3 hết tết ròi e
