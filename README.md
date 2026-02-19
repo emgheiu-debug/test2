@@ -8,4 +8,5 @@
 ;> a đang coi con game ngắn thấy cũng hay<br>
 ;> đời ko tiền mới khổ thôi e<br>
 ;> có tiền là thấy happy liền =)))<br>
-;> bớt coi xàm xàm tiktok đi e, bth a chả coi
+;> bớt coi xàm xàm tiktok đi e, bth a chả coi<br>
+;> cài con server nãy giờ éo đc lun e =))
