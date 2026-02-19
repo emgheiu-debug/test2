@@ -13,4 +13,5 @@
 ;> từ từ a cài cũng đc<br>
 ;> ai muốn mình nhìu tiền, mình ăn ngon mặc đẹp,sống tốt là muốn tốt cho mình z thôi e<br>
 ;> đánh giá người quá dễ e<br>
-;> nửa a học vài món a nấu cho e ăn nhe
+;> nửa a học vài món a nấu cho e ăn nhe<br>
+;> ngủ đi e, mai nhắn tiếp e
