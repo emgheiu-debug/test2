@@ -7,4 +7,5 @@
 ;> mò lon, bóp dú, bóp đít<br>
 ;> vợ a thích lắm<br>
 ;> a biết mà<br>
-;> a quen bồ a thích ôm ấp, nắm tay, skinship lắm
+;> a quen bồ a thích ôm ấp, nắm tay, skinship lắm<br>
+;> ở riêng là nhìu khi a ôm ấp rờ dú đít cả ngày =))
