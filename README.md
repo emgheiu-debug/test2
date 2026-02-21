@@ -8,4 +8,5 @@
 ;> vợ a thích lắm<br>
 ;> a biết mà<br>
 ;> a quen bồ a thích ôm ấp, nắm tay, skinship lắm<br>
-;> ở riêng là nhìu khi a ôm ấp rờ dú đít cả ngày =))
+;> ở riêng là nhìu khi a ôm ấp rờ dú đít cả ngày =))<br>
+;> quen ghệ là toàn bóp nắn rờ mó nhau chứ đâu phải nắm tay thông thường như bạn bè đâu e, giờ toàn z, ko nói thì mình cũng bít thôi e
