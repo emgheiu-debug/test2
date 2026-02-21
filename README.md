@@ -4,4 +4,7 @@
 ;> ngủ vs a bận 1 lớp quần lớp áo thôi e để dễ mò<br>
 ;> coi con chem chép của enay lớn chưa<br>
 ;> e hơn 30 ròi chắc nó cũng z thôi ko lớn thêm đc trừ khi mập hay gầy<br>
-;> mò lon, bóp dú, bóp đít
+;> mò lon, bóp dú, bóp đít<br>
+;> vợ a thích lắm<br>
+;> a biết mà<br>
+;> a quen bồ a thích ôm ấp, nắm tay, skinship lắm
