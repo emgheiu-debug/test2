@@ -5,4 +5,5 @@
 ;> a iu đói nên ăn sớm xíu<br>
 ;> giờ a ngồi vọc laptop xíu<br>
 ;> a bth thì hay ăn chiên vs xào<br>
-;> đi làm tiết kiệm nhiu thì tiết kiệm thôi e, nào cần thiết vẫn mua bth e
+;> đi làm tiết kiệm nhiu thì tiết kiệm thôi e, nào cần thiết vẫn mua bth e<br>
+;> e chắc chắc thích coi phim heo, a nhìn e a biết
