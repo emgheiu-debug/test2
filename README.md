@@ -14,4 +14,4 @@
 ;> e ngủ hay bận đồ sao e<br>
 ;> áo thun quần xà lỏn à<br>
 ;> áo thun dạt cũ bận ngủ à<br>
-;> 
+;> khuya r ngủ đi e, a ngủ à
