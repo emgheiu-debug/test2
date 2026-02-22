@@ -3,4 +3,5 @@
 ;> chiều e có làm gì ko e<br>
 ;> a mua hộp cơm gà ăn tối ròi, e cơm nước gì chưa e<br>
 ;> a iu đói nên ăn sớm xíu<br>
-;> giờ a ngồi vọc laptop xíu
+;> giờ a ngồi vọc laptop xíu<br>
+;> a bth thì hay ăn chiên vs xào
