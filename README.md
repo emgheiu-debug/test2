@@ -10,4 +10,8 @@
 ;> top 1 phim heo top 2 phim séc top 3 phim thủ răm top 4 phim bạo răm<br>
 ;> a thì a muốn có nhà riêng ở trước, ko đc thì thu nhập tốt cũng đc, ròi có con, từ từ mua nhà cũng đc<br>
 ;> có tiền thì mình đi chơi, du lịch tùy e<br>
-;> a thì a định hướng như z
+;> a thì a định hướng như z<br>
+;> e ngủ hay bận đồ sao e<br>
+;> áo thun quần xà lỏn à<br>
+;> áo thun dạt cũ bận ngủ à<br>
+;> 
