@@ -11,4 +11,5 @@
 ;> nói chắc e nghe e sướng chem chép đang ướt<br>
 ;> ở vs a là nhìu khi chem chép ko bao giờ khô đc<br>
 ;> hôn môi ròi bú liếm từ cặp dú xuống con chêm<br>
-;> làm tình chảy nước là chuyện bth e
+;> làm tình chảy nước là chuyện bth e<br>
+;> đang nằm chung a mò lòn, bóp dú e cho hem
