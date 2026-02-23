@@ -19,4 +19,5 @@
 ;> khả năng giờ mua đc nhẫn bạc cho e thôi, ko thì a đổi job khác may ra<br>
 ;> e có cọng dây chuyền đó xỏ nhẫn bạc đeo<br>
 ;> a bùn ngủ ròi e<br>
-;> ngứa lưng quá e, e ở chung gãi cho a thì ngon
+;> ngứa lưng quá e, e ở chung gãi cho a thì ngon<br>
+;> ngủ đi vợ a bùn ngủ quá e
