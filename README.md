@@ -12,4 +12,5 @@
 ;> ở vs a là nhìu khi chem chép ko bao giờ khô đc<br>
 ;> hôn môi ròi bú liếm từ cặp dú xuống con chêm<br>
 ;> làm tình chảy nước là chuyện bth e<br>
-;> đang nằm chung a mò lòn, bóp dú e cho hem
+;> đang nằm chung a mò lòn, bóp dú e cho hem<br>
+;> ngủ vs a là a bụm con chêm từ tối đến sáng lun
