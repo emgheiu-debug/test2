@@ -8,4 +8,6 @@
 ;> nửa a móc chem chép vs cạo lông cho nhe e<br>
 ;> có vợ phải để vợ sướng chứ ai để nằm ko hén e<br>
 ;> e ngừa bệnh tình dục chưa<br>
-;> nói chắc e nghe e sướng chem chép đang ướt
+;> nói chắc e nghe e sướng chem chép đang ướt<br>
+;> ở vs a là nhìu khi chem chép ko bao giờ khô đc<br>
+;> hôn môi ròi bú liếm từ cặp dú xuống con chêm
