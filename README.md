@@ -18,4 +18,5 @@
 ;> nào đi chơi vs nhau đi ròi ngủ chung đi tính tiếp e<br>
 ;> khả năng giờ mua đc nhẫn bạc cho e thôi, ko thì a đổi job khác may ra<br>
 ;> e có cọng dây chuyền đó xỏ nhẫn bạc đeo<br>
-;> a bùn ngủ ròi e
+;> a bùn ngủ ròi e<br>
+;> ngứa lưng quá e, e ở chung gãi cho a thì ngon
