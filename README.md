@@ -14,4 +14,6 @@
 ;> làm tình chảy nước là chuyện bth e<br>
 ;> đang nằm chung a mò lòn, bóp dú e cho hem<br>
 ;> ngủ vs a là a bụm con chêm từ tối đến sáng lun<br>
-;> chem chép từ lúc nhỏ đến lớn là có cha mẹ vs chồng sờ thôi
+;> chem chép từ lúc nhỏ đến lớn là có cha mẹ vs chồng sờ thôi<br>
+;> nào đi chơi vs nhau đi ròi ngủ chung đi tính tiếp e<br>
+;> 
