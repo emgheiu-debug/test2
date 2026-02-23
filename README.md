@@ -16,4 +16,5 @@
 ;> ngủ vs a là a bụm con chêm từ tối đến sáng lun<br>
 ;> chem chép từ lúc nhỏ đến lớn là có cha mẹ vs chồng sờ thôi<br>
 ;> nào đi chơi vs nhau đi ròi ngủ chung đi tính tiếp e<br>
-;> khả năng giờ mua đc nhẫn bạc cho e thôi, ko thì a đổi job khác may ra
+;> khả năng giờ mua đc nhẫn bạc cho e thôi, ko thì a đổi job khác may ra<br>
+;> e có cọng dây chuyền đó xỏ nhẫn bạc đeo
