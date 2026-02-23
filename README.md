@@ -10,4 +10,5 @@
 ;> e ngừa bệnh tình dục chưa<br>
 ;> nói chắc e nghe e sướng chem chép đang ướt<br>
 ;> ở vs a là nhìu khi chem chép ko bao giờ khô đc<br>
-;> hôn môi ròi bú liếm từ cặp dú xuống con chêm
+;> hôn môi ròi bú liếm từ cặp dú xuống con chêm<br>
+;> làm tình chảy nước là chuyện bth e
