@@ -7,4 +7,5 @@
 ;> bận thoải mái dễ mò mẫm tuột ra là đc e<br>
 ;> nửa a móc chem chép vs cạo lông cho nhe e<br>
 ;> có vợ phải để vợ sướng chứ ai để nằm ko hén e<br>
-;> e ngừa bệnh tình dục chưa
+;> e ngừa bệnh tình dục chưa<br>
+;> nói chắc e nghe e sướng chem chép đang ướt
