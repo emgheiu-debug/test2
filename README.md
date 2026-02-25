@@ -4,4 +4,5 @@
 ;> dính mí hơi khó chịu xíu, mốt đi cắt e<br>
 ;> e iu a hơm<br>
 ;> nào mình quyết định có con, ở chung đi a cạo lông chem chép cho<br>
-;> có bùn ngủ, ngủ trước đi e
+;> có bùn ngủ, ngủ trước đi e<br>
+;> ngủ vợ, ngủ ngon e
