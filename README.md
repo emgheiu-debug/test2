@@ -1,2 +1,3 @@
 ;> a nhô e<br>
-;> a ngủ quên xíu
+;> a ngủ quên xíu<br>
+;> nay ngày vía thần tài e có mua phân vàng nào hem
