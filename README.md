@@ -6,4 +6,5 @@
 ;> dòng cũ thì remake làm lại bán ý mà e<br>
 ;> game này game sinh tồn kinh dị mà e ko phải game tình cảm đâu<br>
 ;> làm game tình cảm yêu đương bán ai mà mua e =)))<br>
-;> ngày nào a iu của e cũng bùn ngủ hết á
+;> ngày nào a iu của e cũng bùn ngủ hết á<br>
+;> ngủ ngon e, a ngủ à
