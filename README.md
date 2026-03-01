@@ -8,4 +8,5 @@
 ;> vải ổn mà nhìn sến sến sao á e =))<br>
 ;> mấy nay vợ iu có nungff hem e<br>
 ;> a lúc nào cũng vô chùa xin việc làm khác hết chứ làm chỗ này nghèo chết<br>
-;> cơm nước gì chưa e
+;> cơm nước gì chưa e<br>
+;> rửa bím gì chưa e, làm tình hem e
