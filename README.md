@@ -11,4 +11,5 @@
 ;> cơm nước gì chưa e<br>
 ;> rửa bím gì chưa e, làm tình hem e<br>
 ;> mấy nay có nungdf hem e, gặp a đi làm về a cơm nước xong a ngủ là hem chịu đc<br>
-;> nếu mà e có bầu thì e nhìn xuống là e đâu thấy đc con chem chép của e đâu, vì bụng to che lại mà
+;> nếu mà e có bầu thì e nhìn xuống là e đâu thấy đc con chem chép của e đâu, vì bụng to che lại mà<br>
+;> ngủ ngon vợ
