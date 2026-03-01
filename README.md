@@ -6,4 +6,4 @@
 ;> nay chủ nhật e làm gì e<br>
 ;> bữa mua áo tết ý e, có cái áo hình hoa màu trắng ý e, bận vô sến súa thật<br>
 ;> vải ổn mà nhìn sến sến sao á e =))<br>
-;> 
+;> mấy nay vợ iu có nungff hem e
