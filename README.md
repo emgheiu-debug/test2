@@ -7,4 +7,5 @@
 ;> bữa mua áo tết ý e, có cái áo hình hoa màu trắng ý e, bận vô sến súa thật<br>
 ;> vải ổn mà nhìn sến sến sao á e =))<br>
 ;> mấy nay vợ iu có nungff hem e<br>
-;> a lúc nào cũng vô chùa xin việc làm khác hết chứ làm chỗ này nghèo chết
+;> a lúc nào cũng vô chùa xin việc làm khác hết chứ làm chỗ này nghèo chết<br>
+;> cơm nước gì chưa e
