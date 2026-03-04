@@ -6,4 +6,5 @@
 ;> ráng làm ít tháng kiếm việc khác thôi e<br>
 ;> vì tiền hoy e<br>
 ;> tính a làm mà ko vừa ý cái gì là muốn nghỉ liền<br>
-;> 
+;> éo biết sao ngta bói a kiếm nhìu tiền vào năm sau đc, khi làm ko vừa ý là muốn nghỉ =))<br>
+;>
