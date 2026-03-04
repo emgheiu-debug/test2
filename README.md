@@ -9,4 +9,5 @@
 ;> éo biết sao ngta bói a kiếm nhìu tiền vào năm sau đc, khi làm ko vừa ý là muốn nghỉ =))<br>
 ;> cho e đợi quài lun<br>
 ;> ko giúp đc gì a mà đừng bàn lùi chuyện của a<br>
-;> chuyện a, a làm gì kệ a, chưa ở chung mả e
+;> chuyện a, a làm gì kệ a, chưa ở chung mả e<br>
+;> ngủ đi vợ, a ngủ à
