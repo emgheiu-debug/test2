@@ -9,4 +9,8 @@
 ;> đúng là mỗi cty thì mỗi màu mỗi vẻ<br>
 ;> cty nỳ style nhân viên mới phải thế lọ thế chai vs nhân viên cũ<br>
 ;> ôi ròi nào là ví như nhà có 5 con dâu thì con dâu mới sẽ đc dể ý hơn 5 con dâu cũ =))), đi làm mà ví như làm dâu<br>
-;> =))), ròi hỏi khi nào lập gia đình, soi mói vl
+;> =))), ròi hỏi khi nào lập gia đình, soi mói vl<br>
+;> thành ra là cứ rảnh a đi chùa miết, éo biết có linh ko, xin van dái làm chỗ khác, quá mệt lồn =))<br>
+;> a đi làm thì a ko thích ngta soi mói hỏi chuyện riêng tư mình đâu nếu mà ko thân<br>
+;> con người sống phải tinh tế xíu<br>
+;> như e tuyển nhân viên mới hay gặp đối tác ròi hỏi chuyện riêng tư e chịu ko, ròi chê e này nọ bắt e sửa cho vừa ý ngta chịu ko
