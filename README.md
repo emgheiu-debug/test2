@@ -13,4 +13,5 @@
 ;> thành ra là cứ rảnh a đi chùa miết, éo biết có linh ko, xin van dái làm chỗ khác, quá mệt lồn =))<br>
 ;> a đi làm thì a ko thích ngta soi mói hỏi chuyện riêng tư mình đâu nếu mà ko thân<br>
 ;> con người sống phải tinh tế xíu<br>
-;> như e tuyển nhân viên mới hay gặp đối tác ròi hỏi chuyện riêng tư e chịu ko, ròi chê e này nọ bắt e sửa cho vừa ý ngta chịu ko
+;> như e tuyển nhân viên mới hay gặp đối tác ròi hỏi chuyện riêng tư e chịu ko, ròi chê e này nọ bắt e sửa cho vừa ý ngta chịu ko<br>
+;> nhìu khi a nghĩ là a sinh ra đéo phải để đi làm, làm chỗ nào thấy cũng ko vừa ý
