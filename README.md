@@ -5,4 +5,5 @@
 ;> mấy nay có nungf hem e<br>
 ;> nửa ngủ chung a nhen, ko làm gì cũng ngủ chung<br>
 ;> chắc nửa e hơi lớn tuổi mà muốn có con thì chắc đứa thôi e<br>
-;> 8/3 vui vẻ nhe e, quen gần thì e đèo đi chơi mời bữa tối
+;> 8/3 vui vẻ nhe e, quen gần thì e đèo đi chơi mời bữa tối<br>
+;> khuya ròi ngủ e, a bùn ngủ quá, quen giờ này ngủ ròi e
