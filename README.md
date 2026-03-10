@@ -10,4 +10,5 @@
 ;> mấy năm nó trầy quá thay 1 lần thì đc e<br>
 ;> thay kính xong nhìn sáng hẳn <br>
 ;> tối có vợ ngủ chung thì ngon quá<br>
-;> iu xa lâu quá vợ có bùn hem
+;> iu xa lâu quá vợ có bùn hem<br>
+;> a bùn ngủ quá vợ ơi, a ngủ à e, ngủ ngon e
