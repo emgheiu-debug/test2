@@ -7,4 +7,5 @@
 ;> e gõ số 0339022623 là ra số zalo a mà<br>
 ;> lâu lâu e nhắn "e nungfd quá chồng iu ơi" =))) ngoài giờ làm giờ nghỉ trưa nhe e, nhìu khi đang làm nó nổi lên cũng kì<br>
 ;> có vợ tối về phụ nhau làm việc nhà, cơm nước tối ngủ chung thế là xong e<br>
-;> bùn ngủ quá e
+;> bùn ngủ quá e<br>
+;> ngủ đi vợ, mắt a mở hết lên r
