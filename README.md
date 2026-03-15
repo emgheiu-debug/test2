@@ -15,4 +15,5 @@
 ;> uống thuốc vô giờ bùn ngủ ròi e<br>
 ;> qua nay uống 4 liều r e<br>
 ;> a tắm rửa đánh răng ròi để ngủ quên cũng ko sao<br>
-;> vợ a có coi phim heo thường hem
+;> vợ a có coi phim heo thường hem<br>
+;> ngủ đi vợ a bùn ngủ quá r e
