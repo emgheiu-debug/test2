@@ -10,4 +10,5 @@
 ;> e có xài nước rửa chim hem<br>
 ;> nhớ a hem, e đợi duyên gặp a à<br>
 ;> bth rảnh e làm gì e, chủ nhật vợ có làm gì hem e<br>
-;> cơm nước đi vợ xíu ròi nhắn a, giờ ăn tối vừa ròi e
+;> cơm nước đi vợ xíu ròi nhắn a, giờ ăn tối vừa ròi e<br>
+;> tắm rửa gì chưa e
