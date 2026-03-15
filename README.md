@@ -5,4 +5,5 @@
 ;> chiều nhắn nhe e<br>
 ;> trưa e ăn gì e<br>
 ;> trưa a ăn cháo gà<br>
-;> mấy nay có nungdf hem e
+;> mấy nay có nungdf hem e<br>
+;> bóp dú cái e
