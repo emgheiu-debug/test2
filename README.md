@@ -6,4 +6,5 @@
 ;> trưa e ăn gì e<br>
 ;> trưa a ăn cháo gà<br>
 ;> mấy nay có nungdf hem e<br>
-;> bóp dú cái e
+;> bóp dú cái e<br>
+;> e có xài nước rửa chim hem
