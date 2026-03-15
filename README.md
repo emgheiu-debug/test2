@@ -7,4 +7,5 @@
 ;> trưa a ăn cháo gà<br>
 ;> mấy nay có nungdf hem e<br>
 ;> bóp dú cái e<br>
-;> e có xài nước rửa chim hem
+;> e có xài nước rửa chim hem<br>
+;> nhớ a hem, e đợi duyên gặp a à
