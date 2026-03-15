@@ -13,4 +13,5 @@
 ;> cơm nước đi vợ xíu ròi nhắn a, giờ ăn tối vừa ròi e<br>
 ;> tắm rửa gì chưa e<br>
 ;> uống thuốc vô giờ bùn ngủ ròi e<br>
-;> qua nay uống 4 liều r e
+;> qua nay uống 4 liều r e<br>
+;> a tắm rửa đánh răng ròi để ngủ quên cũng ko sao
