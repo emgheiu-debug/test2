@@ -14,4 +14,5 @@
 ;> tắm rửa gì chưa e<br>
 ;> uống thuốc vô giờ bùn ngủ ròi e<br>
 ;> qua nay uống 4 liều r e<br>
-;> a tắm rửa đánh răng ròi để ngủ quên cũng ko sao
+;> a tắm rửa đánh răng ròi để ngủ quên cũng ko sao<br>
+;> vợ a có coi phim heo thường hem
