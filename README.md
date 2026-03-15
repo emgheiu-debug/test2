@@ -8,4 +8,5 @@
 ;> mấy nay có nungdf hem e<br>
 ;> bóp dú cái e<br>
 ;> e có xài nước rửa chim hem<br>
-;> nhớ a hem, e đợi duyên gặp a à
+;> nhớ a hem, e đợi duyên gặp a à<br>
+;> bth rảnh e làm gì e, chủ nhật vợ có làm gì hem e
