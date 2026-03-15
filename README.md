@@ -3,4 +3,6 @@
 ;> tối qua ngủ quên e<br>
 ;> còn cảm mà đỡ xíu<br>
 ;> chiều nhắn nhe e<br>
-;> trưa e ăn gì e
+;> trưa e ăn gì e<br>
+;> trưa a ăn cháo gà<br>
+;> mấy nay có nungdf hem e
