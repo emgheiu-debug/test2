@@ -1,3 +1,4 @@
 ;> a nhô vợ<br>
 ;> a mới ăn tối về<br>
-;> e nửa ngủ chung a nhe hem
+;> e nửa ngủ chung a nhe hem<br>
+;> để a tắm rửa ròi a nhắn nhe e, xíu sợ ngủ quên
