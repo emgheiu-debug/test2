@@ -16,4 +16,5 @@
 ;> đời làm có tiền ăn uống sung sướng đi chơi du lịch mua sắm vật chất nó sướng<br>
 ;> kiếp người vs a z là đủ =))<br>
 ;> mấy đứa xạo lồn trên mạng đéo làm đc con cẹt gì cho mình còn lảm nhảm mệt lồn =)))<br>
-;> 
+;> đời người đàn bà khi có gia đình là gì e biết hong<br>
+;> đa phần là sống vì chồng vì con giống con yến giò heo đó e<br>
