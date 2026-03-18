@@ -23,4 +23,4 @@
 ;> nó nghèo z chứ nó chi tiền chạy quảng cáo cờ bạc nữa e, chắc vài chục =)))<br>
 ;> chồng e hiền lành đi làm chỉ về nhà ko cờ bạc chỉ la cà quán xá, ăn xài xíu thôi =)))<br>
 ;> e đi tắm biển e muốn bận bikini là e phải cạo lông bướm<br>
-;>
+;> người e biết gì nhìu lông nhất hem e, chem chép e
