@@ -8,4 +8,5 @@
 ;> e đi tắm biển e muốn bận bikini là e phải cạo lông bướm<br>
 ;> người e biết gì nhìu lông nhất hem e, chem chép e<br>
 ;> a giờ sửa soạn tắm rửa đánh răng ròi ngủ quên cũng hong sao, a nằm a hay ngủ quên lắm e<br>
-;> thích làm vợ a hơm e
+;> thích làm vợ a hơm e<br>
+;> ngủ đi nhe e, coi séc ít thôi e
