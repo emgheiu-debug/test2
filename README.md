@@ -10,4 +10,5 @@
 ;> mình dở thì ngta khinh mà mình giỏi thì ngta ghét thôi e<br>
 ;> giờ lừa đảo dữ lắm<br>
 ;> xưa mình dỡ mình chơi vs mấy đứa dở sau này mình khá nó nghĩ là mình may mắn hơn nó thôi, nó ganh ghét ganh tị<br>
-;> tốt nhất là ko nên chơi hoặc nghe lời những đứa hay ganh ghét vs mình e ạ vì nó chỉ muốn kéo mình xuống
+;> tốt nhất là ko nên chơi hoặc nghe lời những đứa hay ganh ghét vs mình e ạ vì nó chỉ muốn kéo mình xuống<br>
+;> đi làm mình giỏi hơn ng khác ngta cũng ghét mình đời là z mà e
