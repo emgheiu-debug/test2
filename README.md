@@ -1,4 +1,2 @@
 ;> a nhô e<br>
-;> nay nhắn muộn xíu nhe e<br>
-;> ý là giờ nhắn là muộn ròi ý e<br>
-;> a skinecare chuẩn bị đi ngủ ròi e
+;> mới tập gym về e, tập chân là chính thôi e hơn nửa tiếng à =))) 15k, theo tháng 300k
