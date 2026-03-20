@@ -7,4 +7,5 @@
 ;> ngày 20/3 còn hơn 25k e, may nay a ko đổ xăng =)))<br>
 ;> a tập gym ngày nghỉ ngày tập tháng 15kx15ngày=225k chứ nhiu e, đóng full tháng 300k lỗ<br>
 ;> a skinecare, đánh răng ròi e có ngủ quên cũng hem sao<br>
-;>  xíu thấy im im là biết a ngủ ròi đó nhe e, nằm cái ngủ lun á e
+;>  xíu thấy im im là biết a ngủ ròi đó nhe e, nằm cái ngủ lun á e<br>
+;> vợ a tập ngủ sớm đi dể mốt ngủ vs a, ngủ 1 lượt lun
