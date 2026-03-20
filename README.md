@@ -6,4 +6,5 @@
 <img width="1240" height="959" alt="image" src="https://github.com/user-attachments/assets/82a74e15-dd92-4e1d-ac6d-6d7352519d65" /><br>
 ;> ngày 20/3 còn hơn 25k e, may nay a ko đổ xăng =)))<br>
 ;> a tập gym ngày nghỉ ngày tập tháng 15kx15ngày=225k chứ nhiu e, đóng full tháng 300k lỗ<br>
-;> a skinecare, đánh răng ròi e có ngủ quên cũng hem sao
+;> a skinecare, đánh răng ròi e có ngủ quên cũng hem sao<br>
+;>  xíu thấy im im là biết a ngủ ròi đó nhe e, nằm cái ngủ lun á e
