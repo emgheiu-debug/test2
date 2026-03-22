@@ -13,4 +13,7 @@
 ;> chứ ngồi nhìu sợ bệnh mỡ nhìu e, tập lấy cơ là phải tập nặng rinh tạ, tập vai chân bụng các kiểu<br>
 ;> tập nặng kìa mới lên cơ đc e<br>
 ;> nào ngủ chung e nhắn zalo cái book lịch ngủ chung liền e, chắc có tiền đi du lịch 2-3 ngày kìa mới ngủ chung đc<br>
-;> 
+;> a mới học đc cách làm sườn chiên ăn cũng đc =)))<br>
+;> có dịp thì a nấu cho ăn, này phải ăn vs rau chắc cho đỡ ngán ròi e<br>
+;> xà lách trộn vs sốt giấm ăn chua chua cũng đc =))) mà a ko biết làm<br>
+;> a thấy siêu thị có bán sốt sẵn mà ăn ko biết ngon hem
