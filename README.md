@@ -5,4 +5,5 @@
 ;> cơm nước gì chưa e<br>
 ;> cơm nước rửa bím gì chưa e<br>
 <img width="646" height="729" alt="image" src="https://github.com/user-attachments/assets/145bc89c-3f55-4716-9c03-5ec8fabe34e2" /><br>
-;> e ngực to bận áo dây này hợp
+;> e ngực to bận áo dây này hợp<br>
+;> cần gì bận váy hở bím e, ngày nào cũng hở bím là chet lun
