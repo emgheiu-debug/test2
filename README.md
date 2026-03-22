@@ -10,4 +10,7 @@
 =)) tập gym qq gì a tính đâu a chạy có 1km à, còn a đạp nhiu a éo biết<br>
 ;> cả tiếng đồng hồ chứ ko ít đâu e, xài máy rung bụng nửa mà thấy bảo máy rung chỉ massage thư giản thôi chứ ko có tác dụng gì cả =)))<br>
 ;> tập hong có quen mới tập dễ mệt thôi e<br>
-;> chứ ngồi nhìu sợ bệnh mỡ nhìu e, tập lấy cơ là phải tập nặng rinh tạ, tập vai chân bụng các kiểu
+;> chứ ngồi nhìu sợ bệnh mỡ nhìu e, tập lấy cơ là phải tập nặng rinh tạ, tập vai chân bụng các kiểu<br>
+;> tập nặng kìa mới lên cơ đc e<br>
+;> nào ngủ chung e nhắn zalo cái book lịch ngủ chung liền e, chắc có tiền đi du lịch 2-3 ngày kìa mới ngủ chung đc<br>
+;> 
