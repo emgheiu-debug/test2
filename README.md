@@ -6,4 +6,5 @@
 ;> cơm nước rửa bím gì chưa e<br>
 <img width="646" height="729" alt="image" src="https://github.com/user-attachments/assets/145bc89c-3f55-4716-9c03-5ec8fabe34e2" /><br>
 ;> e ngực to bận áo dây này hợp<br>
-;> cần gì bận váy hở bím e, ngày nào cũng hở bím là chet lun
+;> cần gì bận váy hở bím e, ngày nào cũng hở bím là chet lun<br>
+=)) tập gym qq gì a tính đâu a chạy có 1km à, còn a đạp nhiu a éo biết
