@@ -17,4 +17,5 @@
 ;> có dịp thì a nấu cho ăn, này phải ăn vs rau chắc cho đỡ ngán ròi e<br>
 ;> xà lách trộn vs sốt giấm ăn chua chua cũng đc =))) mà a ko biết làm<br>
 ;> a thấy siêu thị có bán sốt sẵn mà ăn ko biết ngon hem<br>
-;> e hay coi séc lắm chứ gì răm mà
+;> e hay coi séc lắm chứ gì răm mà<br>
+;> khuya ròi ngủ đi e mai nhắn tiếp nhe e
