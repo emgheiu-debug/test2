@@ -8,4 +8,6 @@
 ;> e ngực to bận áo dây này hợp<br>
 ;> cần gì bận váy hở bím e, ngày nào cũng hở bím là chet lun<br>
 =)) tập gym qq gì a tính đâu a chạy có 1km à, còn a đạp nhiu a éo biết<br>
-;> cả tiếng đồng hồ chứ ko ít đâu e, xài máy rung bụng nửa mà thấy bảo máy rung chỉ massage thư giản thôi chứ ko có tác dụng gì cả =)))
+;> cả tiếng đồng hồ chứ ko ít đâu e, xài máy rung bụng nửa mà thấy bảo máy rung chỉ massage thư giản thôi chứ ko có tác dụng gì cả =)))<br>
+;> tập hong có quen mới tập dễ mệt thôi e<br>
+;> chứ ngồi nhìu sợ bệnh mỡ nhìu e, tập lấy cơ là phải tập nặng rinh tạ, tập vai chân bụng các kiểu
