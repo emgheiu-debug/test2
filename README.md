@@ -3,4 +3,5 @@
 ;> mốt a mua cái áo khác mới đi mua offline thì nổ địa chỉ cho e nhìn a 1 cái, mua online thì thôi<br>
 ;> a thích cái áo khoác đo lâu ròi mà cũng ko cần lắm nên ko mua<br>
 ;> mua về cũng treo trong tủ thôi nên thôi<br>
-;> làm nhìu tiền a mới thích đi chơi
+;> làm nhìu tiền a mới thích đi chơi<br>
+;> mà mua cho ròi chắc mốt a mua online
