@@ -9,4 +9,6 @@
 ;> đặc biệt là đổi việc, đổi cty =)))<br>
 ;> mua quần áo đắt tiền mà thu nhập bèo bọt thì mặc nó uổng<br>
 ;> làm 50 củ thì bận đồ xịn xài đồ xịn thì đc<br>
-;> vàng xuống kìa e, có tiền mua ít chỉ để dành đi e, coi nó có xuống nữa hem e
+;> vàng xuống kìa e, có tiền mua ít chỉ để dành đi e, coi nó có xuống nữa hem e<br>
+;> a tự thấy mình nghèo vs thu nhập bèo bọt lun , thì có sao a thấy z thôi<br>
+;> khi mà e làm lương thấp đi mà e vẫn hài lòng vs mức đó cứ nghĩ đi làm tích lũy ròi sẽ có sau này có gia đình sẽ như con yến giò heo
