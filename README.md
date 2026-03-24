@@ -8,4 +8,5 @@
 ;> mua điện thoại thì chắc từ từ mua cũng đc, a nhìu thứ muốn đổi lắm<br>
 ;> đặc biệt là đổi việc, đổi cty =)))<br>
 ;> mua quần áo đắt tiền mà thu nhập bèo bọt thì mặc nó uổng<br>
-;> 
+;> làm 50 củ thì bận đồ xịn xài đồ xịn thì đc<br>
+;> vàng xuống kìa e, có tiền mua ít chỉ để dành đi e, coi nó có xuống nữa hem e
