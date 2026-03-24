@@ -7,4 +7,5 @@
 ;> mà mua cho ròi chắc mốt a mua online<br>
 ;> mua điện thoại thì chắc từ từ mua cũng đc, a nhìu thứ muốn đổi lắm<br>
 ;> đặc biệt là đổi việc, đổi cty =)))<br>
+;> mua quần áo đắt tiền mà thu nhập bèo bọt thì mặc nó uổng<br>
 ;> 
