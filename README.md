@@ -12,4 +12,5 @@
 ;> vàng xuống kìa e, có tiền mua ít chỉ để dành đi e, coi nó có xuống nữa hem e<br>
 ;> a tự thấy mình nghèo vs thu nhập bèo bọt lun , thì có sao a thấy z thôi<br>
 ;> khi mà e làm lương thấp đi mà e vẫn hài lòng vs mức đó cứ nghĩ đi làm tích lũy ròi sẽ có sau này có gia đình sẽ như con yến giò heo<br>
-;> đi làm mà cứ chăm chăm tiết kiệm là đau cái đầu lắm e, theo a thì phải cải thiện thu nhập của mình để chi tiêu thoải mái hơn
+;> đi làm mà cứ chăm chăm tiết kiệm là đau cái đầu lắm e, theo a thì phải cải thiện thu nhập của mình để chi tiêu thoải mái hơn<br>
+;> những người mà nói là làm nhìu hơn thì hơn thì là những người tư duy hạn hẹp
