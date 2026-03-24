@@ -19,4 +19,5 @@
 ;> còn 1 đứa làm 20 củ thì nó chỉ ở nhà xài đồ rẻ tiền hơn e mà 1 tháng nó vẫn dư 10 củ như e<br>
 ;> mặc dù là e vs nó mỗi người đều dư như nhau 10 củ như mà e đc xài đồ cao cấp, đc hưởng thụ còn đứa kia thì ko<br>
 =))) hỉu ý a nói ở đây hem<br>
-;> đâu phải ai làm nhìu cũng xài nhìu đâu, họ còn biết xài đúng chỗ nên dư lại càng nhìu
+;> đâu phải ai làm nhìu cũng xài nhìu đâu, họ còn biết xài đúng chỗ nên dư lại càng nhìu<br>
+;> nửa cho a iu ngủ chung nhen e
