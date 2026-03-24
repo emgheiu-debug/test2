@@ -13,4 +13,8 @@
 ;> a tự thấy mình nghèo vs thu nhập bèo bọt lun , thì có sao a thấy z thôi<br>
 ;> khi mà e làm lương thấp đi mà e vẫn hài lòng vs mức đó cứ nghĩ đi làm tích lũy ròi sẽ có sau này có gia đình sẽ như con yến giò heo<br>
 ;> đi làm mà cứ chăm chăm tiết kiệm là đau cái đầu lắm e, theo a thì phải cải thiện thu nhập của mình để chi tiêu thoải mái hơn<br>
-;> những người mà nói là làm nhìu hơn thì hơn thì là những người tư duy hạn hẹp
+;> những người mà nói là làm nhìu hơn thì hơn thì là những người tư duy hạn hẹp<br>
+;> a nói thật<br>
+;> giờ như e làm 1 tháng dư 50 củ đi thì e đi du lịch hết 15 củ, e mua mỹ phẩm hết 3 củ, e trả tiền chung cu hết 10 củ, e ăn hết 7 củ, e đi lại xăng xe hết 2 củ, e mua đồ vệ sinh cá nhân hết 3 củ, là 1 tháng e xài hết 40 củ đi, e dư 10 củ<br>
+;> còn 1 đứa làm 20 củ thì nó chỉ ở nhà xài đồ rẻ tiền hơn e mà 1 tháng nó vẫn dư 10 củ như e<br>
+;> mặc dù là e vs nó mỗi người đều dư như nhau 10 củ như mà e đc xài đồ cao cấp, đc hưởng thụ còn đứa kia thì ko
