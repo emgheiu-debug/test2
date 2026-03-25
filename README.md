@@ -11,4 +11,4 @@
 ;> mới ra trường làm nhiu xài nhiu chứ giờ xài như ăn mày z e<br>
 ;> sau này để dành mua vàng, mua tài sản tích lũy e<br>
 ;> đi làm 1 thời gian thấy kiếm tiền khó tự động ít ăn xài liền à e<br>
-;>
+;> nằm xíu cái ngủ quên à e, khổ quá
