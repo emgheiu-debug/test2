@@ -5,4 +5,5 @@
 <img width="640" height="874" alt="image" src="https://github.com/user-attachments/assets/06175c3f-320a-497b-a091-f06db42bc72b" /><br>
 ;> a định mua áo màu này<br>
 ;> mua màu tối dễ mặc e<br>
-;> chốt cái màu đã ròi đặt e 2 cái áo 1củ3, áo kia áo thun
+;> chốt cái màu đã ròi đặt e 2 cái áo 1củ3, áo kia áo thun<br>
+;> có tiền nhìu thì mua cái khác hoặc để dành thôi e
