@@ -6,4 +6,5 @@
 ;> a định mua áo màu này<br>
 ;> mua màu tối dễ mặc e<br>
 ;> chốt cái màu đã ròi đặt e 2 cái áo 1củ3, áo kia áo thun<br>
-;> có tiền nhìu thì mua cái khác hoặc để dành thôi e
+;> có tiền nhìu thì mua cái khác hoặc để dành thôi e<br>
+;> ít bữa nữa mua chai sửa sữa mặt, mua 1 chai hơn 300k xài hơn nửa năm lận e vì a lười rửa ngày rửa 1 lần à
