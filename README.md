@@ -9,4 +9,6 @@
 ;> có tiền nhìu thì mua cái khác hoặc để dành thôi e<br>
 ;> ít bữa nữa mua chai sửa sữa mặt, mua 1 chai hơn 300k xài hơn nửa năm lận e vì a lười rửa ngày rửa 1 lần à<br>
 ;> mới ra trường làm nhiu xài nhiu chứ giờ xài như ăn mày z e<br>
-;> sau này để dành mua vàng, mua tài sản tích lũy e
+;> sau này để dành mua vàng, mua tài sản tích lũy e<br>
+;> đi làm 1 thời gian thấy kiếm tiền khó tự động ít ăn xài liền à e<br>
+;'>
