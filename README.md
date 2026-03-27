@@ -22,4 +22,6 @@
 ;> còn áo khoác thì bán đi bán lại nhiu mẫu đó có khi ra mẫu mới<br>
 ;> ít khi nào shop này nó giảm giá lắm e, có giảm thì giảm mấy cái áo bán chậm kiểu xấu, màu ít ai mua<br>
 ;> a mới đổi dầu gội đầu giảm ngứa đầu hẳn<br>
-;> a đi nắng nhìu dễ đen lắm, nên là mốt kiếm kem chống nắng xài nữa 
+;> a đi nắng nhìu dễ đen lắm, nên là mốt kiếm kem chống nắng xài nữa <br>
+;> mai còn nhức giò nhức tay là nghỉ tập gym thôi e<br>
+;> hết nhức là tập lại
