@@ -8,4 +8,6 @@
 ;> ở chung thỉnh thoảng làm tình tí nhe e<br>
 ;> e thích bận quần hở chêm hở ti thì tùy e<br>
 <img width="1016" height="1068" alt="image" src="https://github.com/user-attachments/assets/7b86b517-5b90-4077-b6aa-22fe4668df28" /><br>
-;> a mua cái áo khoác vs cái áo thun này
+;> a mua cái áo khoác vs cái áo thun này<br>
+;> màu trắng thì đẹp hơn màu xám hén e, mà nó dễ dơ lắm, nên a mua màu xám<br>
+;> 
