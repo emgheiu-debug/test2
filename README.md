@@ -13,4 +13,6 @@
 ;> mua thì lâu lâu mặc đi chơi cũng đc e, tại nó cũng hơi mắc<br>
 ;> a mua đồ a quan trọng vải, chất liệu là 9 thôi e<br>
 ;> kiểu dáng cũng 1 phần nữa<br>
-;> mới thử thấy cũng đẹp e
+;> mới thử thấy cũng đẹp e<br>
+;> <img width="857" height="1166" alt="image" src="https://github.com/user-attachments/assets/7ef74618-4fd9-4b76-98b6-72bff207a6e1" /><br>
+;> a thấy áo này cũng đẹp, mà a để dành tiền nên ko mua
