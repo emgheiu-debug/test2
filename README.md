@@ -21,4 +21,5 @@
 ;> áo thun thì bán có đợt e, tức là bán 1 thời ròi ra mẫu khác, kiểu khác chứ ko ra mẫu cũ bán lại<br>
 ;> còn áo khoác thì bán đi bán lại nhiu mẫu đó có khi ra mẫu mới<br>
 ;> ít khi nào shop này nó giảm giá lắm e, có giảm thì giảm mấy cái áo bán chậm kiểu xấu, màu ít ai mua<br>
-;>
+;> a mới đổi dầu gội đầu giảm ngứa đầu hẳn<br>
+;> 
