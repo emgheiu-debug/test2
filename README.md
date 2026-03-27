@@ -12,4 +12,5 @@
 ;> màu trắng thì đẹp hơn màu xám hén e, mà nó dễ dơ lắm, nên a mua màu xám<br>
 ;> mua thì lâu lâu mặc đi chơi cũng đc e, tại nó cũng hơi mắc<br>
 ;> a mua đồ a quan trọng vải, chất liệu là 9 thôi e<br>
-;> kiểu dáng cũng 1 phần nữa
+;> kiểu dáng cũng 1 phần nữa<br>
+;> mới thử thấy cũng đẹp e
