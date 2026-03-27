@@ -5,4 +5,5 @@
 ;> e răm quá<br>
 ;> áo ship về ròi e đẹp giống hình, mua offline thì mắc hơn xíu thì phải, a thấy mạc giá khác mà app giá khác<br>
 ;> cũng hong chênh lệch nhiu e<br>
-;> ở chung thỉnh thoảng làm tình tí nhe e
+;> ở chung thỉnh thoảng làm tình tí nhe e<br>
+;> e thích bận quần hở chêm hở ti thì tùy e
