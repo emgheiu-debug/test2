@@ -24,4 +24,5 @@
 ;> a mới đổi dầu gội đầu giảm ngứa đầu hẳn<br>
 ;> a đi nắng nhìu dễ đen lắm, nên là mốt kiếm kem chống nắng xài nữa <br>
 ;> mai còn nhức giò nhức tay là nghỉ tập gym thôi e<br>
-;> hết nhức là tập lại
+;> hết nhức là tập lại<br>
+;> khuya ròi ngủ đi vợ, mai nhắn tiếp nhe e ghệ iu, ngủ ngon e
