@@ -17,4 +17,8 @@
 ;> <img width="857" height="1166" alt="image" src="https://github.com/user-attachments/assets/7ef74618-4fd9-4b76-98b6-72bff207a6e1" /><br>
 ;> a thấy áo này cũng đẹp, mà a để dành tiền nên ko mua<br>
 ;> a giờ đánh răng skinecare hết ròi có ngủ quên cũng ko sao e<br>
-;> gần 400k 1 cái áo thun đó e
+;> gần 400k 1 cái áo thun đó e<br>
+;> áo thun thì bán có đợt e, tức là bán 1 thời ròi ra mẫu khác, kiểu khác chứ ko ra mẫu cũ bán lại<br>
+;> còn áo khoác thì bán đi bán lại nhiu mẫu đó có khi ra mẫu mới<br>
+;> ít khi nào shop này nó giảm giá lắm e, có giảm thì giảm mấy cái áo bán chậm kiểu xấu, màu ít ai mua<br>
+;>
