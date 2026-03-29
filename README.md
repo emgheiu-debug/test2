@@ -10,4 +10,5 @@
 ;> chạy nhìu để xăng thịt vs nâng sức bền xíu e<br>
 ;> mấy nay có nungfg hem e<br>
 ;> a chạy bộ giờ a đau khớp giò quá<br>
-;> nửa a ngủ chung vs mò con chêm e cho
+;> nửa a ngủ chung vs mò con chêm e cho<br>
+;> a tắm rửa đánh răng ròi a nhắn nhe e
