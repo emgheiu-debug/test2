@@ -11,4 +11,6 @@
 ;> mấy nay có nungfg hem e<br>
 ;> a chạy bộ giờ a đau khớp giò quá<br>
 ;> nửa a ngủ chung vs mò con chêm e cho<br>
-;> a tắm rửa đánh răng ròi a nhắn nhe e
+;> a tắm rửa đánh răng ròi a nhắn nhe e<br>
+;> ròi e, chắc vài bữa nữa coi hết nhức giò thì đi tập gym lại e<br>
+;> tập cái gì cũng phải từ từ 
