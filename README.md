@@ -7,4 +7,5 @@
 ;> cơm nước gì chưa e<br>
 ;> nay a chạy bộ gần 1 tiếng đồng hồ lun<br>
 ;> hơn 3.7km 1 xíu à e<br>
-;> chạy nhìu để xăng thịt vs nâng sức bền xíu e
+;> chạy nhìu để xăng thịt vs nâng sức bền xíu e<br>
+;> mấy nay có nungfg hem e
