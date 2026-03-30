@@ -4,4 +4,5 @@
 ;> qua phòng gym thấy ai cũng tập cái mình bắt chước theo<br>
 ;> tháng này làm banh chành hết gòi e, mua mỹ phẩm sắp hết gòi<br>
 ;> mốt hơn 12h a ngủ, thức khuya quá dậy ko nổi e<br>
-;> mới giờ a bùn ngủ quá vợ ơi
+;> mới giờ a bùn ngủ quá vợ ơi<br>
+;> ngủ đi vợ iu, a ngủ à, ngủ ngon e
