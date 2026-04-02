@@ -3,4 +3,6 @@
 ;> còn đau giò e<br>
 ;> mai tập thôi e<br>
 ;> cơm nước gì chưa e<br>
+;> tháng này banh hết tiền, mua đồ lặt vặt vs 500k mỹ phẩm hết tiền e<br>
+;> trám răng lấy tủy hết 500k<br>
 ;>
