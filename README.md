@@ -7,4 +7,5 @@
 ;> trám răng lấy tủy hết 500k<br>
 ;> mua 5 quần xì hết 210k e =)))<br>
 ;> mua quần xì rẻ mặc ko vừa ý a<br>
-;> a tắm rửa xíu a nhắn nhe e
+;> a tắm rửa xíu a nhắn nhe e<br>
+;> a iu vệ sinh cá nhân xong gòi chuẩn bị ngủ
