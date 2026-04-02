@@ -9,4 +9,5 @@
 ;> mua quần xì rẻ mặc ko vừa ý a<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
 ;> a iu vệ sinh cá nhân xong gòi chuẩn bị ngủ<br>
-;> sức kem sức ơ ròi e, có ngủ quên củng hem sao
+;> sức kem sức ơ ròi e, có ngủ quên củng hem sao<br>
+;> đâu vợ a gợi ý a loại kem nào chăm da tốt đi
