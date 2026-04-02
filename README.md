@@ -5,4 +5,4 @@
 ;> cơm nước gì chưa e<br>
 ;> tháng này banh hết tiền, mua đồ lặt vặt vs 500k mỹ phẩm hết tiền e<br>
 ;> trám răng lấy tủy hết 500k<br>
-;>
+;> mua 5 quần xì hết 210k e =)))
