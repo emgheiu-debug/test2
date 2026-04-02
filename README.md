@@ -8,4 +8,5 @@
 ;> mua 5 quần xì hết 210k e =)))<br>
 ;> mua quần xì rẻ mặc ko vừa ý a<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
-;> a iu vệ sinh cá nhân xong gòi chuẩn bị ngủ
+;> a iu vệ sinh cá nhân xong gòi chuẩn bị ngủ<br>
+;> sức kem sức ơ ròi e, có ngủ quên củng hem sao
