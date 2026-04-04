@@ -7,4 +7,7 @@
 ;> xíu a nhắn nhe e<br>
 <img width="800" height="840" alt="image" src="https://github.com/user-attachments/assets/a0822243-6313-49e5-b3a6-a0b2c2cc1f42" /><br>
 ;> quần xì bịp giá 500k e<br>
-;> nó bịp giá bán hơn 200k thôi
+;> nó bịp giá bán hơn 200k thôi<br>
+;><img width="775" height="851" alt="image" src="https://github.com/user-attachments/assets/357e5b46-1ef2-43e2-8eec-d10d00e674cf" /><br>
+;> 30k/1 cái thì a thấy hợp lý hơn<br>
+;> hãng này bán trong siêu thị nè e
