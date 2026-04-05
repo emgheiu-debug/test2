@@ -17,4 +17,4 @@
 ;> đi chơi vs a là a cho phép e để tay lên đùi ôm ấp nắm tay a<br>
 ;> cái giò a bớt đâu ròi e, chắc mai đi chạy bộ lại<br>
 ;> chắc chạy xe nghiêng xe chóng giò nên đau khóp gối thôi e<br>
-;> 
+;> xíu chắc cỡ 12h hơn hoặc 1h hơn a ngủ e
