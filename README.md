@@ -14,4 +14,5 @@
 ;> hổm rài bớt ăn còn hơn 49kg à e<br>
 ;> mới đi ăn về e<br>
 ;> xíu a tắm cái ròi tối nhắn tin e nhó<br>
-;> đi chơi vs a là a cho phép e để tay lên đùi ôm ấp nắm tay a
+;> đi chơi vs a là a cho phép e để tay lên đùi ôm ấp nắm tay a<br>
+;> cái giò a bớt đâu ròi e, chắc mai đi chạy bộ lại
