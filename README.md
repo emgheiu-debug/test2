@@ -10,4 +10,6 @@
 ;> mấy nay có nunfg lon hem e<br>
 ;> chiều mát mát tối tối a đi ăn<br>
 ;> năm tam tai cũng e sao e, năm nay e ổn hem vợ<br>
-;> cúng tam tai chưa e, ngta cúng tam tai đầu năm hay sao á e
+;> cúng tam tai chưa e, ngta cúng tam tai đầu năm hay sao á e<br>
+;> hổm rài bớt ăn còn hơn 49kg à e<br>
+;> mới đi ăn về e
