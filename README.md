@@ -7,4 +7,6 @@
 ;> a hay ăn ở quán a ăn oke, ăn bún đậu cũng tùy quán thôi e<br>
 ;> cty e tính lương sao là 1 tháng làm  đủ 22 ngày thì đủ lương à<br>
 ;> tháng 3 làm 23 ngày thì lấy 23/22* mức lương à e<br>
-;> mấy nay có nunfg lon hem e
+;> mấy nay có nunfg lon hem e<br>
+;> chiều mát mát tối tối a đi ăn<br>
+;>
