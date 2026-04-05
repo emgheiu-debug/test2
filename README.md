@@ -12,4 +12,5 @@
 ;> năm tam tai cũng e sao e, năm nay e ổn hem vợ<br>
 ;> cúng tam tai chưa e, ngta cúng tam tai đầu năm hay sao á e<br>
 ;> hổm rài bớt ăn còn hơn 49kg à e<br>
-;> mới đi ăn về e
+;> mới đi ăn về e<br>
+;> xíu a tắm cái ròi tối nhắn tin e nhó
