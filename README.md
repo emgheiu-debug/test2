@@ -13,4 +13,5 @@
 ;> cúng tam tai chưa e, ngta cúng tam tai đầu năm hay sao á e<br>
 ;> hổm rài bớt ăn còn hơn 49kg à e<br>
 ;> mới đi ăn về e<br>
-;> xíu a tắm cái ròi tối nhắn tin e nhó
+;> xíu a tắm cái ròi tối nhắn tin e nhó<br>
+;> đi chơi vs a là a cho phép e để tay lên đùi ôm ấp nắm tay a
