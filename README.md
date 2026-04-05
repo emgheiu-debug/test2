@@ -18,4 +18,7 @@
 ;> cái giò a bớt đâu ròi e, chắc mai đi chạy bộ lại<br>
 ;> chắc chạy xe nghiêng xe chóng giò nên đau khóp gối thôi e<br>
 ;> xíu chắc cỡ 12h hơn hoặc 1h hơn a ngủ e<br>
-;> a giảm ít kg là đẹp, ngày a ăn 2 cử hem hỉu sao lại lên kg
+;> a giảm ít kg là đẹp, ngày a ăn 2 cử hem hỉu sao lại lên kg<br>
+;> a skincare ròi xíu ròi a iu ngủ<br>
+;> ngủ muộn sáng dậy ko nổi mệt trong người thà bớt thời gian coi xàm lòn để ngủ <br>
+;> a thấy hem có gì hay hết có con game tai ương mới ra full, tí a coi xíu ròi ngủ 
