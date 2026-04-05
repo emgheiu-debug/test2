@@ -9,4 +9,5 @@
 ;> tháng 3 làm 23 ngày thì lấy 23/22* mức lương à e<br>
 ;> mấy nay có nunfg lon hem e<br>
 ;> chiều mát mát tối tối a đi ăn<br>
-;>
+;> năm tam tai cũng e sao e, năm nay e ổn hem vợ<br>
+;> cúng tam tai chưa e, ngta cúng tam tai đầu năm hay sao á e
