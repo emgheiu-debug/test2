@@ -1,26 +1,3 @@
 ;> a nhô vợ iu<br>
-;> chân a đỡ đau ròi e<br>
-;> chắc chạy xe chóng giò nhìu quá nên đau thôi<br>
-;> cơm nước gì chưa e<br>
-;> chiều nhắn nhe e<br>
-;> chiều tối a đi mua bún đậu ăn, mua nước đồ ăn về ăn<br>
-;> a hay ăn ở quán a ăn oke, ăn bún đậu cũng tùy quán thôi e<br>
-;> cty e tính lương sao là 1 tháng làm  đủ 22 ngày thì đủ lương à<br>
-;> tháng 3 làm 23 ngày thì lấy 23/22* mức lương à e<br>
-;> mấy nay có nunfg lon hem e<br>
-;> chiều mát mát tối tối a đi ăn<br>
-;> năm tam tai cũng e sao e, năm nay e ổn hem vợ<br>
-;> cúng tam tai chưa e, ngta cúng tam tai đầu năm hay sao á e<br>
-;> hổm rài bớt ăn còn hơn 49kg à e<br>
-;> mới đi ăn về e<br>
-;> xíu a tắm cái ròi tối nhắn tin e nhó<br>
-;> đi chơi vs a là a cho phép e để tay lên đùi ôm ấp nắm tay a<br>
-;> cái giò a bớt đâu ròi e, chắc mai đi chạy bộ lại<br>
-;> chắc chạy xe nghiêng xe chóng giò nên đau khóp gối thôi e<br>
-;> xíu chắc cỡ 12h hơn hoặc 1h hơn a ngủ e<br>
-;> a giảm ít kg là đẹp, ngày a ăn 2 cử hem hỉu sao lại lên kg<br>
-;> a skincare ròi xíu ròi a iu ngủ<br>
-;> ngủ muộn sáng dậy ko nổi mệt trong người thà bớt thời gian coi xàm lòn để ngủ <br>
-;> a thấy hem có gì hay hết có con game tai ương mới ra full, tí a coi xíu ròi ngủ <br>
-;> ngủ đi vợ iu<br>
-;> ngủ ngon nhe e
+;> nay giò a đỡ đau nhìu ròi e<br>
+;> e cơm nước rửa bím gì chưa
