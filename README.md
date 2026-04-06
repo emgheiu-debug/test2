@@ -6,4 +6,5 @@
 ;> e nửa học nấu a cho a ăn nhe e<br>
 ;> ăn tối ăn tầm hơn 7h là đc e<br>
 ;> chồng bùn ngủ quá mắt mở hết lên ròi e<br>
-;> nửa ngủ vs a nhen e
+;> nửa ngủ vs a nhen e<br>
+;> ngủ ngon nhe e, a bùn ngủ quá ròi e
