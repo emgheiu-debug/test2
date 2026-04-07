@@ -12,4 +12,6 @@
 ;> đi làm về gặp con vợ kiếm chuyện là chet lun<br>
 ;> a bùn ngủ ròi, chắc mốt hơn 12h a ngủ nhe e<br>
 ;> nhắn sớm chút đi<br>
-;> ngủ nhe e bùnngủ quá ròi e, ngủ ngon vợ
+;> ngủ nhe e bùnngủ quá ròi e, ngủ ngon vợ<br>
+;> bữa nào hem chạy bộ thì a nhắn sớm hơn nhe e<br>
+;> ngủ đi e 😘
