@@ -1,10 +1,3 @@
-;> a nhô vợ iu<br>
-;> nay giò a đỡ đau nhìu ròi e<br>
-;> e cơm nước rửa bím gì chưa<br>
-;> thời tiết dạo này nóng quá hén e<br>
-;> a bùn ngủ quá e ơi<br>
-;> e nửa học nấu a cho a ăn nhe e<br>
-;> ăn tối ăn tầm hơn 7h là đc e<br>
-;> chồng bùn ngủ quá mắt mở hết lên ròi e<br>
-;> nửa ngủ vs a nhen e<br>
-;> ngủ ngon nhe e, a bùn ngủ quá ròi e
+;> a nhô e<br>
+;> nay a mới chạy bộ lại, nghỉ 1 tuần chạy lại mệt vải<br>
+;> cơm nước gì chưa e
