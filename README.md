@@ -6,4 +6,6 @@
 ;> mấy nay a học code xíu thôi e, rảnh thì học thôi<br>
 ;> chạy bộ đc thì a chạy đều lại cho săn thịt xíu e, a quen thì tập nặng<br>
 ;> đọc xàm lòn ròi overthinking hả e<br>
-;> đã bảo ròi đời nó lọc lừa lắm bớt tin lại e
+;> đã bảo ròi đời nó lọc lừa lắm bớt tin lại e<br>
+;> nào giờ a có lên mạng lảm nhảm bao giờ đâu e<br>
+;> 
