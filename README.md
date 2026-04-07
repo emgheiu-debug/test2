@@ -10,4 +10,6 @@
 ;> nào giờ a có lên mạng lảm nhảm bao giờ đâu e<br>
 ;> kiếm tiền ko kiếm chuyện e<br>
 ;> đi làm về gặp con vợ kiếm chuyện là chet lun<br>
-;>
+;> a bùn ngủ ròi, chắc mốt hơn 12h a ngủ nhe e<br>
+;> nhắn sớm chút đi<br>
+;> 
