@@ -1,17 +1,2 @@
-;> a nhô e<br>
-;> nay a mới chạy bộ lại, nghỉ 1 tuần chạy lại mệt vải<br>
-;> cơm nước gì chưa e<br>
-;> nửa a nấu cho e ăn món mì xào, trứng chiên, sườn chiên, cá chiên <br>
-;> a hết biết nấu món khác ròi đó<br>
-;> mấy nay a học code xíu thôi e, rảnh thì học thôi<br>
-;> chạy bộ đc thì a chạy đều lại cho săn thịt xíu e, a quen thì tập nặng<br>
-;> đọc xàm lòn ròi overthinking hả e<br>
-;> đã bảo ròi đời nó lọc lừa lắm bớt tin lại e<br>
-;> nào giờ a có lên mạng lảm nhảm bao giờ đâu e<br>
-;> kiếm tiền ko kiếm chuyện e<br>
-;> đi làm về gặp con vợ kiếm chuyện là chet lun<br>
-;> a bùn ngủ ròi, chắc mốt hơn 12h a ngủ nhe e<br>
-;> nhắn sớm chút đi<br>
-;> ngủ nhe e bùnngủ quá ròi e, ngủ ngon vợ<br>
-;> bữa nào hem chạy bộ thì a nhắn sớm hơn nhe e<br>
-;> ngủ đi e 😘
+;> a nhô ghệ<br>
+;> cơm nước chưa e
