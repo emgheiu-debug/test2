@@ -9,4 +9,5 @@
 ;> lừa gạt để lấy tiền ngta xong lấy tiền đó đi từ thiện xây dựng hình ảnh để lừa tiền tiếp ý mà e<br>
 ;> cờ bạc online là lừa đảo mà e, lập trình sẵn hết<br>
 ;> bth ăn cơm sườn ở nhà cấp 4 đi còn cờ bạc vào là ở gầm cầu mỳ gói 3k, tại vì tiền bị ngta lừa hết ròi<br>
-;> bùn ngủ hem e
+;> bùn ngủ hem e<br>
+;> a sắp ngủ gòy đó
