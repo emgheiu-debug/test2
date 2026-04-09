@@ -10,4 +10,5 @@
 ;> cờ bạc online là lừa đảo mà e, lập trình sẵn hết<br>
 ;> bth ăn cơm sườn ở nhà cấp 4 đi còn cờ bạc vào là ở gầm cầu mỳ gói 3k, tại vì tiền bị ngta lừa hết ròi<br>
 ;> bùn ngủ hem e<br>
-;> a sắp ngủ gòy đó
+;> a sắp ngủ gòy đó<br>
+;> vợ iu ngủ ngon
