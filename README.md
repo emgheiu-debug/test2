@@ -6,4 +6,6 @@
 ;> a thấy trên mạng mấy trang web cờ bạc đi làm từ thiện =))), thấy bùn cười e<br>
 ;> bỏ ra tí tiền xây dựng hình ảnh ý mà e<br>
 =))) e thấy bùn cười hem, chứ a thấy nó mắc cười sao á<br>
-;> lừa gạt để lấy tiền ngta xong lấy tiền đó đi từ thiện xây dựng hình ảnh để lừa tiền tiếp ý mà e
+;> lừa gạt để lấy tiền ngta xong lấy tiền đó đi từ thiện xây dựng hình ảnh để lừa tiền tiếp ý mà e<br>
+;> cờ bạc online là lừa đảo mà e, lập trình sẵn hết<br>
+;> bth ăn cơm sườn ở nhà cấp 4 đi còn cờ bạc vào là ở gầm cầu mỳ gói 3k, tại vì tiền bị ngta lừa hết ròi
