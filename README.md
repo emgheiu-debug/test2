@@ -13,4 +13,7 @@
 ;> tính a là z<br>
 ;> ưu tiên đi làm là kiếm tiền thôi e<br>
 ;> ngày nào đi làm a cũng nghĩ tới tiền hết, nghèo hong tiền nó z e<br>
-;> còn tiền bạc dư giả thì a ko nghĩ tới tiền đâu sống thoải mái cho nhẹ đầu
+;> còn tiền bạc dư giả thì a ko nghĩ tới tiền đâu sống thoải mái cho nhẹ đầu<br>
+;> có  tiền mua món mình thích, thích gì có tiền mua liền là sướng thôi e<br>
+;> khuya ròi ngủ đi a, mắt a muốn híp lại gòi<br>
+;> ngủ ngon vợ iu
