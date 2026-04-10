@@ -11,4 +11,6 @@
 ;> a muốn đổi việc<br>
 ;> khi làm cv lương thấp thì a muốn đổi việc, đổi cty<br>
 ;> tính a là z<br>
-;> ưu tiên đi làm là kiếm tiền thôi e
+;> ưu tiên đi làm là kiếm tiền thôi e<br>
+;> ngày nào đi làm a cũng nghĩ tới tiền hết, nghèo hong tiền nó z e<br>
+;> còn tiền bạc dư giả thì a ko nghĩ tới tiền đâu sống thoải mái cho nhẹ đầu
