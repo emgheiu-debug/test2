@@ -9,4 +9,5 @@
 ;> xíu a nhắn cho nhe mà giờ a hơi bùn ngủ quá<br>
 ;> đợi a skinecare đánh răng xong a nhắn nhe e, ko a ngủ quên<br>
 ;> a muốn đổi việc<br>
-;> 
+;> khi làm cv lương thấp thì a muốn đổi việc, đổi cty<br>
+;> tính a là z
