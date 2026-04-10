@@ -7,4 +7,6 @@
 ;> chân a đỡ đau nhìu gòy e<br>
 ;> chắc duy trì tập cho body ngon, nữa trần truồng nhìn hấp dẫn<br>
 ;> xíu a nhắn cho nhe mà giờ a hơi bùn ngủ quá<br>
-;> đợi a skinecare đánh răng xong a nhắn nhe e, ko a ngủ quên
+;> đợi a skinecare đánh răng xong a nhắn nhe e, ko a ngủ quên<br>
+;> a muốn đổi việc<br>
+;> 
