@@ -10,4 +10,5 @@
 ;> đợi a skinecare đánh răng xong a nhắn nhe e, ko a ngủ quên<br>
 ;> a muốn đổi việc<br>
 ;> khi làm cv lương thấp thì a muốn đổi việc, đổi cty<br>
-;> tính a là z
+;> tính a là z<br>
+;> ưu tiên đi làm là kiếm tiền thôi e
