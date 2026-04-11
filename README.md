@@ -6,4 +6,4 @@
 ;> a đi tắm ròi nhắn nhe e<br>
 ;> mới tập còn mỡ lắm e ôi<br>
 ;> mới tập vài buổi tưởng mau z chứ e<br>
-;>
+;> a coi con game tai ương đã xíu a nhắn nhe e
