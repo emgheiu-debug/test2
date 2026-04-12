@@ -10,4 +10,6 @@
 ;> nay a uống trà<br>
 ;> bùn ngủ quá vợ ơi<br>
 ;> sáng thì a hay ăn bánh hỏi cháu lòng, mà ăn tiệm có mấy món ăn đi ăn lại ngán<br>
-;> tối hem có gì làm thì ngủ sớm đi e, ngủ 1 lượt vs a nè, nửa ngủ chung ko trái múi giờ e
+;> tối hem có gì làm thì ngủ sớm đi e, ngủ 1 lượt vs a nè, nửa ngủ chung ko trái múi giờ e<br>
+;> coi con game việt tai ương cũng hay e, tóm lại là ending nhân vật chính huy còn sống và có gia đình 2 con đang rửa chén làm ông bố tốt<br>
+;> 
