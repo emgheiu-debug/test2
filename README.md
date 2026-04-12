@@ -9,4 +9,5 @@
 ;> a tắm rửa xong ròi, tháng này a làm lại cái răng cũ nữa<br>
 ;> nay a uống trà<br>
 ;> bùn ngủ quá vợ ơi<br>
-;> sáng thì a hay ăn bánh hỏi cháu lòng, mà ăn tiệm có mấy món ăn đi ăn lại ngán
+;> sáng thì a hay ăn bánh hỏi cháu lòng, mà ăn tiệm có mấy món ăn đi ăn lại ngán<br>
+;> tối hem có gì làm thì ngủ sớm đi e, ngủ 1 lượt vs a nè, nửa ngủ chung ko trái múi giờ e
