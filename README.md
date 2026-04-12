@@ -7,4 +7,5 @@
 ;> mới tập còn mỡ lắm e ôi<br>
 ;> mới tập vài buổi tưởng mau z chứ e<br>
 ;> a coi con game tai ương đã xíu a nhắn nhe e<br>
-;> bùn ngủ quá e ơi
+;> bùn ngủ quá e ơi<br>
+;> tối a ngủ quên
