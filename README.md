@@ -6,4 +6,7 @@
 ;> a mới chạy bộ về e<br>
 ;> cơm nước gì chưa e<br>
 ;> mới coi xong con game tai ương cũng hay e<br>
-;> a tắm rửa xong ròi, tháng này a làm lại cái răng cũ nữa
+;> a tắm rửa xong ròi, tháng này a làm lại cái răng cũ nữa<br>
+;> nay a uống trà<br>
+;> bùn ngủ quá vợ ơi<br>
+;> sáng thì a hay ăn bánh hỏi cháu lòng, mà ăn tiệm có mấy món ăn đi ăn lại ngán
