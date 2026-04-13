@@ -6,4 +6,5 @@
 ;> gần chục năm vẫn nghèo vẫn lo chuyện bao đồng<br>
 ;> nhảm quài riết a cũng kệ mẹ nó ko quan tâm<br>
 ;> chồng đi tắm cái nhắn sau nhe e<br>
-;> gòi a tắm rửa gòi
+;> gòi a tắm rửa gòi<br>
+;> a bùn ngủ ròi e
