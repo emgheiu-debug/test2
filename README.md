@@ -5,4 +5,5 @@
 ;> con yến giò heo a ghét nó lảm nhảm gần chục năm ròi e, nhảm quài ko chán<br>
 ;> gần chục năm vẫn nghèo vẫn lo chuyện bao đồng<br>
 ;> nhảm quài riết a cũng kệ mẹ nó ko quan tâm<br>
-;> chồng đi tắm cái nhắn sau nhe e
+;> chồng đi tắm cái nhắn sau nhe e<br>
+;> gòi a tắm rửa gòi
