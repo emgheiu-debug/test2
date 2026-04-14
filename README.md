@@ -3,4 +3,6 @@
 ;> ngủ z còn bùn ngủ nè e<br>
 ;> a ngủ là a ngủ sang ngày hôm sau lun bth z, mà nay z<br>
 ;> nay lười chạy bộ quá a ko chạy, mai chạy<br>
-;> a tắm xíu a nhắn nhe e
+;> a tắm xíu a nhắn nhe e<br>
+;> mấy nay có nungf lon hem e<br>
+;> 
