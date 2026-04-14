@@ -1,4 +1,6 @@
 ;> a nhô e<br>
 ;> a bùn ngủ quá ngủ quên mất e<br>
 ;> ngủ z còn bùn ngủ nè e<br>
-;> a ngủ là a ngủ sang ngày hôm sau lun bth z, mà nay z
+;> a ngủ là a ngủ sang ngày hôm sau lun bth z, mà nay z<br>
+;> nay lười chạy bộ quá a ko chạy, mai chạy<br>
+;> a tắm xíu a nhắn nhe e
