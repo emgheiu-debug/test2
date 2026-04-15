@@ -5,4 +5,6 @@
 ;> ít tháng nữa hẹn ngủ chung chịu hem, cỡ sau tháng 6<br>
 ;> hết tháng 6 ý e, dự định của a là z<br>
 ;> a cũng dự định vs e mấy lần mà bị bể kèo đó, a nói z cũng đừng hi vọng nhìu nhe e<br>
-;> a dự định nếu suông sẻ thôi
+;> a dự định nếu suông sẻ thôi<br>
+;> suông sẻ nữa thì gặp sớm hơn tùy thôi e, a định lên con nhỏ bạn đại học chơi chút<br>
+;> a bùn ngủ quá ngủ nhe e, bye e
