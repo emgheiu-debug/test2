@@ -5,4 +5,5 @@
 ;> làm có ăn ẻ cớt bậy thôi e<br>
 ;> làm vs tâm thế đuổi thì nghỉ =))<br>
 ;> nay a đéo đc vui<br>
-;> nay bùn quá a ngủ muộn
+;> nay bùn quá a ngủ muộn<br>
+;> ngủ đi vợ, ngủ ngon e
