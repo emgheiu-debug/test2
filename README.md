@@ -4,4 +4,5 @@
 ;> lương chán quá nghĩ mà sợ làm chỗ mới thì cực<br>
 ;> làm có ăn ẻ cớt bậy thôi e<br>
 ;> làm vs tâm thế đuổi thì nghỉ =))<br>
-;> nay a đéo đc vui
+;> nay a đéo đc vui<br>
+;> nay bùn quá a ngủ muộn
