@@ -7,4 +7,7 @@
 ;> chạy ít mà có chạy là đc e, đc khúc nào đỡ khúc đó<br>
 ;> chắc 3-4 tháng mới thấy gọn đc chút quá, thôi kệ thôi e<br>
 ;> có tiền đi cắt mí mắt lại cho đều nữa e, đủ thứ tiền<br>
-;> a bị cảm hay nhảy mũi ròi mí nó dính thành 2 mí lun
+;> a bị cảm hay nhảy mũi ròi mí nó dính thành 2 mí lun<br>
+;> nhìn kỹ thì nó ko đều tại nó đâu phải mí mắt tự nhiên cha sinh mẹ đẻ<br>
+;> làm chắc 20 củ<br>
+;> dự trù, dạo này a bớt cảm nhảy mũi ròi
