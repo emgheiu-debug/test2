@@ -13,4 +13,5 @@
 ;> dự trù, dạo này a bớt cảm nhảy mũi ròi<br>
 ;> a uống marcha cảm thấy bớt ngứa mũi hơn nên là ngày nào cũng uống, chứ uống cái khác là bị ngứa mũi<br>
 ;> giờ ít khi nào uống thuốc cảm lắm e<br>
-;> tùy chỗ có chỗ matcha dỏm dở ngon cũng tùy thôi e
+;> tùy chỗ có chỗ matcha dỏm dở ngon cũng tùy thôi e<br>
+;> ngủ nhe e, nay a ngủ sớm có gì mai nhắn
