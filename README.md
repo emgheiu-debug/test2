@@ -10,4 +10,5 @@
 ;> a bị cảm hay nhảy mũi ròi mí nó dính thành 2 mí lun<br>
 ;> nhìn kỹ thì nó ko đều tại nó đâu phải mí mắt tự nhiên cha sinh mẹ đẻ<br>
 ;> làm chắc 20 củ<br>
-;> dự trù, dạo này a bớt cảm nhảy mũi ròi
+;> dự trù, dạo này a bớt cảm nhảy mũi ròi<br>
+;> a uống marcha cảm thấy bớt ngứa mũi hơn nên là ngày nào cũng uống, chứ uống cái khác là bị ngứa mũi
