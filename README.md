@@ -11,4 +11,6 @@
 ;> nhìn kỹ thì nó ko đều tại nó đâu phải mí mắt tự nhiên cha sinh mẹ đẻ<br>
 ;> làm chắc 20 củ<br>
 ;> dự trù, dạo này a bớt cảm nhảy mũi ròi<br>
-;> a uống marcha cảm thấy bớt ngứa mũi hơn nên là ngày nào cũng uống, chứ uống cái khác là bị ngứa mũi
+;> a uống marcha cảm thấy bớt ngứa mũi hơn nên là ngày nào cũng uống, chứ uống cái khác là bị ngứa mũi<br>
+;> giờ ít khi nào uống thuốc cảm lắm e<br>
+;> tùy chỗ có chỗ matcha dỏm dở ngon cũng tùy thôi e
