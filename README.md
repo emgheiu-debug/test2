@@ -9,4 +9,5 @@
 ;> a đâu có định làm lâu dài đâu mà để ngta giữ lương mình mệt lắm, ghét cực<br>
 ;> nói chung là a nghèo e ạ<br>
 ;> nay lười chạy quá e, đang bực mình ko chạy nổi<br>
-;> a mới mua hộp sò huyết xào me, ăn cũng ngon, a đi tắm xíu ròi nhắn nhe e
+;> a mới mua hộp sò huyết xào me, ăn cũng ngon, a đi tắm xíu ròi nhắn nhe e<br>
+;> đi làm có 2 ngày vui là ngày nghỉ và ngày lãnh lương còn a mệt nhất là ngày lãnh lương, toàn gắn mác ứng tiền bùn vui
