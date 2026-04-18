@@ -13,4 +13,5 @@
 ;> đi làm có 2 ngày vui là ngày nghỉ và ngày lãnh lương còn a mệt nhất là ngày lãnh lương, toàn gắn mác ứng tiền bùn vui<br>
 ;> a mới dọn đc cái phòng<br>
 ;> a tắm rửa skinecare ròi, mai đi chạy bộ<br>
-;> e chắc hay nungfd lắm chứ giề
+;> e chắc hay nungfd lắm chứ giề<br>
+;> tuần làm tình vài lần nhen r
