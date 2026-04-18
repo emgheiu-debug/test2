@@ -15,4 +15,5 @@
 ;> a tắm rửa skinecare ròi, mai đi chạy bộ<br>
 ;> e chắc hay nungfd lắm chứ giề<br>
 ;> tuần làm tình vài lần nhen e<br>
-;> nhìn môi ngang của e ròi nửa nhìn môi dọc 
+;> nhìn môi ngang của e ròi nửa nhìn môi dọc <br>
+;> nào giờ a chưa mơ làm tình vs ai mà ra nước như e cả
