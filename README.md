@@ -7,4 +7,5 @@
 ;> tiền bạc ko rõ ràng lèng nhèng là ko thích ròi e<br>
 ;> cty lồn<br>
 ;> a đâu có định làm lâu dài đâu mà để ngta giữ lương mình mệt lắm, ghét cực<br>
-;> nói chung là a nghèo e ạ
+;> nói chung là a nghèo e ạ<br>
+;> nay lười chạy quá e, đang bực mình ko chạy nổi
