@@ -1,4 +1,7 @@
 ;> a nhô e<br>
 ;> mún nghỉ cty hiện tại quá, mà phải tìm việc mới, ròi mới nghĩ đc e<br>
 ;> làm mà tiền bạc lếch quá lếch, ứng tiền thì mặt nhăn nhúm bùn vui <br>
-;> ứng tiền mới trả lương thì nợ lương 2-3 lun nếu để dai
+;> ứng tiền mới trả lương thì nợ lương 2-3 lun nếu để dai<br>
+;> vô chỗ nghèo mạc ròi e<br>
+;> éo trả tiền nhân viên xong lấy tiền đó quay vốn<br>
+;> tiền bạc ko rõ ràng lèng nhèng là ko thích ròi e
