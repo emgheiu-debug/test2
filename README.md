@@ -1,17 +1,2 @@
 ;> a nhô e<br>
-;> thức khuya quá sáng dậy bùn ngủ e<br>
-;> cơm nước gì chưa e<br>
-;> bùn ngủ quá e<br>
-;> dạo này e sống tốt chứ e<br>
-;> mới giờ mà chồng bùn ngủ quá, mai chắc đi chạy bộ, chứ nay lười vs bùn ngủ ròi e<br>
-;> chạy ít mà có chạy là đc e, đc khúc nào đỡ khúc đó<br>
-;> chắc 3-4 tháng mới thấy gọn đc chút quá, thôi kệ thôi e<br>
-;> có tiền đi cắt mí mắt lại cho đều nữa e, đủ thứ tiền<br>
-;> a bị cảm hay nhảy mũi ròi mí nó dính thành 2 mí lun<br>
-;> nhìn kỹ thì nó ko đều tại nó đâu phải mí mắt tự nhiên cha sinh mẹ đẻ<br>
-;> làm chắc 20 củ<br>
-;> dự trù, dạo này a bớt cảm nhảy mũi ròi<br>
-;> a uống marcha cảm thấy bớt ngứa mũi hơn nên là ngày nào cũng uống, chứ uống cái khác là bị ngứa mũi<br>
-;> giờ ít khi nào uống thuốc cảm lắm e<br>
-;> tùy chỗ có chỗ matcha dỏm dở ngon cũng tùy thôi e<br>
-;> ngủ nhe e, nay a ngủ sớm có gì mai nhắn
+;> mún nghỉ cty hiện tại quá, mà phải tìm việc mới, ròi mới nghĩ đc e
