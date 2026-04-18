@@ -4,4 +4,5 @@
 ;> ứng tiền mới trả lương thì nợ lương 2-3 lun nếu để dai<br>
 ;> vô chỗ nghèo mạc ròi e<br>
 ;> éo trả tiền nhân viên xong lấy tiền đó quay vốn<br>
-;> tiền bạc ko rõ ràng lèng nhèng là ko thích ròi e
+;> tiền bạc ko rõ ràng lèng nhèng là ko thích ròi e<br>
+;> cty lồn
