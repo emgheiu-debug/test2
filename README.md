@@ -25,4 +25,6 @@
 ;> cty này mạc rẹp lun e, đeo theo làm lâu dài chỉ có nghèo, có cơm ăn thôi<br>
 ;> đi chùa xin cũng tầm 1-3 tháng nữa e, coi xăm nó z<br>
 ;> nghe mùi bịp quá e, làm chỗ hiện tại thì ko thể nào có tiền như lời bà thầy bói nói ròi e<br>
-;> éo thể lun
+;> éo thể lun<br>
+;> nói z thôi a bùn ngủ quá, nhìu khi giờ a ngủ lun<br>
+;> a nhận ra là éo có tiền thì cuộc sống éo vui nổi
