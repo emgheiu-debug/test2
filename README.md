@@ -14,4 +14,5 @@
 ;> a mới dọn đc cái phòng<br>
 ;> a tắm rửa skinecare ròi, mai đi chạy bộ<br>
 ;> e chắc hay nungfd lắm chứ giề<br>
-;> tuần làm tình vài lần nhen r
+;> tuần làm tình vài lần nhen e<br>
+;> nhìn môi ngang của e ròi nửa nhìn môi dọc 
