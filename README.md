@@ -27,4 +27,5 @@
 ;> nghe mùi bịp quá e, làm chỗ hiện tại thì ko thể nào có tiền như lời bà thầy bói nói ròi e<br>
 ;> éo thể lun<br>
 ;> nói z thôi a bùn ngủ quá, nhìu khi giờ a ngủ lun<br>
-;> a nhận ra là éo có tiền thì cuộc sống éo vui nổi
+;> a nhận ra là éo có tiền thì cuộc sống éo vui nổi<br>
+;> ngủ e, ngủ ngon, a bùn ngủ quá ròi
