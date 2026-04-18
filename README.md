@@ -17,4 +17,12 @@
 ;> tuần làm tình vài lần nhen e<br>
 ;> nhìn môi ngang của e ròi nửa nhìn môi dọc <br>
 ;> nào giờ a chưa mơ làm tình vs ai mà ra nước như e cả<br>
-;> 1 giờ ngủ nhe e, cỡ đó
+;> 1 giờ ngủ nhe e, cỡ đó<br>
+;> cỡ cỡ giờ đó ngủ bớt thức khuya lại, a đi chùa xin chỗ làm mới chứ chỗ hiện tại lếch vs bèo quá<br>
+;> tiền bạc ko rõ ràng, ngắt nhéo tiền bạc là ko khoái ròi<br>
+;> đéo hỉu sao nghĩ ra trò giam lương 300k lại nữa =)))<br>
+;> lương đã thấp éo đủ xài thì chớ<br>
+;> cty này mạc rẹp lun e, đeo theo làm lâu dài chỉ có nghèo, có cơm ăn thôi<br>
+;> đi chùa xin cũng tầm 1-3 tháng nữa e, coi xăm nó z<br>
+;> nghe mùi bịp quá e, làm chỗ hiện tại thì ko thể nào có tiền như lời bà thầy bói nói ròi e<br>
+;> éo thể lun
