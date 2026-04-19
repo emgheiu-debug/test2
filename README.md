@@ -1,1 +1,3 @@
-;> a nhô e, a mới chạy bộ về
+;> a nhô e, a mới chạy bộ về<br>
+;> chiều chạy đi chơi, hay ngồi code<br>
+;> chiều a đi làm lại răng cũ, xong đi mua đồ ăn
