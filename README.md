@@ -1,9 +1,2 @@
-;> a nhô e, a mới chạy bộ về<br>
-;> chiều chạy đi chơi, hay ngồi code<br>
-;> chiều a đi làm lại răng cũ, xong đi mua đồ ăn<br>
-;> chiều a đi làm răng ròi a ăn ốc lun, chắc tối khỏi ăn nữa e<br>
-;> tuần a làm 6 ngày lận e<br>
-;> làm lại cái răng cũ hơn 10 năm ròi e<br>
-;> có 2 cái à e<br>
-;> tháng sau hết tốn tiền ròi đỡ nghèo, nay mua 1 kg hàu ăn thử, ngán tới tận óc lun e<br>
-;> bùn ngủ quá e, a ngủ nhe vợ
+;> a nhô vợ<br>
+;> cơm nước tắm rửa gì chưa e
