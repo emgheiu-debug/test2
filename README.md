@@ -6,4 +6,5 @@
 ;> quen cũng đc 2 năm ròi, năm sau nữa là 3<br>
 ;> quen chịu khó tí là bền thôi e<br>
 ;> chúc sinh nhật a chưa e<br>
-;> mới giờ a bùn ngủ quá e
+;> mới giờ a bùn ngủ quá e<br>
+;> nay a ngủ sớm nha vợ, a bùn ngủ quá ròi
