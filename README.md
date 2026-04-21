@@ -7,4 +7,6 @@
 ;> quen chịu khó tí là bền thôi e<br>
 ;> chúc sinh nhật a chưa e<br>
 ;> mới giờ a bùn ngủ quá e<br>
-;> nay a ngủ sớm nha vợ, a bùn ngủ quá ròi
+;> nay a ngủ sớm nha vợ, a bùn ngủ quá ròi<br>
+;> a iu ngủ nhe e, mai nhắn<br>
+;> a bùn ngủ ròi e
