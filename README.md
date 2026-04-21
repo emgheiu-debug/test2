@@ -4,4 +4,6 @@
 ;> kỉ niệm 3 năm quen nhau<br>
 ;> khui hàng nhau ra e<br>
 ;> quen cũng đc 2 năm ròi, năm sau nữa là 3<br>
-;> quen chịu khó tí là bền thôi e
+;> quen chịu khó tí là bền thôi e<br>
+;> chúc sinh nhật a chưa e<br>
+;> mới giờ a bùn ngủ quá e
