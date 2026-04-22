@@ -5,4 +5,5 @@
 ;> mới đây quen đc 2 năm ròi e, cũng lâu chứ mau gì e<br>
 ;> lớn ròi làm tiết kiệm chút nhe e, tích lũy tài sản khi cần có mà dùng<br>
 ;> chắc a tranh thủ nhắn sớm chứ bùn ngủ quá e<br>
-;> ghệ a răm quá
+;> ghệ a răm quá<br>
+;> bóp dú cái coi e
