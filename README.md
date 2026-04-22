@@ -6,4 +6,5 @@
 ;> lớn ròi làm tiết kiệm chút nhe e, tích lũy tài sản khi cần có mà dùng<br>
 ;> chắc a tranh thủ nhắn sớm chứ bùn ngủ quá e<br>
 ;> ghệ a răm quá<br>
-;> bóp dú cái coi e
+;> bóp dú cái coi e<br>
+;> a iu ngủ nhen e, ngủ ngon
