@@ -18,4 +18,6 @@
 ;> tần suất phù hợp vui vẻ sướng là đc ròi e<br>
 ;> ko stress công việc tiền bạc làm làm tình nhìu z thôi e<br>
 ;> e hay nungfd z ngủ chung bắt e nhịn, ăn chay sao e chịu đc<br>
-;> quen e là xác định ko làm cho sướng ít cũng sướng nhìu ròi
+;> quen e là xác định ko làm cho sướng ít cũng sướng nhìu ròi<br>
+;> đi đâu mua đồ ăn là hỏi e có ăn gì chưa, mua cho e 1 phần<br>
+;> a đi chùa xin coi sắp đổi việc mới trong 1-2 tháng nữa coi có trúng hem e, trúng 1 phát ha a làm 1 tháng có tiền mua trái cây bánh trái trả lễ liền
