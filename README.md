@@ -22,4 +22,7 @@
 ;> đi đâu mua đồ ăn là hỏi e có ăn gì chưa, mua cho e 1 phần<br>
 ;> a đi chùa xin coi sắp đổi việc mới trong 1-2 tháng nữa coi có trúng hem e, trúng 1 phát ha a làm 1 tháng có tiền mua trái cây bánh trái trả lễ liền<br>
 ;> giờ cho e làm 7-8 triệu thì cho dù e có tiết kiệm cỡ nào cũng éo giàu, chỉ dư nhìu chút ròi mua sắm này kia thôi<br>
-;> mua trả góp xe ô tô, đt, ghế massage, xe máy, laptop thôi chứ góp xong cũng 60 tuổi ròi =)))
+;> mua trả góp xe ô tô, đt, ghế massage, xe máy, laptop thôi chứ góp xong cũng 60 tuổi ròi =)))<br>
+;> ròi mua sắm gì là phải suy nghĩ so sánh chắc bóp còn nhức đầu hơn nữa e<br>
+;> ròi 1 ngày sài nhiu sáng 15k nước + bánh mì 25k + xăng 10k đi làm + khẩu trang 2k + ăn trưa 35k + ăn vặt 50k + ....+ tiền nước 100k + tiền phòng 100k/ngày + ....<br>
+;> tính 1 ngày nhiu đó thôi là nhức óc liền
