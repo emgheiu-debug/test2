@@ -27,4 +27,6 @@
 ;> ròi 1 ngày sài nhiu sáng 15k nước + bánh mì 25k + xăng 10k đi làm + khẩu trang 2k + ăn trưa 35k + ăn vặt 50k + ....+ tiền nước 100k + tiền phòng 100k/ngày + ....<br>
 ;> tính 1 ngày nhiu đó thôi là nhức óc liền<br>
 ;> 1 ngày xài nhiu đừng nghĩ tới là ko nhức óc thôi e<br>
-;> 
+;> thà mình kiếm nhìu hơn để xài thoải mái hơn đúng ko e<br>
+;> xài hợp lý là đc<br>
+;> khuya ròi ngủ đi vợ mai chồng nhắn nhen e
