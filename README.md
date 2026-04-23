@@ -14,4 +14,5 @@
 ;> iu lâu xác định lâu dài thì mò lòn, bóp dú, làm tình, móc chem chép vs a bth e<br>
 ;> a quen ghệ có ai răm như e đâu mà mò móc<br>
 ;> iu nhau là phải làm nhau thỏa mãn làm nhau vui quan điểm của a z<br>
-;> quen mà e nungf a ko xã giúp e đc thì quen cũng đâu vui vẻ gì đúng hem
+;> quen mà e nungf a ko xã giúp e đc thì quen cũng đâu vui vẻ gì đúng hem<br>
+;> tần suất phù hợp vui vẻ sướng là đc ròi e
