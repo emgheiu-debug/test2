@@ -20,4 +20,6 @@
 ;> e hay nungfd z ngủ chung bắt e nhịn, ăn chay sao e chịu đc<br>
 ;> quen e là xác định ko làm cho sướng ít cũng sướng nhìu ròi<br>
 ;> đi đâu mua đồ ăn là hỏi e có ăn gì chưa, mua cho e 1 phần<br>
-;> a đi chùa xin coi sắp đổi việc mới trong 1-2 tháng nữa coi có trúng hem e, trúng 1 phát ha a làm 1 tháng có tiền mua trái cây bánh trái trả lễ liền
+;> a đi chùa xin coi sắp đổi việc mới trong 1-2 tháng nữa coi có trúng hem e, trúng 1 phát ha a làm 1 tháng có tiền mua trái cây bánh trái trả lễ liền<br>
+;> giờ cho e làm 7-8 triệu thì cho dù e có tiết kiệm cỡ nào cũng éo giàu, chỉ dư nhìu chút ròi mua sắm này kia thôi<br>
+;> mua trả góp xe ô tô, đt, ghế massage, xe máy, laptop thôi chứ góp xong cũng 60 tuổi ròi =)))
