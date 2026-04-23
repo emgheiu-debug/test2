@@ -11,4 +11,5 @@
 ;> khi nào trần truồng ngủ vs nhau e, a móc lavabo cho tối khỏi tự móc nữa e<br>
 ;> làm tình thường chắc hàng họ nhau xem kĩ ròi e, nửa a soi con bướm e dữ lắm nè<br>
 ;> tối nào e nungfd quá mà a lại bùn ngủ thì a thudam cho e ròi ngủ<br>
-;> iu lâu xác định lâu dài thì mò lòn, bóp dú, làm tình, móc chem chép vs a bth e
+;> iu lâu xác định lâu dài thì mò lòn, bóp dú, làm tình, móc chem chép vs a bth e<br>
+;> a quen ghệ có ai răm như e đâu mà mò móc
