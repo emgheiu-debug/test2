@@ -16,4 +16,6 @@
 ;> iu nhau là phải làm nhau thỏa mãn làm nhau vui quan điểm của a z<br>
 ;> quen mà e nungf a ko xã giúp e đc thì quen cũng đâu vui vẻ gì đúng hem<br>
 ;> tần suất phù hợp vui vẻ sướng là đc ròi e<br>
-;> ko stress công việc tiền bạc làm làm tình nhìu z thôi e
+;> ko stress công việc tiền bạc làm làm tình nhìu z thôi e<br>
+;> e hay nungfd z ngủ chung bắt e nhịn, ăn chay sao e chịu đc<br>
+;> quen e là xác định ko làm cho sướng ít cũng sướng nhìu ròi
