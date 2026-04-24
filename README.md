@@ -6,4 +6,5 @@
 ;> tháng này a làm chắc dư đc xíu<br>
 ;> kệ có còn hơn ko e, khi cần có dùng vẫn hơn<br>
 ;> để ý bắt đáy vàng mua vài chỉ coi sao e<br>
-;> có miếng tài sản lận lưng vẫn hơn e à
+;> có miếng tài sản lận lưng vẫn hơn e à<br>
+;> vàng đang xuống á e
