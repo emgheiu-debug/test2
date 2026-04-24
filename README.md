@@ -8,4 +8,5 @@
 ;> để ý bắt đáy vàng mua vài chỉ coi sao e<br>
 ;> có miếng tài sản lận lưng vẫn hơn e à<br>
 ;> vàng đang xuống á e<br>
-;> có bùn ngủ ngủ đi vợ, mai a nhắn nhe e
+;> có bùn ngủ ngủ đi vợ, mai a nhắn nhe e<br>
+;> tập ngủ sớm hơn 1h là cùng đi e, ít nhất là trong thời gian này, tại a hay ngủ khoảng khoảng giờ đó
