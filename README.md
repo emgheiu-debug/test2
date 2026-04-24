@@ -5,4 +5,4 @@
 ;> xíu a nhắn nhe e, lubu xíu<br>
 ;> tháng này a làm chắc dư đc xíu<br>
 ;> kệ có còn hơn ko e, khi cần có dùng vẫn hơn<br>
-;> 
+;> để ý bắt đáy vàng mua vài chỉ coi sao e
