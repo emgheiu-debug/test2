@@ -10,4 +10,6 @@
 ;> nào đi chơi vs a hay ở vs a thì lễ đương nhiên có quà ròi e<br>
 =)) giá trị quà tùy tâm, theo túi tiền của e<br>
 ;> nghèo thì mua quà theo nghèo còn có tiền mua theo kiểu có tiền z thôi e<br>
-;> làm 1 tháng dư đc 2-3 củ mua gì e, láo làm chó lun
+;> làm 1 tháng dư đc 2-3 củ mua gì e, láo làm chó lun<br>
+;> có tháng éo dư lun, a muốn làm chỗ khác<br>
+;> có chỗ nhìu tiền làm ngon là a mua quà bánh trả lễ liền tại a hay đi chùa xin chỗ làm mới =))
