@@ -9,4 +9,5 @@
 ;> chồng e gầy xíu nữa đẹp hơi tròn gòi, sáng dậy sớm ăn tô cháu lòng chạy bộ nửa là đẹp<br>
 ;> nào đi chơi vs a hay ở vs a thì lễ đương nhiên có quà ròi e<br>
 =)) giá trị quà tùy tâm, theo túi tiền của e<br>
-;> nghèo thì mua quà theo nghèo còn có tiền mua theo kiểu có tiền z thôi e
+;> nghèo thì mua quà theo nghèo còn có tiền mua theo kiểu có tiền z thôi e<br>
+;> làm 1 tháng dư đc 2-3 củ mua gì e, láo làm chó lun
