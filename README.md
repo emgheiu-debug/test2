@@ -4,4 +4,5 @@
 ;> mới đặt mua chai kem nữa hết 700k e<br>
 ;> làm thì éo có bao nhiu mà xài thì mau<br>
 ;> a đi tắm cái xíu a nhắn nhe e<br>
-;> a tắm rửa skincare xong ròi e
+;> a tắm rửa skincare xong ròi e<br>
+;> da mặt ko trắng nhưng ít nhất cũng ko đen, ko mụn, ko sẹo z với a ổn ròi e<br>
