@@ -8,4 +8,5 @@
 ;> năm tam tai ròi có cúng gì chưa e<br>
 ;> kệ mịa lỡ phá sản thì thôi hả e<br>
 ;> a đâu biết cỡ tay e để mua nhận hay cỡ mông e để mua quần lót đâu e<br>
-;> quen là phải biết kích thước nhau nha e, dú e thì size max ci mum
+;> quen là phải biết kích thước nhau nha e, dú e thì size max ci mumbr<>
+;> có con gái sẽ đặt tên là nyc a =)))
