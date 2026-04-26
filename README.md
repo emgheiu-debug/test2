@@ -5,4 +5,5 @@
 ;> a lubu xíu a nhắn nhe vợ<br>
 ;> e mún có con phải để dành vài trăm triệu chứ e, để làm ivf thụ tinh tinh trùng nước ngoài<br>
 ;> nói để e chuẩn bị tâm lý trước<br>
-;> 
+;> năm tam tai ròi có cúng gì chưa e<br>
+;> kệ mịa lỡ phá sản thì thôi hả e
