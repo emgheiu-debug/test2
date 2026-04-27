@@ -12,4 +12,5 @@
 ;> có tiền đi cắt mí lun e, tự nhiên 1 mí thành 2 mí, mà có 2 mí real éo đâu mí mắt nó cứ dính dính khó chịu<br>
 ;> có tiền làm thì sợ đau =)), ko tiền làm thì chán =))<br>
 ;> hơi khó chìu<br>
-;> làm 2 cái răng ăn ngon hẳn lun e
+;> làm 2 cái răng ăn ngon hẳn lun e<br>
+;> kiếp người đúng khổ
