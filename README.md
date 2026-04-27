@@ -7,4 +7,6 @@
 ;> 1 tháng làm có miếng tiền chán quá e<br>
 ;> a đi tắm skinecare đã ko lát ngủ quên<br>
 ;> e mún có 2-3 đứa con thì kinh tế phải tốt để có tiền nuôi đã<br>
-;> ko kiếm đc nhìu tiền thì mình phải học cách tiết kiệm thôi e
+;> ko kiếm đc nhìu tiền thì mình phải học cách tiết kiệm thôi e<br>
+;> mới skinecare xong ròi e, chai kem mụn tưởng hết ai nhèn còn xài lộn chai sắp hết<br>
+;>
