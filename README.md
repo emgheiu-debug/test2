@@ -5,4 +5,5 @@
 ;> tối nằm ôm nhau, a bóp dú bóp đít miếng<br>
 ;> nghĩ thấy đã thấy quá đã =))<br>
 ;> 1 tháng làm có miếng tiền chán quá e<br>
-;> a đi tắm skinecare đã ko lát ngủ quên
+;> a đi tắm skinecare đã ko lát ngủ quên<br>
+;> e mún có 2-3 đứa con thì kinh tế phải tốt để có tiền nuôi đã
