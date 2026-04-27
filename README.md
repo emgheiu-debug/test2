@@ -9,4 +9,6 @@
 ;> e mún có 2-3 đứa con thì kinh tế phải tốt để có tiền nuôi đã<br>
 ;> ko kiếm đc nhìu tiền thì mình phải học cách tiết kiệm thôi e<br>
 ;> mới skinecare xong ròi e, chai kem mụn tưởng hết ai nhèn còn xài lộn chai sắp hết<br>
-;>
+;> có tiền đi cắt mí lun e, tự nhiên 1 mí thành 2 mí, mà có 2 mí real éo đâu mí mắt nó cứ dính dính khó chịu<br>
+;> có tiền làm thì sợ đau =)), ko tiền làm thì chán =))<br>
+;> hơi khó chìu
