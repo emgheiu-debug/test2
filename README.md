@@ -13,4 +13,5 @@
 ;> có tiền làm thì sợ đau =)), ko tiền làm thì chán =))<br>
 ;> hơi khó chìu<br>
 ;> làm 2 cái răng ăn ngon hẳn lun e<br>
-;> kiếp người đúng khổ
+;> kiếp người đúng khổ<br>
+;> mua mỹ phẩm mắc tiền z chứ xài vài tháng mới hết e, đâu phải món nào cũng mắc đâu
