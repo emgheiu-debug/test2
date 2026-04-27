@@ -6,4 +6,5 @@
 ;> nghĩ thấy đã thấy quá đã =))<br>
 ;> 1 tháng làm có miếng tiền chán quá e<br>
 ;> a đi tắm skinecare đã ko lát ngủ quên<br>
-;> e mún có 2-3 đứa con thì kinh tế phải tốt để có tiền nuôi đã
+;> e mún có 2-3 đứa con thì kinh tế phải tốt để có tiền nuôi đã<br>
+;> ko kiếm đc nhìu tiền thì mình phải học cách tiết kiệm thôi e
