@@ -10,4 +10,5 @@
 ;> éo nuôi ai mà làm thấy nghèo ròi<br>
 ;> để hết tháng 6 coi sao nhe e<br>
 ;> nói chung thì e quen a thì có lo thì e chỉ lo a thôi chứ e ko cần phải lo cha mẹ a làm gì<br>
-;> già vẫn làm có ăn hằng ngày mà, nhà còn nuôi mấy con chó con mèo
+;> già vẫn làm có ăn hằng ngày mà, nhà còn nuôi mấy con chó con mèo<br>
+;> hết T4 nghỉ lễ ròi e
