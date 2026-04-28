@@ -6,4 +6,6 @@
 ;> e ở chung cư đắt tiền a ko có tiền a share thì sao<br>
 ;> giờ nghèo quá cũng lo chứ e<br>
 ;> nghèo thấy tiêu cực nên nói trước z<br>
-;> chứ a có nuôi ai đâu mà a vẫn thấy a nghèo thiếu trước hụt sau
+;> chứ a có nuôi ai đâu mà a vẫn thấy a nghèo thiếu trước hụt sau<br>
+;> éo nuôi ai mà làm thấy nghèo ròi<br>
+;> để hết tháng 6 coi sao nhe e
