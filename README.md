@@ -8,4 +8,6 @@
 ;> nghèo thấy tiêu cực nên nói trước z<br>
 ;> chứ a có nuôi ai đâu mà a vẫn thấy a nghèo thiếu trước hụt sau<br>
 ;> éo nuôi ai mà làm thấy nghèo ròi<br>
-;> để hết tháng 6 coi sao nhe e
+;> để hết tháng 6 coi sao nhe e<br>
+;> nói chung thì e quen a thì có lo thì e chỉ lo a thôi chứ e ko cần phải lo cha mẹ a làm gì<br>
+;> già vẫn làm có ăn hằng ngày mà, nhà còn nuôi mấy con chó con mèo
