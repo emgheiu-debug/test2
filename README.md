@@ -3,4 +3,5 @@
 ;> 1 tháng dư 3 triệu đi làm cả năm dư 3x12=36 củ à làm đc mịa gì cho thưởng tết 1 tháng lương đi cũng đéo bao nhiu, lương đã thấp ròi e<br>
 ;> đó là tháng nào cũng đều đều 3 củ nha e, ko phát sinh đi đám tiệc ăn xài mua mỹ phẩm đồ cá nhân<br>
 ;> ![Uploading image.png…]()<br>
-;> ảnh icon e nè
+;> ảnh icon e nè<br>
+;> đợi nó load đi e mạng a hơi chậm
