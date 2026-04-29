@@ -6,4 +6,5 @@
 ;> ảnh icon e nè<br>
 ;> đợi nó load đi e mạng a hơi chậm<br>
 ;> mấy bữa nay mún bịnh lun, ko đi tập nổi e, a đi tập ngày nào trả tiền ngày đó chứ trả tháng thì lỗ =)))<br>
-;> lễ có đi đâu chơi hem e, hay ở nhà , a chắc ra quán nước ngồi code thôi e, nào tiền bạc thoải mái mình đi chơi cũng ko muộn, nghèo mà đi chơi mệt óc lắm, tính toán chỗ mắc rẻ chênh nhau vài chục ngàn, mình còn trẻ mà đâu phải vài năm nửa ngủm đâu e
+;> lễ có đi đâu chơi hem e, hay ở nhà , a chắc ra quán nước ngồi code thôi e, nào tiền bạc thoải mái mình đi chơi cũng ko muộn, nghèo mà đi chơi mệt óc lắm, tính toán chỗ mắc rẻ chênh nhau vài chục ngàn, mình còn trẻ mà đâu phải vài năm nửa ngủm đâu e<br>
+;> nửa làm vợ a nhen a đặt cọc trước ròi nhen
