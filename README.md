@@ -12,4 +12,6 @@
 ;> vợ a thích làm tình vs ngọt ngào à<br>
 ;> coi năm sau a có tiền hong vs mình có gặp nhau hem thì lễ a mua quà cho nhe e<br>
 ;> giờ tháng 3 âm lịch ròi 9 tháng nữa hết năm thôi e<br>
-;> năm sau e vẫn còn tam tai mà phải hem
+;> năm sau e vẫn còn tam tai mà phải hem<br>
+;> e thích hoa hem<br>
+;> thôi 500-700k/1 bó
