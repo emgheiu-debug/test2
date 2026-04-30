@@ -15,4 +15,7 @@
 ;> cho 10x12thángx3năm= 360 củ<br>
 ;> ròi chi phí nuôi đại học trường đại học kinh tế HCM cho 20củ/kỳ<br>
 ;> 20 củx2x4 năm=160 củ ròi chi phí sinh hoạt nhà trọ học thêm tiếng anh các thứ<br>
-;> loanh quanh cho 700 triệu nữa đi, ăn học ko hơn tỉ bạc
+;> loanh quanh cho 700 triệu nữa đi, ăn học ko hơn tỉ bạc<br>
+;> ra trường làm có 7 củ lương chính thức chứ nhiu e, năm nhất Đh cha nó mua cho cái macbook pro 3x củ<br>
+;> con xe AB 50 củ<br>
+;>
