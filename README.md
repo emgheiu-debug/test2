@@ -10,4 +10,9 @@
 ;> chắc sáng a đi chạy bộ chứ off từ bữa CN tới nay ròi, lười quá e<br>
 ;> a thấy mấy người dưới quê 30 tuổi làm lương 6-7 củ ở trọ mà vẫn có gia đình có con hay thật<br>
 ;> chắc chật vật lắm nếu mà ko có cha mẹ 2 bên phụ vô<br>
-;> 
+;> nhìu ng đi làm lương thấp mà ngta vẫn sống đc là do cha mẹ ngta gửi tiền lên đó e, như thằng e họ a z, ổng cậu gửi tiền lên miết<br>
+;> ngta có phước nhờ cha mẹ thôi e, xưa thg đó học cấp 3 trường tư thục ở sài gòn học nội trú 10 củ/ tháng, chưa tính chi phí phát sinh cho thêm để tiêu brxài cá nhân nữa<br>
+;> cho 10x12thángx3năm= 360 củ<br>
+;> ròi chi phí nuôi đại học trường đại học kinh tế HCM cho 20củ/kỳ<br>
+;> 20 củx2x4 năm=160 củ ròi chi phí sinh hoạt nhà trọ học thêm tiếng anh các thứ<br>
+;> loanh quanh cho 700 triệu nữa đi, ăn học ko hơn tỉ bạc
