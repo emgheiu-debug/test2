@@ -19,4 +19,8 @@
 ;> ra trường làm có 7 củ lương chính thức chứ nhiu e, năm nhất Đh cha nó mua cho cái macbook pro 3x củ<br>
 ;> con xe AB 50 củ<br>
 ;> cha nó là cậu a ổng cũng nghèo vay nhà nước làm ăn chứ có tiền bạc gì éo đâu e, ở nhà toàn ăn cá biển thôi<br>
-;> mà ngta lo cho con ghê hong
+;> mà ngta lo cho con ghê hong<br>
+;> nhà cha mẹ a lo hết đại học là coi như hết trách nhiệm ròi<br>
+;> họ có tiền nhưng họ đéo biết tính toán, ròi ăn xài bản thân nữa<br>
+;> e hiểu hem<br>
+;> a có tiền a cũng đâu cho, có qua thì có lại thôi
