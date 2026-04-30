@@ -8,4 +8,6 @@
 ;> lo cho mình ít thì đc cái có tiền mình đỡ phải lo lại thôi e<br>
 ;> ước vài năm sau mình ở vs nhau<br>
 ;> chắc sáng a đi chạy bộ chứ off từ bữa CN tới nay ròi, lười quá e<br>
-;> a thấy mấy người dưới quê 30 tuổi làm lương 6-7 củ ở trọ mà vẫn có gia đình có con hay thật
+;> a thấy mấy người dưới quê 30 tuổi làm lương 6-7 củ ở trọ mà vẫn có gia đình có con hay thật<br>
+;> chắc chật vật lắm nếu mà ko có cha mẹ 2 bên phụ vô<br>
+;> 
