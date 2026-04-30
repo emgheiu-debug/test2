@@ -15,4 +15,5 @@
 ;> năm sau e vẫn còn tam tai mà phải hem<br>
 ;> e thích hoa hem<br>
 ;> thôi 500-700k/1 bó<br>
-![Uploading image.png…]()< br>
+<img width="1368" height="1367" alt="image" src="https://github.com/user-attachments/assets/12f0ae1a-2456-4364-bd18-a2c4f96e52eb" />< br>
+;> chắc hoa tươi nên nó đắt z e, bảo quản hoa nữa
