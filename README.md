@@ -18,4 +18,5 @@
 ;> loanh quanh cho 700 triệu nữa đi, ăn học ko hơn tỉ bạc<br>
 ;> ra trường làm có 7 củ lương chính thức chứ nhiu e, năm nhất Đh cha nó mua cho cái macbook pro 3x củ<br>
 ;> con xe AB 50 củ<br>
-;>
+;> cha nó là cậu a ổng cũng nghèo vay nhà nước làm ăn chứ có tiền bạc gì éo đâu e, ở nhà toàn ăn cá biển thôi<br>
+;> mà ngta lo cho con ghê hong
