@@ -8,4 +8,7 @@
 ;> a đâu có quyền lựa chọn cha mẹ cho mình đâu e<br>
 ;> mà thôi kệ sau này đỡ phải nghĩ đến chuyện cho tiền trừ khi tiền bạc quá dư giả, đủ mình dùng thì khỏi cho thôi e<br>
 ;> a skinecare vs đánh răng ròi e<br>
-;> da a mà bỏ bê 1 thời gian là xấu lắm thâm sẹo mụn từa lưa liền
+;> da a mà bỏ bê 1 thời gian là xấu lắm thâm sẹo mụn từa lưa liền<br>
+;> vợ a thích làm tình vs ngọt ngào à<br>
+;> coi năm sau a có tiền hong vs mình có gặp nhau hem thì lễ a mua quà cho nhe e<br>
+;> giờ tháng 3 âm lịch ròi 9 tháng nữa hết năm thôi e
