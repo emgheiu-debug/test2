@@ -26,4 +26,5 @@
 ;> a có tiền a cũng đâu cho, có qua thì có lại thôi<br>
 ;> e hiểu như này nè, tức là nhà có khả năng mua máy lạnh đi, cho máy lạnh 12 củ đi nhưng mà éo mua để tiền ăn xài đi nhậu, cho vay gì đó xong bị giựt hay bị công an lụm là hết veo<br>
 ;> có khả năng nhưng ko mua nó khác vs nghèo quá làm quài ko có tiền mua<br>
-;>
+;> 60 tuổi ròi còn z đó e<br>
+;> a còn trẻ a khác hiểu hem e
