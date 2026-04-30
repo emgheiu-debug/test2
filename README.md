@@ -23,4 +23,7 @@
 ;> nhà cha mẹ a lo hết đại học là coi như hết trách nhiệm ròi<br>
 ;> họ có tiền nhưng họ đéo biết tính toán, ròi ăn xài bản thân nữa<br>
 ;> e hiểu hem<br>
-;> a có tiền a cũng đâu cho, có qua thì có lại thôi
+;> a có tiền a cũng đâu cho, có qua thì có lại thôi<br>
+;> e hiểu như này nè, tức là nhà có khả năng mua máy lạnh đi, cho máy lạnh 12 củ đi nhưng mà éo mua để tiền ăn xài đi nhậu, cho vay gì đó xong bị giựt hay bị công an lụm là hết veo<br>
+;> có khả năng nhưng ko mua nó khác vs nghèo quá làm quài ko có tiền mua<br>
+;>
