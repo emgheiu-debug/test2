@@ -5,4 +5,6 @@
 ;> đời a cha mẹ a có lo gì nhìu đâu<br>
 ;> a ko muốn rơi vào vết xe cũ nữa<br>
 ;> nhà a lo cho a ăn học coi như là hết trách nhiệm ròi, còn muốn mua gì là tự làm tự mua tự bơi<br>
-;> lo cho mình ít thì đc cái có tiền mình đỡ phải lo lại thôi e
+;> lo cho mình ít thì đc cái có tiền mình đỡ phải lo lại thôi e<br>
+;> ước vài năm sau mình ở vs nhau<br>
+;> chắc sáng a đi chạy bộ chứ off từ bữa CN tới nay ròi, lười quá e
