@@ -14,4 +14,5 @@
 ;> giờ tháng 3 âm lịch ròi 9 tháng nữa hết năm thôi e<br>
 ;> năm sau e vẫn còn tam tai mà phải hem<br>
 ;> e thích hoa hem<br>
-;> thôi 500-700k/1 bó
+;> thôi 500-700k/1 bó<br>
+![Uploading image.png…]()< br>
