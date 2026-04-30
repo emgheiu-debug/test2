@@ -29,4 +29,5 @@
 ;> 60 tuổi ròi còn z đó e<br>
 ;> a còn trẻ a khác hiểu hem e<br>
 ;> thành ra là cha mẹ a làm quài mà cũng ko có gì, tại gì ăn xài vs cho vay bị giựt<br>
-;>
+;> làm nhiu tin tưởng cho ngta vay bị giựt hết còn mắc nợ nữa, ròi mượn ng này vs lãi thấp hơn cho ng khác vay vs lãi cao hơn kiểu z<br>
+;> a nào giờ chơi vs bạn là ko ai giựt a đồng nào cả
