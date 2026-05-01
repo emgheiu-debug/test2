@@ -7,4 +7,7 @@
 ;> e có ăn sầu riêng hem đang mua sầu riêng mà, bữa a mua trái sầu riêng musangking ăn ngon phếch<br>
 ;> a mua 120k/kg<br>
 ;> mới giờ bùn ngủ quá e<br>
-;> cắt mí đau ko e, nửa a để dành tiền cắt
+;> cắt mí đau ko e, nửa a để dành tiền cắt<br>
+;> cắt cho đều về 1 mí hết <br>
+;> a thấy mắt 1 mí ban đầu của a đẹp<br>
+;> xíu thấy a im im là biết a nằm a ngủ quên ròi nhen e
