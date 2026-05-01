@@ -7,4 +7,6 @@
 <img width="290" height="183" alt="image" src="https://github.com/user-attachments/assets/8f520ccd-2e51-4e93-82e3-c543f9f0e1a3" /><br>
 ;> giống e hem e<br>
 <img width="1024" height="1536" alt="ChatGPT Image 14_06_54 1 thg 5, 2026" src="https://github.com/user-attachments/assets/12f665e8-37fa-4968-b71e-7333449be80f" /><br>
-;> AI mà tạo có nhìu tấm ko giống lắm
+;> AI mà tạo có nhìu tấm ko giống lắm<br>
+;> hay lễ này kia mình mua đồ ăn về nhà ăn cũng đc e<br>
+;> mua hoa làm giàu cho mấy shop bán hoa thôi
