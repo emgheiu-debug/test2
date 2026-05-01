@@ -13,4 +13,7 @@
 ;> e nhắn tin vs a đi, ròi nào đi hẹn hò nó cũng dễ hơn<br>
 ;> quen lâu ròi ngại gì e, ngại chỉ có ế kéo dài làm mất thời gian của nhau thôi e<br>
 ;> a chạy bộ 4km đốt đc có 132 cal à<br>
-;> kệ mịa có hơn ko thôi e
+;> kệ mịa có hơn ko thôi e<br>
+;> giống như chuyện lương thấp mà cứ để dành 1 ít thì cũng mua đc tiêu sản điện thoại, laptop, xe thôi e<br>
+;> miếng đất, căn chung cư thì ko với tới đc nhưng 1-2 chỉ vàng cũng ổn<br>
+;> vàng đang xuống e, có dư mua 1 ít đi e, tốt nhất là bắt đáy mà ko biết đâu là đáy mà bắt
