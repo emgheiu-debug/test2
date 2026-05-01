@@ -16,4 +16,6 @@
 ;> kệ mịa có hơn ko thôi e<br>
 ;> giống như chuyện lương thấp mà cứ để dành 1 ít thì cũng mua đc tiêu sản điện thoại, laptop, xe thôi e<br>
 ;> miếng đất, căn chung cư thì ko với tới đc nhưng 1-2 chỉ vàng cũng ổn<br>
-;> vàng đang xuống e, có dư mua 1 ít đi e, tốt nhất là bắt đáy mà ko biết đâu là đáy mà bắt
+;> vàng đang xuống e, có dư mua 1 ít đi e, tốt nhất là bắt đáy mà ko biết đâu là đáy mà bắt<br>
+;> a nghỉ a nên đổi việc chứ như này thì ko khá nổi<br>
+;> phải có việc mới, mới nghỉ việc cũ đc e
