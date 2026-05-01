@@ -10,4 +10,5 @@
 ;> cắt mí đau ko e, nửa a để dành tiền cắt<br>
 ;> cắt cho đều về 1 mí hết <br>
 ;> a thấy mắt 1 mí ban đầu của a đẹp<br>
-;> xíu thấy a im im là biết a nằm a ngủ quên ròi nhen e
+;> xíu thấy a im im là biết a nằm a ngủ quên ròi nhen e<br>
+;> a giờ hệ ng già ròi toàn ngủ sớm, thức khuya mắt chùn ròi, ngủ ngon nha e nữa e mò lon cho nhe e
