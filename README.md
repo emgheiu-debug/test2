@@ -10,4 +10,5 @@
 ;> AI mà tạo có nhìu tấm ko giống lắm<br>
 ;> hay lễ này kia mình mua đồ ăn về nhà ăn cũng đc e<br>
 ;> mua hoa làm giàu cho mấy shop bán hoa thôi<br>
-;> e nhắn tin vs a đi, ròi nào đi hẹn hò nó cũng dễ hơn
+;> e nhắn tin vs a đi, ròi nào đi hẹn hò nó cũng dễ hơn<br>
+;> quen lâu ròi ngại gì e, ngại chỉ có ế kéo dài làm mất thời gian của nhau thôi e
