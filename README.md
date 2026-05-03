@@ -11,4 +11,5 @@
 ;> tiền bạc ngon lành là a thi liền ròi<br>
 ;> có tiền xoay chuyện khác cái hết mịa tiền quên thi lun e<br>
 ;> a đi xe buýt vợ đón a đi chơi đi =)))<br>
-;> ai biểu quen nhỏ tuổi chi giờ còn lông bông
+;> ai biểu quen nhỏ tuổi chi giờ còn lông bông<br>
+;> giờ công an giao thông nhìu sợ đi xa bị lụm thôi chứ ko gì e, lúc rài ko có đi đâu xa cả
