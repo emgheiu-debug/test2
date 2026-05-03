@@ -10,4 +10,5 @@
 ;> có tiền là giải quyết nhìu vấn đề trong cuộc sống rồi e<br>
 ;> tiền bạc ngon lành là a thi liền ròi<br>
 ;> có tiền xoay chuyện khác cái hết mịa tiền quên thi lun e<br>
-;> a đi xe buýt vợ đón a đi chơi đi =)))
+;> a đi xe buýt vợ đón a đi chơi đi =)))<br>
+;> ai biểu quen nhỏ tuổi chi giờ còn lông bông
