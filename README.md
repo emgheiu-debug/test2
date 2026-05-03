@@ -9,4 +9,5 @@
 ;> tính trước nhìu cái cũng mệt, thôi kệ mịa đi e để từ từ tính<br>
 ;> có tiền là giải quyết nhìu vấn đề trong cuộc sống rồi e<br>
 ;> tiền bạc ngon lành là a thi liền ròi<br>
-;> có tiền xoay chuyện khác cái hết mịa tiền quên thi lun e
+;> có tiền xoay chuyện khác cái hết mịa tiền quên thi lun e<br>
+;> a đi xe buýt vợ đón a đi chơi đi =)))
