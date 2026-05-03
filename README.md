@@ -22,4 +22,6 @@
 ;> xe cùi chạy thì nhìn tướng bần quá, lại chậm chạy rề rề, =))) đc cái ít hao xăng<br>
 ;> giờ hong tiền bàn mua này mua kia cũng vô nghĩa thôi e, có 1 cái đầu óc tính toán mà ko có tiền, ko may mắn cũng z<br>
 ;> như e giỏi cách mấy mà ngta ko cần ko thuê e thì e cũng đâu có tiền đâu e<br>
-;> nhìu ng ngta dốt mà ngta vẫn có tiền đó thôi e
+;> nhìu ng ngta dốt mà ngta vẫn có tiền đó thôi e<br>
+;> làm giàu phải nhờ may mắn nữa e<br>
+;> 
