@@ -27,4 +27,4 @@
 ;> trên tiktok có nhỏ bán thuốc trị thâm bẹn bôi thấy tục quá e<br>
 ;> dám ko bận quần xì<br>
 ;> a chỉ coi con chim của e là ko thấy tục thôi<br>
-;>
+;> vạch cũng khéo khéo 1 xíu chứ vạch thấy 1/2 1 bên mép chêm ròi e, nên quảng cáo nhìn hơi tục ko dành cho dưới 18+
