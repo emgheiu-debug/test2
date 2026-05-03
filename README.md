@@ -12,4 +12,5 @@
 ;> có tiền xoay chuyện khác cái hết mịa tiền quên thi lun e<br>
 ;> a đi xe buýt vợ đón a đi chơi đi =)))<br>
 ;> ai biểu quen nhỏ tuổi chi giờ còn lông bông<br>
-;> giờ công an giao thông nhìu sợ đi xa bị lụm thôi chứ ko gì e, lúc rài ko có đi đâu xa cả
+;> giờ công an giao thông nhìu sợ đi xa bị lụm thôi chứ ko gì e, lúc rài ko có đi đâu xa cả<br>
+;> bị lụm ko phải bỏ xe lun đi, nếu mà ko đóng phạt là xong này ko mua xe vay tiền nợ xấu hay sao á e
