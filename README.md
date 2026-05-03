@@ -16,4 +16,6 @@
 ;> bả tiết kiệm, kẹo kéo lun e<br>
 ;> mua miếng đất thôi chưa cất nhà, nghe nói z chứ a cũng chưa nhìn miếng đất đó như nào to hay nhỏ<br>
 ;> đi làm nhìu cái ko vừa ý nhưng mà nghĩ tới mức lương nhận đc hằng tháng á nếu mà cao thì đc chữa lành còn thấp thì chữa rách thôi e<br>
-;> ko biết nhìu ng có nghĩ giống a hem
+;> ko biết nhìu ng có nghĩ giống a hem<br>
+;> còn nếu mà lương thấp mà ngày nào cũng nghĩ tới là quạo à nhen, tốt nhất là éo nghĩ tới e à<br>
+;> thôi phia ròi ngủ ngon nhe vợ iu
