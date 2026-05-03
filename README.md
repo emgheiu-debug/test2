@@ -11,4 +11,7 @@
 ;> a chỉ coi con chim của e là ko thấy tục thôi<br>
 ;> vạch cũng khéo khéo 1 xíu chứ vạch thấy 1/2 1 bên mép chêm ròi e, nên quảng cáo nhìn hơi tục ko dành cho dưới 18+<br>
 ;> e đi chùa vào ngày rằm, ngày mà ngta hay đi chùa để van vái đc sống cùng người con yêu<br>
-;> con bà dì a ăn chay đi chùa quanh năm lun, giờ chưa có chồng con gì hết gần 35 ròi e, đang nuôi thằng e trai ăn học đh
+;> con bà dì a ăn chay đi chùa quanh năm lun, giờ chưa có chồng con gì hết gần 35 ròi e, đang nuôi thằng e trai ăn học đh<br>
+;> sn 92 có 1 miếng đất ở bảo lộc vs nuôi đc e ăn học<br>
+;> bả tiết kiệm, kẹo kéo lun e<br>
+;> mua miếng đất thôi chưa cất nhà, nghe nói z chứ a cũng chưa nhìn miếng đất đó như nào to hay nhỏ
