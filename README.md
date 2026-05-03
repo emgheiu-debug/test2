@@ -17,4 +17,5 @@
 ;> có bằng lái thì lấy xe khác chạy nhanh hơn xíu đỡ nắng chứ xe cùi đó chạy rề rề e<br>
 ;> a cũng ko có đam mê xe cộ gì cho lắm nên chắc thi bằng A1 thôi e, cũng chạy đc vision, shmode, AB, future z là đc ròi e<br>
 ;> ko cần xe côn, sh350i đâu<br>
-;> chạy xe đó nặng kình rình tốn xăng ở trọ chật chội đậu lại trầy xe khó dắt =))) mà a cũng éo có tiền mua
+;> chạy xe đó nặng kình rình tốn xăng ở trọ chật chội đậu lại trầy xe khó dắt =))) mà a cũng éo có tiền mua<br>
+;> lo cải thiện thu nhập hằng tháng mới quan trọng e ròi có dư mua nhà, dư giả nữa thì mua con ôtô vừa túi tiền ít hao xăng để đi lại che nắng mưa, mua vàng, mua đất, đi du lịch chơi z là vui
