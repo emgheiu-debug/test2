@@ -24,4 +24,5 @@
 ;> như e giỏi cách mấy mà ngta ko cần ko thuê e thì e cũng đâu có tiền đâu e<br>
 ;> nhìu ng ngta dốt mà ngta vẫn có tiền đó thôi e<br>
 ;> làm giàu phải nhờ may mắn nữa e<br>
-;> 
+;> trên tiktok có nhỏ bán thuốc trị thâm bẹn bôi thấy tục quá e<br>
+;> dám ko bận quần xì
