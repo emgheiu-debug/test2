@@ -14,4 +14,6 @@
 ;> con bà dì a ăn chay đi chùa quanh năm lun, giờ chưa có chồng con gì hết gần 35 ròi e, đang nuôi thằng e trai ăn học đh<br>
 ;> sn 92 có 1 miếng đất ở bảo lộc vs nuôi đc e ăn học<br>
 ;> bả tiết kiệm, kẹo kéo lun e<br>
-;> mua miếng đất thôi chưa cất nhà, nghe nói z chứ a cũng chưa nhìn miếng đất đó như nào to hay nhỏ
+;> mua miếng đất thôi chưa cất nhà, nghe nói z chứ a cũng chưa nhìn miếng đất đó như nào to hay nhỏ<br>
+;> đi làm nhìu cái ko vừa ý nhưng mà nghĩ tới mức lương hằng tháng á nếu mà cao thì đc chữa lành còn thấp thì chữa rách thôi e<br>
+;> ko biết nhìu ng có nghĩ giống a hem
