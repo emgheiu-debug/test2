@@ -5,4 +5,4 @@
 ;> iphone lâu xuống giá quá hen e<br>
 ;> a định đổi việc nên ko dám mua đồ trả góp mệt lắm<br>
 ;> mua đồ góp nhảy việc hơi rủi ro<br>
-;>
+;> a chưa thi bằng lái nữa e, để ít tháng nữa đc thi bằng A1 thôi e
