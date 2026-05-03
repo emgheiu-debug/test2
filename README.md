@@ -7,4 +7,5 @@
 ;> mua đồ góp nhảy việc hơi rủi ro<br>
 ;> a chưa thi bằng lái nữa e, để ít tháng nữa đc thi bằng A1 thôi e<br>
 ;> tính trước nhìu cái cũng mệt, thôi kệ mịa đi e để từ từ tính<br>
-;> có tiền là giải quyết nhìu vấn đề trong cuộc sống rồi e
+;> có tiền là giải quyết nhìu vấn đề trong cuộc sống rồi e<br>
+;> tiền bạc ngon lành là a thi liền ròi
