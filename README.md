@@ -14,4 +14,7 @@
 ;> ai biểu quen nhỏ tuổi chi giờ còn lông bông<br>
 ;> giờ công an giao thông nhìu sợ đi xa bị lụm thôi chứ ko gì e, lúc rài ko có đi đâu xa cả<br>
 ;> bị lụm ko phải bỏ xe lun đâu, nếu mà ko đóng phạt là xong này ko mua xe vay tiền nợ xấu hay sao á e<br>
-;> có bằng lái thì lấy xe khác chạy nhanh hơn xíu đỡ nắng chứ xe cùi đó chạy rề rề e
+;> có bằng lái thì lấy xe khác chạy nhanh hơn xíu đỡ nắng chứ xe cùi đó chạy rề rề e<br>
+;> a cũng ko có đam mê xe cộ gì cho lắm nên chắc thi bằng A1 thôi e, cũng chạy đc vision, shmode, AB, future z là đc ròi e<br>
+;> ko cần xe côn, sh350i đâu<br>
+;> chạy xe đó nặng kình rình tốn xăng ở trọ chật chội đậu lại trầy xe khó dắt =))) mà a cũng éo có tiền mua
