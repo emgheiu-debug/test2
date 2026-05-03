@@ -15,5 +15,5 @@
 ;> sn 92 có 1 miếng đất ở bảo lộc vs nuôi đc e ăn học<br>
 ;> bả tiết kiệm, kẹo kéo lun e<br>
 ;> mua miếng đất thôi chưa cất nhà, nghe nói z chứ a cũng chưa nhìn miếng đất đó như nào to hay nhỏ<br>
-;> đi làm nhìu cái ko vừa ý nhưng mà nghĩ tới mức lương hằng tháng á nếu mà cao thì đc chữa lành còn thấp thì chữa rách thôi e<br>
+;> đi làm nhìu cái ko vừa ý nhưng mà nghĩ tới mức lương nhận đc hằng tháng á nếu mà cao thì đc chữa lành còn thấp thì chữa rách thôi e<br>
 ;> ko biết nhìu ng có nghĩ giống a hem
