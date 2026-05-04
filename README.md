@@ -12,4 +12,5 @@
 ;> nói chung nó cũng tùy, chắc a lên ghé con nhỏ bạn xong chở xíu đồ về<br>
 ;> tính z thôi để coi như nào đã e, có tiền thì a lên liền lun<br>
 ;> nó cũng phụ thuộc vào tiền bạc vs công việc nữa e<br>
-;> mà giờ a bùn ngủ quá e
+;> mà giờ a bùn ngủ quá e<br>
+;> ngủ hem e, sáng a dậy sớm quá giờ bùn ngủ
