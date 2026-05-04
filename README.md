@@ -3,4 +3,5 @@
 ;> a giờ cũng 50kg à ko ốm gì mấy<br>
 ;> dú e to ròi e định nâng à <br>
 ;> hoy bóp đồ silicon hong thích<br>
-;> sáng này a đang ngủ hén, tự dưng mưa ồ ồ xong tỉnh dậy lun tự dưng cúp điện hơn 5h sáng, xong hơn 6h lại có điện, lại hết mưa
+;> sáng này a đang ngủ hén, tự dưng mưa ồ ồ xong tỉnh dậy lun tự dưng cúp điện hơn 5h sáng, xong hơn 6h lại có điện, lại hết mưa<br>
+;> a iu skinecare sức mụn ròi, là chỉ có sức mụn, sức sẹo mụn thôi chứ có sài kem trộn trắng da gì đâu e, chống nắng thì định mua mà ko biết hãng nào xài tốt e, để đi xa có dùng ko bị ăn nắng
