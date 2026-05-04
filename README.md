@@ -7,4 +7,6 @@
 ;> a iu skinecare sức mụn ròi, là chỉ có sức mụn, sức sẹo mụn thôi chứ có sài kem trộn trắng da gì đâu e, chống nắng thì định mua mà ko biết hãng nào xài tốt e, để đi xa có dùng ko bị ăn nắng<br>
 ;> mụn làm gì sức quanh năm lun mà hết lại lên e<br>
 ;> tính ra a đâu tốn tiền mỹ phẩm gì mấy e<br>
-;> vợ a chắc thích ăn đồ ngọt nghe lời ngọt ngào chắc z
+;> vợ a chắc thích ăn đồ ngọt nghe lời ngọt ngào chắc z<br>
+;> hứa vs e hết tháng 6 thôi, có thể vì tiền bạc hay công việc mà deplay xíu e nhó<br>
+;> nói chung nó cũng tùy, chắc a lên ghé con nhỏ bạn xong chở xíu đồ về
