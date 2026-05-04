@@ -9,4 +9,5 @@
 ;> tính ra a đâu tốn tiền mỹ phẩm gì mấy e<br>
 ;> vợ a chắc thích ăn đồ ngọt nghe lời ngọt ngào chắc z<br>
 ;> hứa vs e hết tháng 6 thôi, có thể vì tiền bạc hay công việc mà deplay xíu e nhó<br>
-;> nói chung nó cũng tùy, chắc a lên ghé con nhỏ bạn xong chở xíu đồ về
+;> nói chung nó cũng tùy, chắc a lên ghé con nhỏ bạn xong chở xíu đồ về<br>
+;> tính z thôi để coi như nào đã e, có tiền thì a lên liền lun
