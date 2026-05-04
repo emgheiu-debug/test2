@@ -10,4 +10,6 @@
 ;> vợ a chắc thích ăn đồ ngọt nghe lời ngọt ngào chắc z<br>
 ;> hứa vs e hết tháng 6 thôi, có thể vì tiền bạc hay công việc mà deplay xíu e nhó<br>
 ;> nói chung nó cũng tùy, chắc a lên ghé con nhỏ bạn xong chở xíu đồ về<br>
-;> tính z thôi để coi như nào đã e, có tiền thì a lên liền lun
+;> tính z thôi để coi như nào đã e, có tiền thì a lên liền lun<br>
+;> nó cũng phụ thuộc vào tiền bạc vs công việc nữa e<br>
+;> mà giờ a bùn ngủ quá e
