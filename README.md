@@ -13,4 +13,5 @@
 ;> tại vì hoàn cảnh a hong tiền, công viêc chưa ngon nên mới để e đợi, chứ làm quài là nghèo cả đời<br>
 ;> tiền ít khổ lắm e<br>
 ;> dưới a cho vay tiền dễ bị giựt lắm<br>
-;> đóng đc vài tháng đầu xong mấy tháng sau giựt
+;> đóng đc vài tháng đầu xong mấy tháng sau giựt<br>
+=))) vợ cho a mượn 30 củ để a mua sắm này kia cho xong, mỗi tháng góp e 2-3 củ nào xong thì thôi
