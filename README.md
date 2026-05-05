@@ -17,4 +17,5 @@
 =))) vợ cho a mượn 30 củ để a mua sắm này kia cho xong, mỗi tháng góp e 2-3 củ nào xong thì thôi<br>
 ;> con nợ hứa gặp chủ nợ để góp hằng tháng<br>
 ;> mới giờ a bùn ngủ quá e<br>
-;> bùn ngủ quá vợ ơi
+;> bùn ngủ quá vợ ơi<br>
+;> vợ đợi còn nửa năm nữa tha hồ mà đợi e
