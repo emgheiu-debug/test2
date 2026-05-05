@@ -11,4 +11,6 @@
 ;> giờ mới tháng 3 âm lịch à, e còn đợi lâu á, tệ nào trước tết á e<br>
 ;> e còn đợi nhìu nhất là 6 tháng nữa<br>
 ;> tại vì hoàn cảnh a hong tiền, công viêc chưa ngon nên mới để e đợi, chứ làm quài là nghèo cả đời<br>
-;> tiền ít khổ lắm e
+;> tiền ít khổ lắm e<br>
+;> dưới a cho vay tiền dễ bị giựt lắm<br>
+;> đóng đc vài tháng đầu xong mấy tháng sau giựt
