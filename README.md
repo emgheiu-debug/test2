@@ -8,4 +8,5 @@
 ;> a hứa vs e là trong năm á<br>
 ;> còn trẻ như a mà nghèo thì bth thôi e, có tuổi mà nghèo mới đáng sợ<br>
 ;> mới cân 50kg tròn lun e<br>
-;> giờ mới tháng 3 âm lịch à, e còn đợi lâu á, tệ nào trước tết á e
+;> giờ mới tháng 3 âm lịch à, e còn đợi lâu á, tệ nào trước tết á e<br>
+;> e còn đợi nhìu nhất là 6 tháng nữa
