@@ -6,4 +6,6 @@
 ;> thôi thì e cứ đợi trong năm nay đi đc thì a nhắn nhe<br>
 ;> tệ nào trước tết<br>
 ;> a hứa vs e là trong năm á<br>
-;> còn trẻ như a mà nghèo thì bth thôi e, có tuổi mà nghèo mới đáng sợ
+;> còn trẻ như a mà nghèo thì bth thôi e, có tuổi mà nghèo mới đáng sợ<br>
+;> mới cân 50kg tròn lun e<br>
+;> giờ mới tháng 3 âm lịch à, e còn đợi lâu á, tệ nào trước tết á e
