@@ -18,4 +18,5 @@
 ;> con nợ hứa gặp chủ nợ để góp hằng tháng<br>
 ;> mới giờ a bùn ngủ quá e<br>
 ;> bùn ngủ quá vợ ơi<br>
-;> vợ đợi còn nửa năm nữa tha hồ mà đợi e
+;> vợ đợi còn nửa năm nữa tha hồ mà đợi e<br>
+;> ngủ đi e, mai nhắn
