@@ -14,4 +14,5 @@
 ;> tiền ít khổ lắm e<br>
 ;> dưới a cho vay tiền dễ bị giựt lắm<br>
 ;> đóng đc vài tháng đầu xong mấy tháng sau giựt<br>
-=))) vợ cho a mượn 30 củ để a mua sắm này kia cho xong, mỗi tháng góp e 2-3 củ nào xong thì thôi
+=))) vợ cho a mượn 30 củ để a mua sắm này kia cho xong, mỗi tháng góp e 2-3 củ nào xong thì thôi<br>
+;> con nợ hứa gặp chủ nợ để góp hằng tháng
