@@ -9,4 +9,5 @@
 ;> còn trẻ như a mà nghèo thì bth thôi e, có tuổi mà nghèo mới đáng sợ<br>
 ;> mới cân 50kg tròn lun e<br>
 ;> giờ mới tháng 3 âm lịch à, e còn đợi lâu á, tệ nào trước tết á e<br>
-;> e còn đợi nhìu nhất là 6 tháng nữa
+;> e còn đợi nhìu nhất là 6 tháng nữa<br>
+;> tại vì hoàn cảnh a hong tiền, công viêc chưa ngon nên mới để e đợi, chứ làm quài là nghèo cả đời
