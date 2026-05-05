@@ -5,4 +5,5 @@
 =))) a để stk nè 9339022623 vietcombank<br>
 ;> thôi thì e cứ đợi trong năm nay đi đc thì a nhắn nhe<br>
 ;> tệ nào trước tết<br>
-;> a hứa vs e là trong năm á
+;> a hứa vs e là trong năm á<br>
+;> còn trẻ như a mà nghèo thì bth thôi e, có tuổi mà nghèo mới đáng sợ
