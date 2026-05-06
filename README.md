@@ -3,4 +3,5 @@
 ;> e tháng kinh doanh z bỏ túi đc nhiu e<br>
 ;> nửa làm vợ a nhen e<br>
 ;> nhìu cái mún làm lắm mà hem có tiền e<br>
-;> cái nghèo hạn chế con ngta
+;> cái nghèo hạn chế con ngta<br>
+;> khuya ròi ngủ đi e, a bùn ngủ quá ròi
