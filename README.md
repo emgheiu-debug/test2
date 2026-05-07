@@ -5,4 +5,6 @@
 ;> đi làm có ăn để đỡ phải móm thôi e, chứ dư giả gì<br>
 ;> mấy nay a lười tập quá, định nhịn cho gầy bớt mà đói thì sao chạy bộ<br>
 ;> mấy nay a đâu có ngủ quên đâu nên da mặt ít xấu<br>
-;> nhắn tin xíu ròi ngủ e
+;> nhắn tin xíu ròi ngủ e<br>
+;> vợ a chắc hơn 60kg quá<br>
+;> khuya ròi ngủ nhe e
