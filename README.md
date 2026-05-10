@@ -17,4 +17,6 @@
 ;> a bắt bài hết =)))<br>
 ;> còn có mấy người ưa thích nói mềm mỏng, ngắt quảng ròi dẫn dắt từ từ để thao túng tâm lý nữa<br>
 ;> a hong làm sale mà a biết lun á<br>
-;> nhìn mấy tụi văn phòng là biết ngay, tụi nó combat khách hàng, tụi nó giả vờ dể thử lòng, thấy nó cư xử vs người khác sao là mình suy ra hết
+;> nhìn mấy tụi văn phòng là biết ngay, tụi nó combat khách hàng, tụi nó giả vờ dể thử lòng, thấy nó cư xử vs người khác sao là mình suy ra hết<br>
+;> mấy đứa làm văn phòng rắn độc dữ lắm e, còn tụi làm IT thì ganh ghét, hơn thua<br>
+;> 
