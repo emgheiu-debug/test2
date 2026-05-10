@@ -12,4 +12,6 @@
 ;> thao túng để làm theo ý nó ý e hiểu hem<br>
 ;> mà tại sao mình phải vì vài lời nó mà làm theo ý người khác đâu có đc lợi lộc gì đâu, để mập béo người khác à<br>
 =))) mình phải làm ngược lại cho nó tức chơi, bỏ ghét e<br>
-;> loại nó là loại dùng lời nói hay lớn tiếng để chèn ép người khác thôi, chứ a tâm lý cứng làm sao thao túng đc a
+;> loại nó là loại dùng lời nói hay lớn tiếng để chèn ép người khác thôi, chứ a tâm lý cứng làm sao thao túng đc a<br>
+;> có mấy người mà ngta thích lớn tiếng dọa nạt thúc ép người khác làm theo ý mình ý e, lớn tiếng để áp đảo ý e<br>
+;> a bắt bài hết =)))
