@@ -23,4 +23,9 @@
 ;> lươn lẹo cho lắm ròi cũng nghèo<br>
 ;> a thấy ai khen giỏi mà vẫn nghèo thì giỏi dữ chưa<br>
 ;> giỏi mà vẫn nghèo thì nên xem lại<br>
-;> 
+;> như e mua chiếc ôtô vài trăm triệu mà lương e 5 triệu thì e chạy chiếc ô tô đó là 1 gánh nặng<br>
+;> chi phí bảo dưỡng, nhìu khi đậu ngoài đường ngta lủi vô bay cái kiếng xe là loanh quanh 10 củ ròi<br>
+;> ngta lủi vô làm hư xong chạy lun ý thí dụ z<br>
+;> ai ngu mà đậu lại để bị bắt đền hơn cả tháng lương<br>
+;> ròi e chạy chiếc xe là chi phí đổ xăng hằng tháng nữa<br>
+;> đâu chứ dưới a có người như z, mua xe tải xe ôtô góp
