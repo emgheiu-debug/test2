@@ -28,4 +28,5 @@
 ;> ngta lủi vô làm hư xong chạy lun ý thí dụ z<br>
 ;> ai ngu mà đậu lại để bị bắt đền hơn cả tháng lương<br>
 ;> ròi e chạy chiếc xe là chi phí đổ xăng hằng tháng nữa<br>
-;> đâu chứ dưới a có người như z, mua xe tải xe ôtô góp
+;> đâu chứ dưới a có người như z, mua xe tải xe ôtô góp<br>
+;> 2 vợ chồng làm công nhân lương 5 triệu tan ca các thứ chưa công vô nuôi 3 đứa con vẫn mua xe ô tô chạy 
