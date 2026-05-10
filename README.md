@@ -11,4 +11,5 @@
 ;> a ghét đi làm mà gặp người hay dùng lỗ miệng để thao túng tâm lý, nghe nó nói rất là mệt dù mình biết thừa như nào<br>
 ;> thao túng để làm theo ý nó ý e hiểu hem<br>
 ;> mà tại sao mình phải vì vài lời nó mà làm theo ý người khác đâu có đc lợi lộc gì đâu, để mập béo người khác à<br>
-=))) mình phải làm ngược lại cho nó tức chơi, bỏ ghét e
+=))) mình phải làm ngược lại cho nó tức chơi, bỏ ghét e<br>
+;> loại nó là loại dùng lời nói hay lớn tiếng để chèn ép người khác thôi, chứ a tâm lý cứng làm sao thao túng đc a
