@@ -6,4 +6,6 @@
 ;> mấy bữa trước a lubu chuyện khác ko có tâm trí để nhắn vs e<br>
 ;> môi trường hiện tại ko phù hợp vs a nên a mún đổi việc thôi e<br>
 ;> cơ bản là đi làm để kiếm tiền, tiền nhìu thì áp lực công việc còn tiền ít thì áp lực tiền bạc<br>
-;> tại vì mình tay làm hàm nhai mà e, ko có thu nhập thụ động, ví dụ như có nhà cho thuê thu tiền đều đều hằng tháng đâu có phải đau đầu mệt người đâu e
+;> tại vì mình tay làm hàm nhai mà e, ko có thu nhập thụ động, ví dụ như có nhà cho thuê thu tiền đều đều hằng tháng đâu có phải đau đầu mệt người đâu e<br>
+;> loại thu nhập mà mình đi chơi cũng có tiền đều đều ổn định cơ e, ko thích làm mướn thì có thể gap year nghỉ 1 thời gian vẫn có tiền<br>
+;> 
