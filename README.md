@@ -10,4 +10,5 @@
 ;> loại thu nhập mà mình đi chơi cũng có tiền đều đều ổn định cơ e, ko thích làm mướn thì có thể gap year nghỉ 1 thời gian vẫn có tiền<br>
 ;> a ghét đi làm mà gặp người hay dùng lỗ miệng để thao túng tâm lý, nghe nó nói rất là mệt dù mình biết thừa như nào<br>
 ;> thao túng để làm theo ý nó ý e hiểu hem<br>
-;> mà tại sao mình phải vì vài lời nó mà làm theo ý người khác đâu có đc lợi lộc gì đâu, để mập béo người khác à
+;> mà tại sao mình phải vì vài lời nó mà làm theo ý người khác đâu có đc lợi lộc gì đâu, để mập béo người khác à<br>
+=))) mình phải làm ngược lại cho nó tức chơi, bỏ ghét e
