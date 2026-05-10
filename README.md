@@ -5,4 +5,6 @@
 ;> ít nhắn e hem vui hay gì, a mới lấy nickclone like cho e ròi đó<br>
 ;> a đâu có nick real đâu mà like cho e<br>
 ;> đưa hình a coi coi, coi gầy hay mập, bữa đợt thấy gầy quá mất dú lun<br>
-;> e mún dú to dú bé gì là ăn nhìu ăn ít lại là đc
+;> e mún dú to dú bé gì là ăn nhìu ăn ít lại là đc<br>
+;> lần đầu mình hẹn hò chỉ nắm tay thôi e<br>
+;> mà khuya ròi ngủ đi e, ngủ ngon nhe
