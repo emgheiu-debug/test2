@@ -3,3 +3,7 @@
 ;> ngồi chill chill tí code thôi e<br>
 ;> cơm nước chưa e cũng trưa ròi<br>
 ;> nay chủ nhật ra quán nước ngồi đông phếch e<br>
+;> mấy bữa trước a lubu chuyện khác ko có tâm trí để nhắn vs e<br>
+;> môi trường hiện tại ko phù hợp vs a nên a mún đổi việc thôi e<br>
+;> cơ bản là đi làm để kiếm tiền, tiền nhìu thì áp lực công việc còn tiền ít thì áp lực tiền bạc<br>
+;> tại vì mình tay làm hàm nhai mà e, ko có thu nhập thụ động, ví dụ như có nhà cho thuê thu tiền đều đều hằng tháng đâu có phải đau đầu mệt người đâu e
