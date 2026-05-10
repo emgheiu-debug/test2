@@ -14,4 +14,7 @@
 =))) mình phải làm ngược lại cho nó tức chơi, bỏ ghét e<br>
 ;> loại nó là loại dùng lời nói hay lớn tiếng để chèn ép người khác thôi, chứ a tâm lý cứng làm sao thao túng đc a<br>
 ;> có mấy người mà ngta thích lớn tiếng dọa nạt thúc ép người khác làm theo ý mình ý e, lớn tiếng để áp đảo ý e<br>
-;> a bắt bài hết =)))
+;> a bắt bài hết =)))<br>
+;> còn có mấy người ưa thích nói mềm mỏng, ngắt quảng ròi dẫn dắt từ từ để thao túng tâm lý nữa<br>
+;> a hong làm sale mà a biết lun á<br>
+;> nhìn mấy tụi văn phòng là biết ngay, tụi nó combat khách hàng, tụi nó giả vờ dể thử lòng
