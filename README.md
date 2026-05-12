@@ -5,4 +5,6 @@
 ;> a chạy chậm thì 1 tiếng đc 4km còn ngta chạy nhanh thì nửa tiếng 4km ròi e<br>
 ;> a lubu nên ít nhắn nhe e<br>
 ;> lên mạng thấy ngta giàu có tiền ham quá e<br>
-;> nhà sài gòn mặt đất có thang máy
+;> nhà sài gòn mặt đất có thang máy<br>
+;> có sân thượng<br>
+;> biết bao giờ đc như ngta, mà thôi khuya ròi ngủ đi e, ngủ ngon nhe
