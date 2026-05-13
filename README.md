@@ -16,4 +16,5 @@
 ;> a định bỏ việc đây này, tìm việc mới phải lựa kỹ hơn<br>
 ;> mé số xui trúng chỗ nghèo<br>
 ;> ngta có nhìu tiền đâu mà ngta trả mình lương cao e, mà a ghét chỗ nó lươn lẹo e hiểu hem<br>
-;> ngta ko có khả năng để mà trả mình lương tốt thì mình xin chỗ khác thôi e
+;> ngta ko có khả năng để mà trả mình lương tốt thì mình xin chỗ khác thôi e<br>
+;> mé giờ a còn nghèo éo biết khi nào khá e
