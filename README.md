@@ -13,4 +13,5 @@
 ;> ngta hay đc nước lấn tới ý e<br>
 ;> nên là làm tàn tàn thôi, làm nhìu nó cực chứ ko đc gì, a biết chắc như z<br>
 ;> e nghèo chetmia mà nuôi e gì e<br>
-;> a định bỏ việc đây này, tìm việc mới phải lựa kỹ hơn
+;> a định bỏ việc đây này, tìm việc mới phải lựa kỹ hơn<br>
+;> mé số xui trúng chỗ nghèo
