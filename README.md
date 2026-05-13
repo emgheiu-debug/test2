@@ -11,4 +11,6 @@
 ;> làm nhiệt tình quá ngta nghĩ lương thấp mà nó làm ngon cỡ này ròi<br>
 ;> ngta cũng đâu lên lương cho mình chi đúng ko e<br>
 ;> ngta hay đc nước lấn tới ý e<br>
-;> nên là làm tàn tàn thôi, làm nhìu nó cực chứ ko đc gì, a biết chắc như z
+;> nên là làm tàn tàn thôi, làm nhìu nó cực chứ ko đc gì, a biết chắc như z<br>
+;> e nghèo chetmia mà nuôi e gì e<br>
+;> a định bỏ việc đây này, tìm việc mới phải lựa kỹ hơn
