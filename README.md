@@ -23,4 +23,4 @@
 ;> chỗ a làm kiểu như mướn đông mà lương thấp tàn tàn ý e, chứ ko phải chỗ lương tốt mà ít người<br>
 ;> cơ bản vì họ nuôi nhân viên nhìu nên chi phí doanh nghiệp nhân viên hằng tháng đội lên rất nhìu<br>
 ;> mỗi người tăng lên 500k 1 củ thôi là chi phí đội lên rất nhìu<br>
-;>
+;> khuya ròi ngủ đi vợ , mai nhắn tiếp nhe e, ngủ ngon e
