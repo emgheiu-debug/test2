@@ -7,4 +7,7 @@
 ;> a thấy nhìu người lương thấp mà làm như lương 50 củ z =)))<br>
 ;> láo e làm chó lun, vì chén cơm đủ sống qua ngày<br>
 ;> mấy ng đó dạng làm lâu năm, trung thành vs cty ý e<br>
-;>
+;> đi làm phải biết lương lẹo làm vừa đủ vs mức lương mình nhận đc thôi, quan điểm a là z<br>
+;> làm nhiệt tình quá ngta nghĩ lương thấp mà nó làm ngon cỡ này ròi<br>
+;> ngta cũng đâu lên lương cho mình chi đúng ko e<br>
+;> 
