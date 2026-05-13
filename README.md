@@ -10,4 +10,5 @@
 ;> đi làm phải biết lương lẹo làm vừa đủ vs mức lương mình nhận đc thôi, quan điểm a là z<br>
 ;> làm nhiệt tình quá ngta nghĩ lương thấp mà nó làm ngon cỡ này ròi<br>
 ;> ngta cũng đâu lên lương cho mình chi đúng ko e<br>
-;> 
+;> ngta hay đc nước lấn tới ý e<br>
+;> nên là làm tàn tàn thôi, làm nhìu nó cực chứ ko đc gì, a biết chắc như z
