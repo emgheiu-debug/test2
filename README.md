@@ -17,4 +17,10 @@
 ;> mé số xui trúng chỗ nghèo<br>
 ;> ngta có nhìu tiền đâu mà ngta trả mình lương cao e, mà a ghét chỗ nó lươn lẹo e hiểu hem<br>
 ;> ngta ko có khả năng để mà trả mình lương tốt thì mình xin chỗ khác thôi e<br>
-;> mé giờ a còn nghèo éo biết khi nào khá e
+;> mé giờ a còn nghèo éo biết khi nào khá e<br>
+;> làm đủ ăn xài vs mua đồ lặt vặt thôi e<br>
+;> z vs a là nghèo ròi<br>
+;> chỗ a làm kiểu như mướn đông mà lương thấp tàn tàn ý e, chứ ko phải chỗ lương tốt mà ít người<br>
+;> cơ bản vì họ nuôi nhân viên nhìu nên chi phí doanh nghiệp nhân viên hằng tháng đội lên rất nhìu<br>
+;> mỗi người tăng lên 500k 1 củ thôi là chi phí đội lên rất nhìu<br>
+;>
