@@ -6,4 +6,5 @@
 ;> e nửa ngủ chung a đi chịu hem<br>
 ;> cơ địa da mặt a là lên mụn quanh năm suốt tháng lun e<br>
 ;> hết rồi lại lên<br>
-;> a sức kem mụn từ hồi còn đi học ròi, chưa lên đại học ròi e
+;> a sức kem mụn từ hồi còn đi học ròi, chưa lên đại học ròi e<br>
+;> khuya ròi ngủ đi e, mai nhắn tiếp
