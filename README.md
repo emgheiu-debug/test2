@@ -7,4 +7,7 @@
 ;> cơ địa da mặt a là lên mụn quanh năm suốt tháng lun e<br>
 ;> hết rồi lại lên<br>
 ;> a sức kem mụn từ hồi còn đi học ròi, chưa lên đại học ròi e<br>
-;> khuya ròi ngủ đi e, mai nhắn tiếp
+;> khuya ròi ngủ đi e, mai nhắn tiếp<br>
+;> e chắc chỉ iu mình a =)))<br>
+;> tại e khó tính kén ny mà<br>
+;> ngủ ngon nhe e
