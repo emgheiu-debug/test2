@@ -7,4 +7,5 @@
 ;> a tắm rửa sức kem đã xíu ròi nhắn nhe e<br>
 ;> vô mùa mưa ròi e<br>
 ;> mai nắng thì a ra highland nhắn vs e<br>
-;> ngồi quán nó chill mà ngồi quài nó chán
+;> ngồi quán nó chill mà ngồi quài nó chán<br>
+;> khuya ròi ngủ đi e, mai nhắn tiếp nha e
