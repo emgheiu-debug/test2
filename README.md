@@ -8,4 +8,5 @@
 ;> vô mùa mưa ròi e<br>
 ;> mai nắng thì a ra highland nhắn vs e<br>
 ;> ngồi quán nó chill mà ngồi quài nó chán<br>
-;> khuya ròi ngủ đi e, mai nhắn tiếp nha e
+;> khuya ròi ngủ đi e, mai nhắn tiếp nha e<br>
+;> ngủ ngon e
