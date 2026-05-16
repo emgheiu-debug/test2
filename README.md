@@ -4,4 +4,5 @@
 ;> nghèo quài là z, tiền ít mà nhu cầu mua sắm thì nhìu <br>
 ;> có chỗ nào ổn ổn tiền nhìu hơn là a nghỉ chỗ hiện tại liền<br>
 ;> láo làm chó lun e<br>
-;> a tắm rửa sức kem đã xíu ròi nhắn nhe e
+;> a tắm rửa sức kem đã xíu ròi nhắn nhe e<br>
+;> vô mùa mưa ròi e
