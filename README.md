@@ -8,4 +8,5 @@
 ;> thích có này có kia cho bằng ngta mà ko có nên bùn thôi e<br>
 ;> a thích có nhà cao cửa rộng<br>
 ;> a sống vật chất mà e<br>
-;> a thích ăn ngon mặc đẹp ăn xài sang chơi bời bay lắc du lịch du lủng mà e
+;> a thích ăn ngon mặc đẹp ăn xài sang chơi bời bay lắc du lịch du lủng mà e<br>
+;> kiếp ng của chỉ cần có 20 tỉ là đủ
