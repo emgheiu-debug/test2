@@ -5,4 +5,5 @@
 ;> nhiệt độ thực tế có thể lên đến 41 độ đó e<br>
 ;> nghèo quá nghĩ mà bùn e<br>
 ;> a sống vật chất có sở thích xa xỉ mà nên nghèo quá nó bùn<br>
-;> thích có này có kia cho bằng ngta mà ko có nên bùn thôi e
+;> thích có này có kia cho bằng ngta mà ko có nên bùn thôi e<br>
+;> a thích có nhà cao cửa rộng
