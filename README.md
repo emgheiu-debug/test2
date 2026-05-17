@@ -12,4 +12,5 @@
 ;> kiếp ng của chỉ cần có 20 tỉ là đủ<br>
 ;> mé vô quán nước mạng lag éo làm đc gì e<br>
 ;> cơm nước tắm rửa gì chưa e<br>
-;> nào sinh nhật e e
+;> nào sinh nhật e e<br>
+;> mé ngủ quên tiếp e
