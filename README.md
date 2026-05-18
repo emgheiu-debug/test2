@@ -9,4 +9,6 @@
 ;> toàn phát sinh chi phí mà lương ko tăng<br>
 ;> đổi việc ngon thì 1-2 tháng là có ròi e, đâu cần đợi để dành<br>
 ;> mà e sống ảo tưởng a nhắn qua nhắn lại z thôi hả, nhắn riêng đi e<br>
-;> tắm rửa skinecare cái xíu a nhắn nhe e
+;> tắm rửa skinecare cái xíu a nhắn nhe e<br>
+;> a 50kg giảm 46kg là đẹp <br>
+;> muốn đổi việc mà con điện thoại muốn hư ròi e, góp thì ko dám nhảy việc mệt z
