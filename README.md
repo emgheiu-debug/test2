@@ -8,4 +8,5 @@
 ;> thì cái nào a mua 1 lần ròi thôi chứ e<br>
 ;> toàn phát sinh chi phí mà lương ko tăng<br>
 ;> đổi việc ngon thì 1-2 tháng là có ròi e, đâu cần đợi để dành<br>
-;> mà e sống ảo tưởng a nhắn qua nhắn lại z thôi hả, nhắn riêng đi e
+;> mà e sống ảo tưởng a nhắn qua nhắn lại z thôi hả, nhắn riêng đi e<br>
+;> tắm rửa skinecare cái xíu a nhắn nhe e
