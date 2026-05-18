@@ -12,4 +12,5 @@
 ;> tắm rửa skinecare cái xíu a nhắn nhe e<br>
 ;> a 50kg giảm 46kg là đẹp <br>
 ;> muốn đổi việc mà con điện thoại muốn hư ròi e, góp thì ko dám nhảy việc mệt z<br>
-;> mệt
+;> mệt<br>
+;> đợi tới ra mắt iphone 18 để mua mà hong biết điện thoại lếch tới đó đc ko nữa
