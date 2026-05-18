@@ -1,4 +1,5 @@
 ;> a nhô e<br>
 ;> cơm nước gì chưa vợ<br>
 ;> mé mới giảm đc 0.5kg giờ quay lại như cũ ròi e<br>
-;> đói quá thì ko chạy bộ đc e
+;> đói quá thì ko chạy bộ đc e<br>
+;> quá mệt lun e
