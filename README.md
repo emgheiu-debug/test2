@@ -15,4 +15,5 @@
 ;> mệt<br>
 ;> đợi tới ra mắt iphone 18 để mua mà hong biết điện thoại lếch tới đó đc ko nữa<br>
 ;> đợi cỡ nữa năm nửa, iphone 18 ra mắt tháng 9, thì cỡ tháng 12 ra dòng thường coi có hạ nhiệt bớt ko<br>
-;> e nghe mùi đợi dài cổ ròi đó, để coi tháng 4 âm lịch này sao e
+;> e nghe mùi đợi dài cổ ròi đó, để coi tháng 4 âm lịch này sao e<br>
+;> ngủ e, a bùn ngủ quá
