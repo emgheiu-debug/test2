@@ -3,4 +3,8 @@
 ;> mé mới giảm đc 0.5kg giờ quay lại như cũ ròi e<br>
 ;> đói quá thì ko chạy bộ đc e<br>
 ;> quá mệt lun e<br>
-;> a nghèo mà e, giờ a còn chưa mua đc đt mới, láo làm chó, mua lặt vặt hết mịa tiền, cơ bản lương cũng thấp làm tháng nào xào tháng đó
+;> a nghèo mà e, giờ a còn chưa mua đc đt mới, láo làm chó, mua lặt vặt hết mịa tiền, cơ bản lương cũng thấp làm tháng nào xào tháng đó<br>
+;> tháng sau học lái xe lại hết tiếp =)))<br>
+;> thì cái nào a mua 1 lần ròi thôi chứ e<br>
+;> toàn phát sinh chi phí mà lương ko tăng<br>
+;> đổi việc ngon thì 1-2 là có ròi e, đâu cần đợi để dành
