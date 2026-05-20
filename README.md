@@ -4,4 +4,5 @@
 =))) hong phải cảnh 18+ như e mơ đâu<br>
 ;> mơ thấy ở chung vs e, e chăm lo cho a =))), nấu cơm đồ<br>
 ;> hết gòy đó<br>
-;> e chắc toàn mơ cảnh làm tình ròi ra nước, e là chỉ có nhiu đó
+;> e chắc toàn mơ cảnh làm tình ròi ra nước, e là chỉ có nhiu đó<br>
+;> tính ra quen nhau hơn 2 năm ròi e
