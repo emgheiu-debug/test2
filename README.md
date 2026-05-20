@@ -6,4 +6,6 @@
 ;> hết gòy đó<br>
 ;> e chắc toàn mơ cảnh làm tình ròi ra nước, e là chỉ có nhiu đó<br>
 ;> tính ra quen nhau hơn 2 năm ròi e <br>
-;> mình ở chung lâu lâu 2 đứa mình làm con gà, nồi lẩu 2-3 lon bia uống chill chill z là ngon ròi e
+;> mình ở chung lâu lâu 2 đứa mình làm con gà, nồi lẩu 2-3 lon bia uống chill chill z là ngon ròi e<br>
+;> a thấy 2-3 lon bia cho 2 đứa mình là vừa ròi e<br>
+;> a uống bia nào giờ uống có 2-3 lon à
