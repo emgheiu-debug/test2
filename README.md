@@ -10,4 +10,6 @@
 ;> a thấy 2-3 lon bia cho 2 đứa mình là vừa ròi e<br>
 ;> a uống bia nào giờ uống có 2-3 lon à<br>
 ;> mua khô mực, đậu phộng gì đó nhai uống 1-2 lon bia<br>
-;> nữa ước có nhìu tiền để cho e làm ivf đẻ bệnh viện xịn
+;> nữa ước có nhìu tiền để cho e làm ivf đẻ bệnh viện xịn<br>
+;> a ngủ quên nha e<br>
+;> nghèo nên hay ngủ quên cho hết ngày ý e
