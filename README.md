@@ -1,3 +1,4 @@
 ;> a nhô vợ<br>
 ;> nghèo quá định ngủ cho hết ngày e<br>
-;> thấy a tính z đc hem
+;> thấy a tính z đc hem<br>
+;> nhớ ghệ iu quá à
