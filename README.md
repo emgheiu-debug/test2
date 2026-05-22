@@ -4,4 +4,5 @@
 ;> mấy nay mặt a mụn quá<br>
 ;> chắc do ngủ quên ít skinecare ý e<br>
 ;> chăm sức lại coi sao, sức thì có bớt thật e<br>
-;> a giờ ít ăn lại cho ốm bớt e
+;> a giờ ít ăn lại cho ốm bớt e<br>
+;> e nữa làm vợ a đi
