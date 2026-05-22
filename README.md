@@ -6,4 +6,5 @@
 ;> chăm sức lại coi sao, sức thì có bớt thật e<br>
 ;> a giờ ít ăn lại cho ốm bớt e<br>
 ;> e nữa làm vợ a đi<br>
-;> ghệ a rảnh e thường làm gì e
+;> ghệ a rảnh e thường làm gì e<BR>
+;> nghĩ tới tối ngủ chung e là thấy thích ròi e
