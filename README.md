@@ -8,4 +8,5 @@
 ;> e nữa làm vợ a đi<br>
 ;> ghệ a rảnh e thường làm gì e<BR>
 ;> nghĩ tới tối ngủ chung e là thấy thích ròi e<br>
-;> nói chuyện vs mấy ng bất đồng quan điểm mệt lắm e, mệt kinh khủng
+;> nói chuyện vs mấy ng bất đồng quan điểm mệt lắm e, mệt kinh khủng<br>
+;> khuya ròi ngủ đi e, ngủ ngon e
