@@ -13,4 +13,4 @@
 ;> a thì đồ đạc quần áo a để gọn đc, ăn xong dọn đc mà mềnh hong bao giờ gấp<br>
 ;> nói trước để vợ đỡ bỡ ngỡ<br>
 ;> e có vẻ thích nhìu con, mà tài chính mình có hạn a sợ lo ko nổi<br>
-;> 
+;> xíu a nhắn nhe e, a lubu xíu
