@@ -7,4 +7,6 @@
 ;> chọn e là buộc phải nghỉ 100%<br>
 ;> làm cv hiện mình như 2 đường thẳng song song z, ko ở chung đc đâu e<br>
 ;> những thứ mình vẽ ra đều là ảo tưởng hết e, vì éo có làm đc<br>
-;> nên buộc phải nghỉ việc hiện tại tìm việc phù hợp thu nhập tốt hơn ko là nghèo quài ko lối thoát
+;> nên buộc phải nghỉ việc hiện tại tìm việc phù hợp thu nhập tốt hơn ko là nghèo quài ko lối thoát<br>
+;> đi làm ko mệt cái này thì cũng mệt cái khác thôi e<br>
+;> thường thì e ngủ dậy có gấp mềnh hem, a hong
