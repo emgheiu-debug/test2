@@ -17,4 +17,5 @@
 ;> a mún bệnh tới nơi ròi<br>
 ;> tháng này a lại âm tiền ròi e<br>
 ;> làm ròi phát sinh những cái cần thiết nên âm lun e<br>
-;> nói chung hiện tại a nghèo nào rủng rỉnh tiền bạc xíu đi ròi gặp nhe e
+;> nói chung hiện tại a nghèo nào rủng rỉnh tiền bạc xíu đi ròi gặp nhe e<br>
+;> ngủ ngon e
