@@ -14,4 +14,6 @@
 ;> nói trước để vợ đỡ bỡ ngỡ<br>
 ;> e có vẻ thích nhìu con, mà tài chính mình có hạn a sợ lo ko nổi<br>
 ;> xíu a nhắn nhe e, a lubu xíu<br>
-;> a mún bệnh tới nơi ròi
+;> a mún bệnh tới nơi ròi<br>
+;> tháng này a lại âm tiền ròi e<br>
+;> làm ròi phát sinh những cái cần thiết nên âm lun e
