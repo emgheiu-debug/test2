@@ -4,4 +4,5 @@
 ;> lương chán quá làm biếng thôi e<br>
 ;> có việc khác a nghỉ liền<br>
 ;> bồ e nói là làm, láo làm chó, ăn học gì cũng quy ra kiếm tiền thôi e, a buộc phải nghỉ việc hiện tại mình mới gặp nhau đc e<br>
-;> chọn e là buộc phải nghỉ 100%
+;> chọn e là buộc phải nghỉ 100%<br>
+;> làm cv hiện mình như 2 đường thẳng song song z, ko ở chung đc đâu e
