@@ -9,4 +9,6 @@
 ;> những thứ mình vẽ ra đều là ảo tưởng hết e, vì éo có làm đc<br>
 ;> nên buộc phải nghỉ việc hiện tại tìm việc phù hợp thu nhập tốt hơn ko là nghèo quài ko lối thoát<br>
 ;> đi làm ko mệt cái này thì cũng mệt cái khác thôi e<br>
-;> thường thì e ngủ dậy có gấp mềnh hem, a hong
+;> thường thì e ngủ dậy có gấp mềnh hem, a hong<br>
+;> a thì đồ đạc quần áo a để gọn đc, ăn xong dọn đc mà mềnh hong bao giờ gấp<br>
+;> nói trước để vợ đỡ bỡ ngỡ
