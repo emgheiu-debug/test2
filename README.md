@@ -8,4 +8,5 @@
 ;> nghèo quá nhìu khi a mún ngủ cho hết ngày<br>
 ;> mé mạng lag vãi lun e<br>
 ;> a bùn ngủ gòi xíu a ngủ giờ<br>
-;> vợ a nay nhiu kg e
+;> vợ a nay nhiu kg e<br>
+;> thôi ngủ đi e, a bùn ngủ quá ròi
