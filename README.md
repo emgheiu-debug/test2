@@ -6,4 +6,6 @@
 ;> nãy giờ a coi review phim, phim lãng mạng mà nghe giọng review chán quá<br>
 ;> a tập thức khuya lại, ngủ sớm quá hem làm đc gì hết<br>
 ;> nghèo quá nhìu khi a mún ngủ cho hết ngày<br>
-;> mé mạng lag vãi lun e
+;> mé mạng lag vãi lun e<br>
+;> a bùn ngủ gòi xíu a ngủ giờ<br>
+;> vợ a nay nhiu kg e
