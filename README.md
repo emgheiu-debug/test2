@@ -5,4 +5,5 @@
 ;> cơm nước đi ròi tối tối a nhắn<br>
 ;> nãy giờ a coi review phim, phim lãng mạng mà nghe giọng review chán quá<br>
 ;> a tập thức khuya lại, ngủ sớm quá hem làm đc gì hết<br>
-;> nghèo quá nhìu khi a mún ngủ cho hết ngày
+;> nghèo quá nhìu khi a mún ngủ cho hết ngày<br>
+;> mé mạng lag vãi lun e
