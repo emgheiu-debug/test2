@@ -31,4 +31,8 @@
 ;> a giảm 3-4kg là đẹp<br>
 ;> ngày nào a cũng uống matcha nhật hết<br>
 ;> đi làm mà làm nhanh chỉ nhìu việc hơn thôi a nói thật, kinh nghiệm của a đó, có tăng lương thì cũng tăng xơ xịa 1 xíu à<br>
-;> éo lên lương lun là khác
+;> éo lên lương lun là khác<br>
+;> hong biết e thì sao chứ cty khác toàn là z ko ý e, ròi bánh vẽ, hứa hẹn các thứ<br>
+;> nữa mình có tiền mình chọn địa điểm xây khách sạn, homestay cho thuê cái thu tiền đều đều e<br>
+;> giờ nghèo quá nghĩ mà bùn e, tuy a còn trẻ nhưng a vẫn bùn<br>
+;> đi làm cty vui cỡ nào mà tiền ít a vẫn bùn
