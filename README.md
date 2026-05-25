@@ -29,4 +29,6 @@
 ;> nhìu khi ngta chủ doanh nghiệp ngta ko nắm hết chuyên môn nên ngta ko hỉu đâu, còn leader thì thờ ơ<br>
 ;> a giờ hơi mập 50kg ròi, bữa còn 49kg nay lên lại ròi e<br>
 ;> a giảm 3-4kg là đẹp<br>
-;> ngày nào a cũng uống matcha nhật hết
+;> ngày nào a cũng uống matcha nhật hết<br>
+;> đi làm mà làm nhanh chỉ nhìu việc hơn thôi a nói thật, kinh nghiệm của a đó, có tăng lương thì cũng tăng xơ xịa 1 xíu à<br>
+;> éo lên lương lun là khác
