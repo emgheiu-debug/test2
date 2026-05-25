@@ -17,4 +17,9 @@
 ;> làm 10 năm dư đc 2-300 củ là nhìu e, nằm chiêm bao đi mà mua nhà<br>
 ;> làm kiểu này ko có mua đc nhà đâu, để dành mua con xe 70-80 củ còn khó, là mất 2-3 năm, mua con đt mất 1 năm, mua con xe mất 2-3 năm tùy xe, mua con otô ghẻ mất 10 năm<br>
 ;> mua chung cư lương thấp trả góp dần 20 năm mình sẽ thành con nợ, lo sợ mất việc sống cúi mình<br>
-;> 
+;> cty lồn đợt a làm ở quận 11 á, là thg cha chủ cty đó tuyển vô xong làm hết việc là cho cút kiểu z<br>
+;> thực ra là a làm gần xong nhưng chưa push code nên thg cha đó trắng tay<br>
+;> ý là tốn tiền mà ko đc gì á e<br>
+;> giống kiểu cty outsource á e, cần ng làm hết dự án là xong kiểu z<br>
+;> mà cty outsource nhận nhìu dự án nó sẽ khác<br>
+;> nói chung là học gì cũng quy ra kiếm tiền thôi e, nhìu ng ngta làm công việc kinh doanh nhỏ bth mà họ vẫn giàu có tiền và sống tốt
