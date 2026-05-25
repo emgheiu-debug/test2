@@ -22,4 +22,5 @@
 ;> ý là tốn tiền mà ko đc gì á e<br>
 ;> giống kiểu cty outsource á e, cần ng làm hết dự án là xong kiểu z<br>
 ;> mà cty outsource nhận nhìu dự án nó sẽ khác<br>
-;> nói chung là học gì cũng quy ra kiếm tiền thôi e, nhìu ng ngta làm công việc kinh doanh nhỏ bth mà họ vẫn giàu có tiền và sống tốt
+;> nói chung là học gì cũng quy ra kiếm tiền thôi e, nhìu ng ngta làm công việc kinh doanh nhỏ bth mà họ vẫn giàu có tiền và sống tốt<br>
+;> làm cty đoan chính có thu nhập cao ròi mình tích lũy mua đất nhà, vàng phòng khi mất việc còn có tài sản ko lo móm
