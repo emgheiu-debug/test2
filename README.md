@@ -35,4 +35,6 @@
 ;> hong biết e thì sao chứ cty khác toàn là z ko ý e, ròi bánh vẽ, hứa hẹn các thứ<br>
 ;> nữa mình có tiền mình chọn địa điểm xây khách sạn, homestay cho thuê cái thu tiền đều đều e<br>
 ;> giờ nghèo quá nghĩ mà bùn e, tuy a còn trẻ nhưng a vẫn bùn<br>
-;> đi làm cty vui cỡ nào mà tiền ít a vẫn bùn
+;> đi làm cty vui cỡ nào mà tiền ít a vẫn bùn<br>
+;> nhìu ng, ngta làm tới đâu hay tới đó chứ nghĩ nhìu như a cũng hong giải quyết đc gì<br>
+;> cứ làm thôi, job ngon cứ nhảy thôi e
