@@ -25,4 +25,5 @@
 ;> nói chung là học gì cũng quy ra kiếm tiền thôi e, nhìu ng ngta làm công việc kinh doanh nhỏ bth mà họ vẫn giàu có tiền và sống tốt<br>
 ;> làm cty đoan chính có thu nhập cao ròi mình tích lũy mua đất nhà, vàng phòng khi mất việc còn có tài sản ko lo móm<br>
 ;> giờ đi làm là phải biết câu giờ, giải quyết vấn đề ko triệt để, để mình có việc mà làm quài e =))), ko bị lay off<br>
-;>
+;> làm 1 tiếng là xong thì kéo dài ra 5 tiếng =)))<br>
+;> nhìu khi ngta chủ doanh nghiệp ngta ko nắm hết chuyên môn nên ngta ko hỉu đâu, còn leader thì thờ ơ
