@@ -10,4 +10,6 @@
 ;> mập lên mặc đồ bó giò quá khó chịu<br>
 ;> a đi làm thì a thấy cty nào ko ổn thì a đổi việc thôi e, tính a z<br>
 ;> có ng thì tính dễ chịu đi làm 1 cty nhìu năm hy vọng ngta tăng lương cho mình nhưng a thì ko z<br>
-;> mấy ng đó ngta dễ tính dễ hài lòng chứ a thì ko như z
+;> mấy ng đó ngta dễ tính dễ hài lòng chứ a thì ko như z<br>
+;> a sợ già mà nghèo lắm, e làm lâu trong 1 cty thì nhìu khi nhảy việc nó cũng khó, a nói thật<br>
+;>
