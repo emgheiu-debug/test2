@@ -26,4 +26,6 @@
 ;> làm cty đoan chính có thu nhập cao ròi mình tích lũy mua đất nhà, vàng phòng khi mất việc còn có tài sản ko lo móm<br>
 ;> giờ đi làm là phải biết câu giờ, giải quyết vấn đề ko triệt để, để mình có việc mà làm quài e =))), ko bị lay off<br>
 ;> làm 1 tiếng là xong thì kéo dài ra 5 tiếng =)))<br>
-;> nhìu khi ngta chủ doanh nghiệp ngta ko nắm hết chuyên môn nên ngta ko hỉu đâu, còn leader thì thờ ơ
+;> nhìu khi ngta chủ doanh nghiệp ngta ko nắm hết chuyên môn nên ngta ko hỉu đâu, còn leader thì thờ ơ<br>
+;> a giờ hơi mập 50kg ròi, bữa còn 49kg nay lên lại ròi e<br>
+;> a giảm 3-4kg là đẹp
