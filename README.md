@@ -1,42 +1,4 @@
-;> a nhô e<br>
-;> a chồng nghèo của e nay nhắn sớm<br>
-;> mé mấy nay éo ốm miếng nào e<br>
-;> e nữa ngủ chung a chịu hem<br>
-;> tháng dư 4 củ nửa năm mới mua đc cái đt mới,a nghĩ tới mà bùn<br>
-;> làm cả đời cũng chẳng có bao nhiu tiền, mà có hơn ko e nhỉ<br>
-;> giờ thấy hem có gì để coi hết e<br>
-;> toàn là rác, đầu độc tư tưởng ko à e<br>
-;> ít bữa nữa a mua mấy cái quần đùi mặc ngủ<br>
-;> mập lên mặc đồ bó giò quá khó chịu<br>
-;> a đi làm thì a thấy cty nào ko ổn thì a đổi việc thôi e, tính a z<br>
-;> có ng thì tính dễ chịu đi làm 1 cty nhìu năm hy vọng ngta tăng lương cho mình nhưng a thì ko z<br>
-;> mấy ng đó ngta dễ tính dễ hài lòng chứ a thì ko như z<br>
-;> a sợ già mà nghèo lắm, e làm lâu trong 1 cty thì nhìu khi nhảy việc nó cũng khó, a nói thật<br>
-;> a đổi đến khi a thấy việc oke thì thôi e<br>
-;> cảm thấy ko ổn thì đổi tiếp<br>
-;> làm 10 năm dư đc 2-300 củ là nhìu e, nằm chiêm bao đi mà mua nhà<br>
-;> làm kiểu này ko có mua đc nhà đâu, để dành mua con xe 70-80 củ còn khó, là mất 2-3 năm, mua con đt mất 1 năm, mua con xe mất 2-3 năm tùy xe, mua con otô ghẻ mất 10 năm<br>
-;> mua chung cư lương thấp trả góp dần 20 năm mình sẽ thành con nợ, lo sợ mất việc sống cúi mình<br>
-;> cty lồn đợt a làm ở quận 11 á, là thg cha chủ cty đó tuyển vô xong làm hết việc là cho cút kiểu z<br>
-;> thực ra là a làm gần xong nhưng chưa push code nên thg cha đó trắng tay<br>
-;> ý là tốn tiền mà ko đc gì á e<br>
-;> giống kiểu cty outsource á e, cần ng làm hết dự án là xong kiểu z<br>
-;> mà cty outsource nhận nhìu dự án nó sẽ khác<br>
-;> nói chung là học gì cũng quy ra kiếm tiền thôi e, nhìu ng ngta làm công việc kinh doanh nhỏ bth mà họ vẫn giàu có tiền và sống tốt<br>
-;> làm cty đoan chính có thu nhập cao ròi mình tích lũy mua đất nhà, vàng phòng khi mất việc còn có tài sản ko lo móm<br>
-;> giờ đi làm là phải biết câu giờ, giải quyết vấn đề ko triệt để, để mình có việc mà làm quài e =))), ko bị lay off<br>
-;> làm 1 tiếng là xong thì kéo dài ra 5 tiếng =)))<br>
-;> nhìu khi ngta chủ doanh nghiệp ngta ko nắm hết chuyên môn nên ngta ko hỉu đâu, còn leader thì thờ ơ<br>
-;> a giờ hơi mập 50kg ròi, bữa còn 49kg nay lên lại ròi e<br>
-;> a giảm 3-4kg là đẹp<br>
-;> ngày nào a cũng uống matcha nhật hết<br>
-;> đi làm mà làm nhanh chỉ nhìu việc hơn thôi a nói thật, kinh nghiệm của a đó, có tăng lương thì cũng tăng xơ xịa 1 xíu à<br>
-;> éo lên lương lun là khác<br>
-;> hong biết e thì sao chứ cty khác toàn là z ko ý e, ròi bánh vẽ, hứa hẹn các thứ<br>
-;> nữa mình có tiền mình chọn địa điểm xây khách sạn, homestay cho thuê cái thu tiền đều đều e<br>
-;> giờ nghèo quá nghĩ mà bùn e, tuy a còn trẻ nhưng a vẫn bùn<br>
-;> đi làm cty vui cỡ nào mà tiền ít a vẫn bùn<br>
-;> nhìu ng, ngta làm tới đâu hay tới đó chứ nghĩ nhìu như a cũng hong giải quyết đc gì<br>
 ;> cứ làm thôi, job ngon cứ nhảy thôi e<br>
 ;> hôm nào a ko lubu chuyện khác như chạy bộ,... thì a nhắn sớm he e<br>
+;> bùn ngủ quá e, a đánh răng cái<br>
 ;> 
