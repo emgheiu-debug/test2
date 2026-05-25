@@ -37,4 +37,6 @@
 ;> giờ nghèo quá nghĩ mà bùn e, tuy a còn trẻ nhưng a vẫn bùn<br>
 ;> đi làm cty vui cỡ nào mà tiền ít a vẫn bùn<br>
 ;> nhìu ng, ngta làm tới đâu hay tới đó chứ nghĩ nhìu như a cũng hong giải quyết đc gì<br>
-;> cứ làm thôi, job ngon cứ nhảy thôi e
+;> cứ làm thôi, job ngon cứ nhảy thôi e<br>
+;> hôm nào a ko lubu chuyện khác như chạy bộ,... thì a nhắn sớm he e<br>
+;> 
