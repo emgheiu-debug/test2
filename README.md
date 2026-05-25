@@ -7,4 +7,7 @@
 ;> giờ thấy hem có gì để coi hết e<br>
 ;> toàn là rác, đầu độc tư tưởng ko à e<br>
 ;> ít bữa nữa a mua mấy cái quần đùi mặc ngủ<br>
-;> mập lên mặc đồ bó giò quá khó chịu
+;> mập lên mặc đồ bó giò quá khó chịu<br>
+;> a đi làm thì a thấy cty nào ko ổn thì a đổi việc thôi e, tính a z<br>
+;> có ng thì tính dễ chịu đi làm 1 cty nhìu năm hy vọng ngta tăng lương cho mình nhưng a thì ko z<br>
+;> mấy ng đó ngta dễ tính dễ hài lòng chứ a thì ko như z
