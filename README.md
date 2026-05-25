@@ -28,4 +28,5 @@
 ;> làm 1 tiếng là xong thì kéo dài ra 5 tiếng =)))<br>
 ;> nhìu khi ngta chủ doanh nghiệp ngta ko nắm hết chuyên môn nên ngta ko hỉu đâu, còn leader thì thờ ơ<br>
 ;> a giờ hơi mập 50kg ròi, bữa còn 49kg nay lên lại ròi e<br>
-;> a giảm 3-4kg là đẹp
+;> a giảm 3-4kg là đẹp<br>
+;> ngày nào a cũng uống matcha nhật hết
