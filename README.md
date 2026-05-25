@@ -14,4 +14,5 @@
 ;> a sợ già mà nghèo lắm, e làm lâu trong 1 cty thì nhìu khi nhảy việc nó cũng khó, a nói thật<br>
 ;> a đổi đến khi a thấy việc oke thì thôi e<br>
 ;> cảm thấy ko ổn thì đổi tiếp<br>
-;> làm 10 năm dư đc 2-300 củ là nhìu e, nằm chiêm bao đi mà mua nhà
+;> làm 10 năm dư đc 2-300 củ là nhìu e, nằm chiêm bao đi mà mua nhà<br>
+;> làm kiểu này ko có mua đc nhà đâu, để dành mua con xe 70-80 củ còn khó, là mất 2-3 năm, mua con đt mất 1 năm, mua con xe mất 2-3 năm tùy xe, mua con otô ghẻ mất 10 năm
