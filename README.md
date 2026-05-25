@@ -12,4 +12,5 @@
 ;> có ng thì tính dễ chịu đi làm 1 cty nhìu năm hy vọng ngta tăng lương cho mình nhưng a thì ko z<br>
 ;> mấy ng đó ngta dễ tính dễ hài lòng chứ a thì ko như z<br>
 ;> a sợ già mà nghèo lắm, e làm lâu trong 1 cty thì nhìu khi nhảy việc nó cũng khó, a nói thật<br>
-;>
+;> a đổi đến khi a thấy việc oke thì thôi e<br>
+;> cảm thấy ko ổn thì đổi tiếp
