@@ -1,2 +1,5 @@
 ;> a nhô vợ iu<br>
-;> cơm nước gì chưa e
+;> cơm nước gì chưa e<br>
+;> vợ a chắc hay móc lavabo<br>
+;> e iu xa toàn tự xử, e iu lúc tuổi 29 nó khác vs a iu lúc 13-14  <br>
+;> 
