@@ -6,4 +6,8 @@
 ;> tối 2 mình ôm nhau, nắm tay ngủ<br>
 ;> mới đầu từ từ cho đỡ ngại e, a giờ bớt a lại cho gầy đẹp đẽ lại<br>
 ;> a thì ko ăn nhậu, ko ăn chơi, ko ăn xài vì ko có tiền nên ko sanh tật đc e =)))<br>
-;> nghèo nên cũng hạn chế
+;> nghèo nên cũng hạn chế<br>
+;> xíu a ngủ ròi, ghệ iu có muốn nói gì vs a hem<br>
+;> a đói thành ra là a lười chạy bộ thôi e<br>
+;> mà chạy bộ đốt 100 calo đi, xong a lại bù cũng quá cha thôi e<br>
+;> đang mập mà ăn ít lại công nhận đói mờ mắt thật e
