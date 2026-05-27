@@ -10,4 +10,6 @@
 ;> xíu a ngủ ròi, ghệ iu có muốn nói gì vs a hem<br>
 ;> a đói thành ra là a lười chạy bộ thôi e<br>
 ;> mà chạy bộ đốt 100 calo đi, xong a lại bù cũng quá cha thôi e<br>
-;> đang mập mà ăn ít lại công nhận đói mờ mắt thật e
+;> đang mập mà ăn ít lại công nhận đói mờ mắt thật e<br>
+;> chưa kịp thích nghi thôi e, a cũng hong bị đau bao tử nữa<br>
+;> nhìu ng nhịn ăn sao bị đau bao tử a cũng hong biết nữa, chứ a chưa bị
