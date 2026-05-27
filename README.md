@@ -16,4 +16,6 @@
 ;> mập mặt a bự chứ hong gì e<br>
 ;> e chắc thích làm tình vs a lắm<br>
 ;> gì cũng phải từ từ chứ e, chưa nắm tay ăn chung ngủ chung mà nắc gì e<br>
-;> khuya ròi ngủ đi e, a ngủ à e, ngủ ngon e
+;> khuya ròi ngủ đi e, a ngủ à e, ngủ ngon e<br>
+;> mà của e để lông hay tỉa hay cạo dị e<br>
+;> hay có sao để z à, ngủ nhe e, bye e
