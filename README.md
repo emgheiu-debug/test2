@@ -7,4 +7,6 @@
 ;> mới giờ chồng bùn ngủ quá e<br>
 ;> công việc e ổn hem e<br>
 ;> chúc vợ làm ăn phát đạt ngày càng giàu dư giả trả nợ<br>
-;> thôi giờ a sửa soạn sức kem để ko ngủ quên
+;> thôi giờ a sửa soạn sức kem để ko ngủ quên<br>
+;> vô mùa mưa ròi e, mùa cô đơn<br>
+;> mặt a dạo này mụn quá, hay mập lên mụn nhìu e
