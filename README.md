@@ -11,4 +11,6 @@
 ;> yên tâm đi nữa a ở chung e mà<br>
 ;> a chốt z mà, a còn trẻ tiền bạc chưa có thì chăm chăm vô sự nghiệp chứ sao e<br>
 ;> thiếu gì tìm nấy mà<br>
-;> bùn ngủ quá e, mắt muốn sụp lun gòi
+;> bùn ngủ quá e, mắt muốn sụp lun gòi<br>
+;> iu xa ít có gặp nên e ko yên tâm à<br>
+;> e dạo này có hay tự xử ko
