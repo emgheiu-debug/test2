@@ -13,4 +13,6 @@
 ;> thiếu gì tìm nấy mà<br>
 ;> bùn ngủ quá e, mắt muốn sụp lun gòi<br>
 ;> iu xa ít có gặp nên e ko yên tâm à<br>
-;> e dạo này có hay tự xử ko
+;> e dạo này có hay tự xử ko<br>
+;> a cảm thấy nghèo quá, a đi gặp bạn a ròi a cho e biết địa chỉ e đeo theo nhìn lát chứ cũng có gì đâu<br>
+;> 
