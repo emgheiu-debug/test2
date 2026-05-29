@@ -7,4 +7,7 @@
 ;> a quan trọng tiền bạc sự nghiệp lắm<br>
 ;> ko tiền mới khổ e<br>
 ;> a ko thích mua đồ mà cứ đợi chờ hay trả góp ròi lo sợ bị lay off mệt lắm<br>
-;> cảm ròi uống thuốc bùn ngủ vl lun e
+;> cảm ròi uống thuốc bùn ngủ vl lun e<br>
+;> yên tâm đi nữa a ở chung e mà<br>
+;> a chốt z mà, a còn trẻ tiền bạc chưa có thì chăm chăm vô sự nghiệp chứ sao e<br>
+;> thiếu gì tìm nấy mà
