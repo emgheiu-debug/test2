@@ -15,4 +15,6 @@
 ;> iu xa ít có gặp nên e ko yên tâm à<br>
 ;> e dạo này có hay tự xử ko<br>
 ;> a cảm thấy nghèo quá, a đi gặp bạn a ròi a cho e biết địa chỉ e đeo theo nhìn lát chứ cũng có gì đâu<br>
-;> 
+;> mà a đâu có tiền dư giả đâu mà gặp bạn nên là ko cho e biết địa chỉ <br>
+;> đang nghèo mà đi ăn vs bạn tốn kém ra<br>
+;> thôi a bùn ngủ ròi, ngủ ngon e
