@@ -10,4 +10,5 @@
 ;> cảm ròi uống thuốc bùn ngủ vl lun e<br>
 ;> yên tâm đi nữa a ở chung e mà<br>
 ;> a chốt z mà, a còn trẻ tiền bạc chưa có thì chăm chăm vô sự nghiệp chứ sao e<br>
-;> thiếu gì tìm nấy mà
+;> thiếu gì tìm nấy mà<br>
+;> bùn ngủ quá e, mắt muốn sụp lun gòi
