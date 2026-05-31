@@ -8,4 +8,5 @@
 ;> a nói z chắc e tưởng tượng đến massage kích dục, massage đèn mờ =)))<br>
 ;> chỉ z là nhanh, massage sẵn bóp này bóp kia lun chắc e nghĩ z<br>
 ;> e là gì mà nghe tới tình dục là ham lắm<br>
-;> ở chung giặt đồ chung chắc e soi quần xì a à
+;> ở chung giặt đồ chung chắc e soi quần xì a à<br>
+;> tính ra a chạy 6 buổix4km thì đốt đc 100g mỡ thấy cũng ổn ổn, 100g mỡ =770 calo e
