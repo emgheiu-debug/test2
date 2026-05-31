@@ -6,4 +6,5 @@
 ;> mai a rảnh a định đi  hớt tóc coi, ko biết kiểu nào đẹp<br>
 ;> ngủ e, xíu nữa a ngủ ròi<br>
 ;> tóc chưa dài lắm thôi tạm thời chưa hớt<br>
-;> a mới cân lại giảm đc xíu, giảm cân cho mặt gọn xíu e
+;> a mới cân lại giảm đc xíu, giảm cân cho mặt gọn xíu e<br>
+;> nay rảnh có làm gì hem e
