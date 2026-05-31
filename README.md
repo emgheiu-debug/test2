@@ -11,4 +11,5 @@
 ;> ở chung giặt đồ chung chắc e soi quần xì a à<br>
 ;> tính ra a chạy 6 buổix4km thì đốt đc 100g mỡ thấy cũng ổn ổn, 100g mỡ =770 calo e<br>
 ;> tuổi e là tuổi ăn tuổi đụ <br>
-;> ở chung vs a là e rạo rực con chêm
+;> ở chung vs a là e rạo rực con chêm<br>
+;> ngủ đi e, ngủ ngon mai chồng nhắn
