@@ -7,4 +7,7 @@
 ;> ngủ e, xíu nữa a ngủ ròi<br>
 ;> tóc chưa dài lắm thôi tạm thời chưa hớt<br>
 ;> a mới cân lại giảm đc xíu, giảm cân cho mặt gọn xíu e<br>
-;> nay rảnh có làm gì hem e
+;> nay rảnh có làm gì hem e<br>
+;> chiều chắc a đi chạy bộ, mấy nay bớt ăn lại mà giảm ko có nhiu hết<br>
+;> đói thì cũng lười chạy e<br>
+;> 
