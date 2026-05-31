@@ -6,4 +6,5 @@
 ;> mà a cảm thấy ko có ốm gì mấy<br>
 ;> sao a chạy bộ nhứt dò nhứt tay quá, vợ qua đấm bóp vắt hơi cho a coi<br>
 ;> a nói z chắc e tưởng tượng đến massage kích dục, massage đèn mờ =)))<br>
-;> chỉ z là nhanh, massage sẵn bóp này bóp kia lun chắc e nghĩ z
+;> chỉ z là nhanh, massage sẵn bóp này bóp kia lun chắc e nghĩ z<br>
+;> e là gì mà nghe tới tình dục là ham lắm
