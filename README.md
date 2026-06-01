@@ -15,4 +15,6 @@
 ;> bàn giò của người 49.5 kg =))<br>
 ;> ở chung thì thỉnh thoảng mỉnh ăn cơm tiệm e, làm có tiền thì cuộc sống nó thoải mái, lúc này lúc kia cho đỡ ngán e<br>
 ;> bùn ngủ quá e<br>
-;> nay ngủ sớm nha e bùn ngủ quá a đi tắm đã
+;> nay ngủ sớm nha e bùn ngủ quá a đi tắm đã<br>
+;> móng giò a bị gãy hình tam giác ròi<br>
+;> 
