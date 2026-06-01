@@ -17,4 +17,4 @@
 ;> bùn ngủ quá e<br>
 ;> nay ngủ sớm nha e bùn ngủ quá a đi tắm đã<br>
 ;> móng giò a bị gãy hình tam giác ròi<br>
-;> 
+;> mới mua chai sức mụn tiếp, mụn quá sức hao thật e
