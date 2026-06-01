@@ -13,4 +13,5 @@
 ;> mong tới khúc giàu, ko giàu thì già thôi e<br>
 ;> mới giảm đc 0.5kg e<br>
 ;> bàn giò của người 49.5 kg =))<br>
-;> ở chung thì thỉnh thoảng mỉnh ăn cơm tiệm e, làm có tiền thì cuộc sống nó thoải mái, lúc này lúc kia cho đỡ ngán e
+;> ở chung thì thỉnh thoảng mỉnh ăn cơm tiệm e, làm có tiền thì cuộc sống nó thoải mái, lúc này lúc kia cho đỡ ngán e<br>
+;> bùn ngủ quá e
