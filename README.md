@@ -11,4 +11,6 @@
 <img width="100" height="100" alt="z7890048264220_3850b14adedb6d478be90e8423c8524c" src="https://github.com/user-attachments/assets/37c0d1ef-e309-4c20-9152-d47c185592dd" /><br>
 ;> băng lại z chứ còn nhứt ngón giò<br>
 ;> mong tới khúc giàu, ko giàu thì già thôi e<br>
-;> mới giảm đc 0.5g e
+;> mới giảm đc 0.5kg e<br>
+;> bàn giò của người 49.5 kg =))<br>
+;> ở chung thì thỉnh thoảng mỉnh ăn cơm tiệm e, làm có tiền thì cuộc sống nó thoải mái, lúc này lúc kia cho đỡ ngán e
