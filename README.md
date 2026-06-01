@@ -4,4 +4,6 @@
 ;> bị xấu ngón giò thôi e<br>
 ;> mua thuốc khử trùng, vs quấn băng keo gòi e<br>
 ;> xíu rãnh a nhắn nhe e<br>
-;> chân chống xe của ngta ý e, a dắt xong bị nó quẹt vô té cớt
+;> chân chống xe của ngta ý e, a dắt xong bị nó quẹt vô té cớt<br>
+;> do a ẩu thôi, nào giờ dắt xe ngta ra có bị z đâu<br>
+;> dắt xe ngta mới dắt đc xe mình chứ e
