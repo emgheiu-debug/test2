@@ -6,4 +6,5 @@
 ;> do a ẩu thôi, nào giờ dắt xe ngta ra có bị z đâu<br>
 ;> dắt xe ngta mới dắt đc xe mình chứ e<br>
 ;> để hình ngón giò nhìn ghê ý e, sao lát ăn cơm đc<br>
-;> quen e để e chăm lo cho a chứ làm chi e, còn e quen a để xã nunggfd
+;> quen e để e chăm lo cho a chứ làm chi e, còn e quen a để xã nunggfd<br>
+;> mới giờ a bùn ngủ ròi e, vái mau hết ngày hết tháng
