@@ -3,4 +3,5 @@
 ;> a mới làm về dắt xe bị quẹt móng giò<br>
 ;> bị xấu ngón giò thôi e<br>
 ;> mua thuốc khử trùng, vs quấn băng keo gòi e<br>
-;> xíu rãnh a nhắn nhe e
+;> xíu rãnh a nhắn nhe e<br>
+;> chân chống xe của ngta ý e, a dắt xong bị nó quẹt vô té cớt
