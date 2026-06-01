@@ -7,4 +7,7 @@
 ;> dắt xe ngta mới dắt đc xe mình chứ e<br>
 ;> để hình ngón giò nhìn ghê ý e, sao lát ăn cơm đc<br>
 ;> quen e để e chăm lo cho a chứ làm chi e, còn e quen a để xã nunggfd<br>
-;> mới giờ a bùn ngủ ròi e, vái mau hết ngày hết tháng
+;> mới giờ a bùn ngủ ròi e, vái mau hết ngày hết tháng<br>
+<img width="100" height="100" alt="z7890048264220_3850b14adedb6d478be90e8423c8524c" src="https://github.com/user-attachments/assets/37c0d1ef-e309-4c20-9152-d47c185592dd" /><br>
+;> băng lại z chứ còn nhứt ngón giò<br>
+;> mong tới khúc giàu, ko giàu thì già thôi e
