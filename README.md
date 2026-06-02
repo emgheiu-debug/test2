@@ -7,4 +7,5 @@
 ;> e ko nghe nghèo ko có con cũng là 1 loại tích phước<br>
 ;> giờ a nghèo a lo thân a chưa xong con cái gì e<br>
 ;> nghèo quá bùn ngủ tối ngày à e, ngủ cho hết ngày<br>
-;> vợ a nay tròn mập ròi quá
+;> vợ a nay tròn mập ròi quá<br>
+;> ngón giò a đỡ đau nhìu ròi e
