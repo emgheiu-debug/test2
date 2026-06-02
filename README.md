@@ -6,4 +6,5 @@
 ;> e mún có mấy con, a thì sao cũng đc tùy túi tiền của mình nữa, có con theo túi tiền thôi e<br>
 ;> e ko nghe nghèo ko có con cũng là 1 loại tích phước<br>
 ;> giờ a nghèo a lo thân a chưa xong con cái gì e<br>
-;> nghèo quá bùn ngủ tối ngày à e, ngủ cho hết ngày
+;> nghèo quá bùn ngủ tối ngày à e, ngủ cho hết ngày<br>
+;> vợ a nay tròn mập ròi quá
