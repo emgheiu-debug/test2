@@ -10,4 +10,5 @@
 ;> vợ a nay tròn mập ròi quá<br>
 ;> ngón giò a đỡ đau nhìu ròi e<br>
 ;> bữa đó biết sao bị quẹt chân chống vô ngón giò hem e, tại vì chiếc xe ngta dắt sát vô xe a nên a mún dắt xe về thì phải dắt xe ngta ra<br>
-;> ngta đậu ko sát là đâu có bị
+;> ngta đậu ko sát là đâu có bị<br>
+;> quen e nửa ăn cơm chung, giặt đồ chung, để đổ chung, ngủ chung thôi, ở chung thì nhìu cái chung mà e
