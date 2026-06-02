@@ -8,4 +8,6 @@
 ;> giờ a nghèo a lo thân a chưa xong con cái gì e<br>
 ;> nghèo quá bùn ngủ tối ngày à e, ngủ cho hết ngày<br>
 ;> vợ a nay tròn mập ròi quá<br>
-;> ngón giò a đỡ đau nhìu ròi e
+;> ngón giò a đỡ đau nhìu ròi e<br>
+;> bữa đó biết sao bị quẹt chân chống vô ngón giò hem e, tại vì chiếc xe ngta dắt sát vô xe a nên a mún dắt xe về thì phải dắt xe ngta ra<br>
+;> ngta đậu ko sát là đâu có bị
