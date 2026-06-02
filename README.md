@@ -4,4 +4,6 @@
 ;> chăm chồng như chăm con z á e<br>
 ;> ghệ răm a tắm rửa cơm nước chưa e<br>
 ;> e mún có mấy con, a thì sao cũng đc tùy túi tiền của mình nữa, có con theo túi tiền thôi e<br>
-;> e ko nghe nghèo ko có con cũng là 1 loại tích phước
+;> e ko nghe nghèo ko có con cũng là 1 loại tích phước<br>
+;> giờ a nghèo a lo thân a chưa xong con cái gì e<br>
+;> 
