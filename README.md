@@ -10,4 +10,6 @@
 ;> a đi làm vì tiền mà e<br>
 ;> a mới giảm nữa kg xong mập lại kí như cũ<br>
 ;> a thấy a ít ăn ròi mà cũng đâu ốm gì mấy ta<br>
-;> đói quá lười chạy bộ lun e
+;> đói quá lười chạy bộ lun e<br>
+;> tối hôm qua ăn có 1 chén cơm à e, sáng dậy đói vãi<br>
+;> z mà vẫn 50kg =))
