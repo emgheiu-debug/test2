@@ -16,4 +16,5 @@
 ;> éo có gì coi hết e, toàn xàm lòn, quá chán<br>
 ;> trên mạng bịp là nhìu e, a hong thấy gì hay hết<br>
 ;> a tắm rửa làm chuyện lặt vặt xíu nhắn nhe e<br>
-;> nửa ở chung a chăm a nhe e 
+;> nửa ở chung a chăm a nhe e <br>
+;> ý a là chăm cơm nước lặt vặt trong nhà thôi
