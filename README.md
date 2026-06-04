@@ -22,4 +22,5 @@
 ;> a ở 1 mình a là z á, nào thấy dơ a mới dọn<br>
 ;> tính a cũng bừa bộn<br>
 ;> chắc tại chỗ a ở nhỏ xíu, ko có đồ đạc kệ tủ gì, bàn ghế gì mấy<br>
-;> mà giờ a bùn ngủ quá e
+;> mà giờ a bùn ngủ quá e<br>
+;> chăm skinecare giờ a cũng đỡ mụn gòi e
