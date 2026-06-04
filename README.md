@@ -23,4 +23,5 @@
 ;> tính a cũng bừa bộn<br>
 ;> chắc tại chỗ a ở nhỏ xíu, ko có đồ đạc kệ tủ gì, bàn ghế gì mấy<br>
 ;> mà giờ a bùn ngủ quá e<br>
-;> chăm skinecare giờ a cũng đỡ mụn gòi e
+;> chăm skinecare giờ a cũng đỡ mụn gòi e<br>
+;> ngủ nhe e, a bùn ngủ quá, ngủ ngon e
