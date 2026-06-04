@@ -19,4 +19,6 @@
 ;> nửa ở chung a chăm a nhe e <br>
 ;> ý a là chăm cơm nước lặt vặt trong nhà thôi<br>
 ;> thí dụ giờ giường ngủ chung quần áo thay xong để đó thì a giặt đồ a đi gom lại a giặt a phơi<br>
-;> a ở 1 mình a là z á, nào thấy dơ a mới dọn
+;> a ở 1 mình a là z á, nào thấy dơ a mới dọn<br>
+;> tính a cũng bừa bộn<br>
+;> giờ a bùn ngủ quá e
