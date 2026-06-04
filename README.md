@@ -5,4 +5,4 @@
 ;> a cũng hơi có tuổi ròi e, ngại thất nghiệp<br>
 ;> đời ng có số e<br>
 ;> éo biết sao bà thầy bói, nói năm sau nhìu tiền mà giờ còn nghèo e<br>
-;> 
+;> nghèo ko tiền cũng buồn
