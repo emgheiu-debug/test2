@@ -15,4 +15,5 @@
 ;> z mà vẫn 50kg =))<br>
 ;> éo có gì coi hết e, toàn xàm lòn, quá chán<br>
 ;> trên mạng bịp là nhìu e, a hong thấy gì hay hết<br>
-;> a tắm rửa làm chuyện lặt vặt xíu nhắn nhe e
+;> a tắm rửa làm chuyện lặt vặt xíu nhắn nhe e<br>
+;> nửa ở chung a chăm a nhe e 
