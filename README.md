@@ -13,4 +13,6 @@
 ;> đói quá lười chạy bộ lun e<br>
 ;> tối hôm qua ăn có 1 chén cơm à e, sáng dậy đói vãi<br>
 ;> z mà vẫn 50kg =))<br>
-;> éo có gì coi hết e, toàn xàm lòn, quá chán
+;> éo có gì coi hết e, toàn xàm lòn, quá chán<br>
+;> trên mạng bịp là nhìu e, a hong thấy gì hay hết<br>
+;> 
