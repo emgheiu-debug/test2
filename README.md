@@ -12,4 +12,5 @@
 ;> a thấy a ít ăn ròi mà cũng đâu ốm gì mấy ta<br>
 ;> đói quá lười chạy bộ lun e<br>
 ;> tối hôm qua ăn có 1 chén cơm à e, sáng dậy đói vãi<br>
-;> z mà vẫn 50kg =))
+;> z mà vẫn 50kg =))<br>
+;> éo có gì coi hết e, toàn xàm lòn, quá chán
