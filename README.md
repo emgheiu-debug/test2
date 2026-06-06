@@ -3,4 +3,6 @@
 ;> lâu lâu chạy đau thắt lưng dữ e<br>
 ;> a ngủ quên xíu e, chán quá mà<br>
 ;> đi làm phải cho ngta tin mình gắn bó lâu dài vs ngta, để xin nghỉ nó dễ <br>
-;> a làm kiểu này chắc a nghèo cả đời quá e, mà đổi việc giờ khó
+;> a làm kiểu này chắc a nghèo cả đời quá e, mà đổi việc giờ khó<br>
+;> mé hôm qua tự dưng sáng a chạy xe cái có con gì cắt cổ a 1 phát<br>
+;> giờ còn sưng lun
