@@ -5,4 +5,5 @@
 ;> ngón giò a lành ròi, hôm qua chạy bộ ròi nên hơm nay hem chạy bộ nữa<br>
 ;> mé đi quán nước ồn vl lun e, gặp 2 con mẹ châu mỏ lại nói đau hết đầu<br>
 ;> e chắc nhìu quần áo lắm, a thấy cũng bth thôi, phụ nữ mà phải se sua, ko lẽ có mấy bộ mặc đi mặc lại như a<br>
-;> e mặc áo dú size maximum hả 
+;> e mặc áo dú size maximum hả <br>
+;> a mà có nghèo là a hay ngủ quên lắm cho hết ngày chứ có tiền là ko có ngủ quên đâu e
