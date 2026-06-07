@@ -15,4 +15,5 @@
 ;> nãy giờ a lubu xíu nhe e<br>
 ;> chứ hem phải ngủ quên nhe e<br>
 ;> iu xa chắc e toàn tự xử ko<br>
-;> ngủ ngon nhe e, a cũng sắp ngủ ròi
+;> ngủ ngon nhe e, a cũng sắp ngủ ròi<br>
+;> e ghệ răm ngủ ngon
