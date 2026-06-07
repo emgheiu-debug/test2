@@ -9,4 +9,6 @@
 ;> a mà có nghèo là a hay ngủ quên lắm cho hết ngày chứ có tiền là ko có ngủ quên đâu e<br>
 ;> nào có tiền là a thức khuya e hiểu hem, thức khuya để lựa đồ xịn đồ mắc tiền để mua =)))<br>
 ;> còn nghèo là ngủ sớm<br>
-;> ai mua đồ ko cần nhìn giá ko cần lựa là giàu nhìu tiền lắm ý e
+;> ai mua đồ ko cần nhìn giá ko cần lựa là giàu nhìu tiền lắm ý e<br>
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/20d1df4b-bfa1-476a-bf50-92729b561491" /><br>
+;> ngón giò a lành ròi mà xấu hoắc lun
