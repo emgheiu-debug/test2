@@ -11,4 +11,5 @@
 ;> còn nghèo là ngủ sớm<br>
 ;> ai mua đồ ko cần nhìn giá ko cần lựa là giàu nhìu tiền lắm ý e<br>
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/20d1df4b-bfa1-476a-bf50-92729b561491" /><br>
-;> ngón giò a lành ròi mà xấu hoắc lun
+;> ngón giò a lành ròi mà xấu hoắc lun<br>
+;> nãy giờ a lubu xíu nhe e
