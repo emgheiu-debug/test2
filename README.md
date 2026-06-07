@@ -8,4 +8,5 @@
 ;> e mặc áo dú size maximum hả <br>
 ;> a mà có nghèo là a hay ngủ quên lắm cho hết ngày chứ có tiền là ko có ngủ quên đâu e<br>
 ;> nào có tiền là a thức khuya e hiểu hem, thức khuya để lựa đồ xịn đồ mắc tiền để mua =)))<br>
-;> còn nghèo là ngủ sớm
+;> còn nghèo là ngủ sớm<br>
+;> ai mua đồ ko cần nhìn giá ko cần lựa là giàu nhìu tiền lắm ý e
