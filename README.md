@@ -14,4 +14,5 @@
 ;> ngón giò a lành ròi mà xấu hoắc lun<br>
 ;> nãy giờ a lubu xíu nhe e<br>
 ;> chứ hem phải ngủ quên nhe e<br>
-;> iu xa chắc e toàn tự xử ko
+;> iu xa chắc e toàn tự xử ko<br>
+;> ngủ ngon nhe e, a cũng sắp ngủ ròi
