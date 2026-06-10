@@ -6,4 +6,5 @@
 ;> có nước mua máy mới<br>
 ;> ít nhắn mấy bữa ròi vợ a có nungfd hem<br>
 ;> a đi tắm xíu e<br>
-;> vệ sinh ròi skinecare đồ chứ e, nửa thơm tho mới ngủ vs vợ đc chứ
+;> vệ sinh ròi skinecare đồ chứ e, nửa thơm tho mới ngủ vs vợ đc chứ<br>
+;> nay chán quá bùn ngủ thì ngủ sớm thôi e
