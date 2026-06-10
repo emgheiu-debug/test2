@@ -5,4 +5,5 @@
 ;> ko có nâng đc, máy hàn như macbook z đó e<br>
 ;> có nước mua máy mới<br>
 ;> ít nhắn mấy bữa ròi vợ a có nungfd hem<br>
-;>
+;> a đi tắm xíu e<br>
+;> vệ sinh ròi skinecare đồ chứ e, nửa thơm tho mới ngủ vs vợ đc chứ
