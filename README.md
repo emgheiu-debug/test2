@@ -7,4 +7,7 @@
 ;> ít nhắn mấy bữa ròi vợ a có nungfd hem<br>
 ;> a đi tắm xíu e<br>
 ;> vệ sinh ròi skinecare đồ chứ e, nửa thơm tho mới ngủ vs vợ đc chứ<br>
-;> nay chán quá bùn ngủ thì ngủ sớm thôi e
+;> nay chán quá bùn ngủ thì ngủ sớm thôi e<br>
+;> có tiền cái mình mua mấy loại cây chanh vàng, mình ươm hạt rau xà lách, hành ớt đồ đó e<br>
+;> nhìn chill mà ăn lẩu lấy trụng ăn cũng tươi ngon nữa e<br>
+;> mấy nay a hem chạy bộ lun, ko thì thứ 7 chủ nhật chạy thôi e
