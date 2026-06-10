@@ -14,4 +14,5 @@
 ;> giờ a thấy mấy người lấy sai chồng lấy sai vợ cũng khổ như nhau e nhỉ<br>
 ;> răng a củng trắng chứ hong vàng đâu e, cũng chả có cao gì mấy mà kỹ tính thì bỏ 200k ra cao vôi, mà ít quá cạo uổng tiền, ngta lam xơ xịa  5- 10 phút cái ăn 200k <br>
 ;> nửa e làm vợ a thì a chăm e<br>
-;> chăm qua chăm lại, ai chăm ít chăm nhìu thì tùy thôi e
+;> chăm qua chăm lại, ai chăm ít chăm nhìu thì tùy thôi e<br>
+;> bùn ngủ quá e, ngủ ngon e
