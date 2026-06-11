@@ -7,4 +7,5 @@
 ;> ko tiền thì khổ thôi e<br>
 ;> nửa e làm vợ a mình cùng nhau trồng vườn rau, hợp tính hợp quan điểm vs a<br>
 ;> tối mình ăn chung ngủ chung<br>
-;> e chắc tuần nào cũng nungfd hết
+;> e chắc tuần nào cũng nungfd hết<br>
+;> e chắc hay đòi trả bài lắm
