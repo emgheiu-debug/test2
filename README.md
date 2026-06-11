@@ -3,4 +3,5 @@
 ;> ko thì gần cuối năm gặp<br>
 ;> bùn ngủ quá vợ ơi<br>
 ;> a đi tắm đã ròi nhắn sau nhe e, a hơi bùn ngủ ròi<br>
-;> đợi a bớt nghèo chút chút đi ròi mình gặp nhau
+;> đợi a bớt nghèo chút chút đi ròi mình gặp nhau<br>
+;> ko tiền thì khổ thôi e
