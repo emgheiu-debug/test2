@@ -2,4 +2,5 @@
 ;> nào a đổi việc đi ròi mình gặp nhau nhe e<br>
 ;> ko thì gần cuối năm gặp<br>
 ;> bùn ngủ quá vợ ơi<br>
-;> a đi tắm đã ròi nhắn sau nhe e, a hơi bùn ngủ ròi
+;> a đi tắm đã ròi nhắn sau nhe e, a hơi bùn ngủ ròi<br>
+;> đợi a bớt nghèo chút chút đi ròi mình gặp nhau
