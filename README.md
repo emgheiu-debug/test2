@@ -8,4 +8,5 @@
 ;> nửa e làm vợ a mình cùng nhau trồng vườn rau, hợp tính hợp quan điểm vs a<br>
 ;> tối mình ăn chung ngủ chung<br>
 ;> e chắc tuần nào cũng nungfd hết<br>
-;> e chắc hay đòi trả bài lắm
+;> e chắc hay đòi trả bài lắm<br>
+;> ngủ vợ ơi ngủ ngon e
