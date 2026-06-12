@@ -3,4 +3,5 @@
 ;> a tắm rửa cái xíu a nhắn nhe e, mình mẩy a thúi quắc à<br>
 ;> mé tự dưng mặt a mụn quá, chắc ăn nhìu mập lên mụn hả e<br>
 ![Uploading image.png…]()<br>
-;> mé nghèo quá thì bùn e, làm ko dư mua sắm con mịa gì hết e
+;> mé nghèo quá thì bùn e, làm ko dư mua sắm con mịa gì hết e<br>
+;> bùn ngủ quá e ơi
