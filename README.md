@@ -1,10 +1,4 @@
 ;> a nhô e<br>
-;> bóp dú cái e<br>
-;> a tắm rửa cái xíu a nhắn nhe e, mình mẩy a thúi quắc à<br>
-;> mé tự dưng mặt a mụn quá, chắc ăn nhìu mập lên mụn hả e<br>
-![Uploading image.png…]()<br>
-;> mé nghèo quá thì bùn e, làm ko dư mua sắm con mịa gì hết e<br>
-;> bùn ngủ quá e ơi<br>
-;> e ở chung a chắc ăn chung ngủ chung, a phụ làm việc nhà về cái ăn ngủ hết mịa 1 ngày<br>
-;> lặp lại 365ngày<br>
-;> a ngủ nhe vợ, bùn ngủ lắm ròi e, chủ nhật a nhắn vs e nhìu nhìu cho nhe e
+;> mé mới giờ bùn ngủ quá e<br>
+<img width="30" height="30" alt="z7933231166243_cae1ab5479bbf6080da395ac36fc1458" src="https://github.com/user-attachments/assets/d891bede-f58f-45bc-88c3-275a05ae3854" /><br>
+;> mé nay gọt xoài đứt tay
