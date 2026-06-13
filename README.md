@@ -6,4 +6,5 @@
 ;> nào a đổi việc đc thì mình gặp nhau e sớm, ko thì cận tết<br>
 ;> giờ 28/4 âm lịch ròi e<br>
 ;> e nữa làm vợ a<br>
-;> nữa shạre việc nhà ra thôi e, ví dụ e đi làm bận quá thì a làm, ko thì ngược lại z đó, a thì quan điểm của a là ưu tiên cái chuyện mà kiếm tiền hơn cái chuyện làm việc nhà
+;> nữa shạre việc nhà ra thôi e, ví dụ e đi làm bận quá thì a làm, ko thì ngược lại z đó, a thì quan điểm của a là ưu tiên cái chuyện mà kiếm tiền hơn cái chuyện làm việc nhà<br>
+;> bùn ngủ quá e, a ngủ nhe e
