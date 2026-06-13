@@ -5,4 +5,5 @@
 ;> tách xoài bằng cái dao mà dao giống như dao bào ý e<br>
 ;> nào a đổi việc đc thì mình gặp nhau e sớm, ko thì cận tết<br>
 ;> giờ 28/4 âm lịch ròi e<br>
-;> 
+;> e nữa làm vợ a<br>
+;>
