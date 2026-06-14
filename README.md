@@ -15,4 +15,5 @@
 ;> a thấy tóc phần trước chưa dài lắm, giờ cắt sợ cắt ko đều,thôi để dài xíu ròi cắt<br>
 ;> e làm biếng vận động à<br>
 ;> tập thể dục lên cho a, tập thể dục cho body ngon nhìn mới dễ nungfd đc e<br>
-;> nhìn hem nungfd éo nắc lun
+;> nhìn hem nungfd éo nắc lun<br>
+;> e răm lắm a biết thừa
