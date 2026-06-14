@@ -18,4 +18,6 @@
 ;> nhìn hem nungfd éo nắc lun<br>
 ;> e răm lắm a biết thừa<br>
 ;> xíu nữa a ngủ e có ngủ , ngủ đi nhe e<br>
-;> để mốt có tiền dư giả xíu đi cạo vôi răng cho sạch e, tầm 200k chứ nhiu
+;> để mốt có tiền dư giả xíu đi cạo vôi răng cho sạch e, tầm 200k chứ nhiu<br>
+;> giờ đương nghèo mà cũng hong cần thiết lắm, sao a đi làm chỗ tiền ít a ko thấy vui tí nào lun e<br>
+;> 
