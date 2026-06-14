@@ -17,4 +17,5 @@
 ;> tập thể dục lên cho a, tập thể dục cho body ngon nhìn mới dễ nungfd đc e<br>
 ;> nhìn hem nungfd éo nắc lun<br>
 ;> e răm lắm a biết thừa<br>
-;> xíu nữa a ngủ e có ngủ , ngủ đi nhe e
+;> xíu nữa a ngủ e có ngủ , ngủ đi nhe e<br>
+;> để mốt có tiền dư giả xíu đi cạo vôi răng cho sạch e, tầm 200k chứ nhiu
