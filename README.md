@@ -9,4 +9,7 @@
 <img width="247" height="228" alt="image" src="https://github.com/user-attachments/assets/8cfc3cf7-72c7-4d86-a01e-dc02ae4fc3d3" /><br>
 ;> thôi a đi hớt tóc, tý code cũng đc<br>
 ;> e mún mình gặp nhau sớm thì phải đợi a đổi việc, còn lâu thì gần cuối năm nay<br>
-;> giờ 29/4 âm lịch rồi e, nếu mà ko xuông thì đợi hơn nửa năm
+;> giờ 29/4 âm lịch rồi e, nếu mà ko xuông thì đợi hơn nửa năm<br>
+;> hôm qua a chạy đc 3km/40 phút<br>
+;> chắc phải siêng tập hơn nữa e<br>
+;> a thấy tóc phần trước chưa dài lắm, giờ cắt sợ cắt ko đều,thôi để dài xíu ròi cắt
