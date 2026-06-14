@@ -12,4 +12,6 @@
 ;> giờ 29/4 âm lịch rồi e, nếu mà ko xuông thì đợi hơn nửa năm<br>
 ;> hôm qua a chạy đc 3km/40 phút<br>
 ;> chắc phải siêng tập hơn nữa e<br>
-;> a thấy tóc phần trước chưa dài lắm, giờ cắt sợ cắt ko đều,thôi để dài xíu ròi cắt
+;> a thấy tóc phần trước chưa dài lắm, giờ cắt sợ cắt ko đều,thôi để dài xíu ròi cắt<br>
+;> e làm biếng vận động à<br>
+;> tập thể dục lên cho a
