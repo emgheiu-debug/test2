@@ -16,4 +16,5 @@
 ;> e làm biếng vận động à<br>
 ;> tập thể dục lên cho a, tập thể dục cho body ngon nhìn mới dễ nungfd đc e<br>
 ;> nhìn hem nungfd éo nắc lun<br>
-;> e răm lắm a biết thừa
+;> e răm lắm a biết thừa<br>
+;> xíu nữa a ngủ e có ngủ , ngủ đi nhe e
