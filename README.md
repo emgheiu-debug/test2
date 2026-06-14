@@ -14,4 +14,4 @@
 ;> chắc phải siêng tập hơn nữa e<br>
 ;> a thấy tóc phần trước chưa dài lắm, giờ cắt sợ cắt ko đều,thôi để dài xíu ròi cắt<br>
 ;> e làm biếng vận động à<br>
-;> tập thể dục lên cho a
+;> tập thể dục lên cho a, tập thể dục cho body ngon nhìn mới dễ nungfd đc e
