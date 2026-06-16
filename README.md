@@ -6,4 +6,5 @@
 ;> để pha trà đào uống, đang vô mùa đào mà e<br>
 ;> uống ngon ko là chuyện khác e =)))<br>
 ;> giống nước đào ngâm ngoài quán chưa e<br>
-;> làm lần đầu có 7 trái à e, cũng dễ, chắc uống vs trà lipton cho đơn giản e, chứ uống vs cam xã thì lại phải mua cam, làm cầu kì nữa
+;> làm lần đầu có 7 trái à e, cũng dễ, chắc uống vs trà lipton cho đơn giản e, chứ uống vs cam xã thì lại phải mua cam, làm cầu kì nữa<br>
+;> nó ngọt ngọt thôi mới ngâm chưa có mùi đào e
