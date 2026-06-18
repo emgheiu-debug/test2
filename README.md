@@ -6,4 +6,5 @@
 ;> chứ hong lẽ nghèo quài sao e<br>
 ;> đi tắm xíu e, a bùn ngủ quá, con người ko có xì trét là dễ bùn ngủ lắm e<br>
 ;> quá trời mấy nay ngủ trể giờ bùn ngủ vl e<br>
-;> bóp dú miếng coi e
+;> bóp dú miếng coi e<br>
+;> ngủ e, bùn ngủ quá à
