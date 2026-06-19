@@ -7,4 +7,5 @@
 ;> nãy a ngủ quên e<br>
 ;> e mún ở chung vs a lắm hả, a chưa có tiền e<br>
 ;> bóp dú miếng coi có xệ chưa e<br>
-;> mình ở chung z tiền bạc sao e
+;> mình ở chung z tiền bạc sao e<br>
+;> mà thôi ngủ đi e, ngủ ngon
