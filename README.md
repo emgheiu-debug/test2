@@ -6,4 +6,5 @@
 ;> thời buổi giờ lừa gạt dữ lắm e, may mà nào giờ a ko bị lừa, mà cũng có tiền để lừa<br>
 ;> nãy a ngủ quên e<br>
 ;> e mún ở chung vs a lắm hả, a chưa có tiền e<br>
-;> bóp dú miếng coi có xệ chưa e
+;> bóp dú miếng coi có xệ chưa e<br>
+;> mình ở chung z tiền bạc sao e
