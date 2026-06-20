@@ -12,4 +12,5 @@
 ;> éo có lợi lộc gì hết mà còn mệt thêm nữa e<br>
 ;> ở riêng cho sướng e, ở chung nhà nhức đầu lắm<br>
 ;> họ hàng bên cha mẹ a toàn là công nhân, ăn học có đến nơi đến chốn đâu<br>
-;> nên tư tưởng của ngta mệt lắm, chủ yếu là họ tiết kiệm thôi
+;> nên tư tưởng của ngta mệt lắm, chủ yếu là họ tiết kiệm thôi<br>
+;> ngủ e, a bùn ngủ quá
