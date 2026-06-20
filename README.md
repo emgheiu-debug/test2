@@ -9,4 +9,5 @@
 ;> ví dụ như e nghèo hơn ngta thì ngta thương mà e khá nhưng e ko đc khá hơn ngta, ngta ganh ghét bàn lùi<br>
 ;> ngta truyền bá tư tưởng của họ cho mình thì ko hay lắm<br>
 ;> thí dụ như tiền mình làm mình xài mà mấy ng họ hàng ngta còn can thiệp vô hỏi tháng làm nhiu, ròi sao ko cho cha cho mẹ, phụ tiền này tiền kia,có ghệ chưa, chừng nào có gia đình,...tháng dư nhiu<br>
-;> éo có lợi lộc gì hết mà còn mệt thêm nữa e
+;> éo có lợi lộc gì hết mà còn mệt thêm nữa e<br>
+;> ở riêng cho sướng e, ở chung nhà nhức đầu lắm
