@@ -24,4 +24,5 @@
 ;> a ngồi chồm hổm tí xíu cái mỏi giò kinh, chắc do ko tập squat<br>
 ;> a thì nghèo gia đình nuôi ra trường thì coi như hết trách nhiệm ròi e<br>
 ;> nên e đừng mong gia đình a giúp gì mình<br>
-;> 
+;> chủ yếu giờ a tự làm tự ăn, ở chung cũng mệt lắm<br>
+;> tốt nhất là cuộc sống ai nấy sống e à
