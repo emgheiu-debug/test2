@@ -34,4 +34,7 @@
 ;> ví dụ như làm tháng 20 triệu hay 30 40 50 thì vẫn chĩ nên khai vs mấy người ganh tị trong dòng là làm 10 củ thôi<br>
 ;> biết sao hem e, để ngta nói ra nói vào bắt mình cho tiền cha mẹ<br>
 ;> họ so sánh vs con họ nuôi cực khổ làm nhịn ăn nhịn mặc cho họ tháng vài triệu<br>
-;> ròi bắt mình cho tiền cha mẹ, tại vì lúc a túng tiền cha mẹ a cũng đâu ai gửi tiền lên hay cho mượn đâu e
+;> ròi bắt mình cho tiền cha mẹ, tại vì lúc a túng tiền cha mẹ a cũng đâu ai gửi tiền lên hay cho mượn đâu e<br>
+;> a có làm nhìu tiền thì lấy tiền đó thuê trọ thoải mái hơn thay vì cho tiền cha mẹ<br>
+;> còn tùy theo khả năng thì a cho chút đỉnh tiền đi chợ ăn uống sinh hoạt thôi, chủ yếu thì vẫn là cuộc sống của mình, tại vì khi mà mình gặp khó khăn cần tiền thì cũng đâu ai cho đâu e, nên để dành phòng hờ cho bản thân là tốt nhất thay vì cho cha mẹ<br>
+;> ví dụ như cha mẹ e lo cho e, giúp đỡ e khi e gặp vấn đề về kinh tế thì khi dư giả nên mua cho cha mẹ này kia, mua sắm cho gia đình
