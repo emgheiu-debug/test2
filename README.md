@@ -15,4 +15,5 @@
 ;> ai hổm mua 17 18 lòn loằn lun e, tưởng giá xăng rẻ thì vàng lên lại chứ e<br>
 ;> mới lên xong xuống lại ròi e, ai hổm vàng mắc bán vàng mua nhà cũng ngon e<br>
 ;> vợ a kinh doanh đc hem e<br>
-;> tùy theo túi tiền của mình mà mình có 1-3 con e nhó
+;> tùy theo túi tiền của mình mà mình có 1-3 con e nhó<br>
+=))) lên mạng đọc mua nhà cùng bạn thân bùn cười vãi e
