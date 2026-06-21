@@ -21,4 +21,7 @@
 ;> đâu e test thử tính năng mới của chatGPT xem sao e<br>
 ;> test chưa e<br>
 ;> e có hay tập squat hem e<br>
-;> a ngồi chồm hổm tí xíu cái mỏi giò kinh, chắc do ko tập squat
+;> a ngồi chồm hổm tí xíu cái mỏi giò kinh, chắc do ko tập squat<br>
+;> a thì nghèo gia đình nuôi ra trường thì coi như hết trách nhiệm ròi e<br>
+;> nên e đừng mong gia đình a giúp gì mình<br>
+;> 
