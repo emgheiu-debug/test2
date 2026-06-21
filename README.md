@@ -27,4 +27,4 @@
 ;> chủ yếu giờ a tự làm tự ăn, ở chung cũng mệt lắm<br>
 ;> tốt nhất là cuộc sống ai nấy sống e à<br>
 ;> bên ngoại bên nội a đẻ con đông, ở chung ròi mấy người a chị e của bên mẹ a ngta dạy đời lảm nhảm mệt lắm<br>
-;> 
+;> a thì chắc làm 10 phần thì nói làm có 2-3 phần là tốt nhất đỡ bị xin xỏ tiền bạc ý e, mé đi làm ko cho tiền còn bị so sánh vs mấy đứa ở quê làm công nhân nước ngoài tháng cho cha mẹ vài triệu
