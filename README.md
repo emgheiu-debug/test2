@@ -37,4 +37,5 @@
 ;> ròi bắt mình cho tiền cha mẹ, tại vì lúc a túng tiền cha mẹ a cũng đâu ai gửi tiền lên hay cho mượn đâu e<br>
 ;> a có làm nhìu tiền thì lấy tiền đó thuê trọ thoải mái hơn thay vì cho tiền cha mẹ<br>
 ;> còn tùy theo khả năng thì a cho chút đỉnh tiền đi chợ ăn uống sinh hoạt thôi, chủ yếu thì vẫn là cuộc sống của mình, tại vì khi mà mình gặp khó khăn cần tiền thì cũng đâu ai cho đâu e, nên để dành phòng hờ cho bản thân là tốt nhất thay vì cho cha mẹ<br>
-;> ví dụ như cha mẹ e lo cho e, giúp đỡ e khi e gặp vấn đề về kinh tế thì khi dư giả nên mua cho cha mẹ này kia, mua sắm cho gia đình
+;> ví dụ như cha mẹ e lo cho e, giúp đỡ e khi e gặp vấn đề về kinh tế thì khi dư giả nên mua cho cha mẹ này kia, mua sắm cho gia đình<br>
+;> mình nên dự phòng khi mà mình gặp khó khăn về tiền bạc ko ai giúp đỡ hết, cha mẹ thì nghèo, bạn bè cũng nghèo
