@@ -25,4 +25,6 @@
 ;> a thì nghèo gia đình nuôi ra trường thì coi như hết trách nhiệm ròi e<br>
 ;> nên e đừng mong gia đình a giúp gì mình<br>
 ;> chủ yếu giờ a tự làm tự ăn, ở chung cũng mệt lắm<br>
-;> tốt nhất là cuộc sống ai nấy sống e à
+;> tốt nhất là cuộc sống ai nấy sống e à<br>
+;> bên ngoại bên nội a đẻ con đông, ở chung ròi mấy người a chị e của bên mẹ a ngta dạy đời lảm nhảm mệt lắm<br>
+;> 
