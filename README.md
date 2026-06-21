@@ -29,4 +29,5 @@
 ;> bên ngoại bên nội a đẻ con đông, ở chung ròi mấy người a chị e của bên mẹ a ngta dạy đời lảm nhảm mệt lắm<br>
 ;> a thì chắc làm 10 phần thì nói làm có 2-3 phần là tốt nhất đỡ bị xin xỏ tiền bạc ý e, mé đi làm ko cho tiền còn bị so sánh vs mấy đứa ở quê làm công nhân nước ngoài tháng cho cha mẹ vài triệu<br>
 ;> a chị e thì có gia đình riêng cũng như người dưng ròi e<br>
-;> nhìu khi đẻ con ra con người này giỏi hơn con người kia ganh tị, ai chứ bên mẹ bên nội a z, ngta ganh tị ra mắt lun mà, như người dưng thôi e
+;> nhìu khi đẻ con ra con người này giỏi hơn con người kia ganh tị, ai chứ bên mẹ bên nội a z, ngta ganh tị ra mắt lun mà, như người dưng thôi e<br>
+;> mà chốt lại thì ai làm nấy ăn thôi e
