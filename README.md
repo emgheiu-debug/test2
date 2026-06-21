@@ -16,4 +16,6 @@
 ;> mới lên xong xuống lại ròi e, ai hổm vàng mắc bán vàng mua nhà cũng ngon e<br>
 ;> vợ a kinh doanh đc hem e<br>
 ;> tùy theo túi tiền của mình mà mình có 1-3 con e nhó<br>
-=))) lên mạng đọc mua nhà cùng bạn thân bùn cười vãi e
+=))) lên mạng đọc mua nhà cùng bạn thân bùn cười vãi e<br>
+<img width="411" height="349" alt="image" src="https://github.com/user-attachments/assets/cbd0ea26-fdc5-40f5-9b1a-b9ccb300cbbe" /><br>
+;> đâu e test thử tính năng mới của chatGPT xem sao e
