@@ -30,4 +30,8 @@
 ;> a thì chắc làm 10 phần thì nói làm có 2-3 phần là tốt nhất đỡ bị xin xỏ tiền bạc ý e, mé đi làm ko cho tiền còn bị so sánh vs mấy đứa ở quê làm công nhân nước ngoài tháng cho cha mẹ vài triệu<br>
 ;> a chị e thì có gia đình riêng cũng như người dưng ròi e<br>
 ;> nhìu khi đẻ con ra con người này giỏi hơn con người kia ganh tị, ai chứ bên mẹ bên nội a z, ngta ganh tị ra mắt lun mà, như người dưng thôi e<br>
-;> mà chốt lại thì ai làm nấy ăn thôi e
+;> mà chốt lại thì ai làm nấy ăn thôi e<br>
+;> ví dụ như làm tháng 20 triệu hay 30 40 50 thì vẫn chĩ nên khai vs mấy người ganh tị trong dòng là làm 10 củ thôi<br>
+;> biết sao hem e, để ngta nói ra nói vào bắt mình cho tiền cha mẹ<br>
+;> họ so sánh vs con họ nuôi cực khổ làm nhịn ăn nhịn mặc cho họ tháng vài triệu<br>
+;> ròi bắt mình cho tiền cha mẹ, tại vì lúc a túng tiền cha mẹ a cũng đâu ai gửi tiền lên hay cho mượn đâu e
