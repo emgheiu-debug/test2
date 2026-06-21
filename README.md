@@ -10,4 +10,6 @@
 =))) <br>
 ;> thôi kệ ko thì thuê nhà nào có khả năng thì mua e, áp lực quá làm gì e<br>
 ;> vợ a bắt đáy đc chỉ vàng nào chưa chứ a thì chưa =))), a còn nghèo còn lận đận<br>
-;> mua vàng để dành tại vàng giữ giá mà e
+;> mua vàng để dành tại vàng giữ giá mà e<br>
+<img width="350" height="193" alt="image" src="https://github.com/user-attachments/assets/15941899-2a32-47a8-90ec-b56d714b95b2" /><br>
+;> ai hổm mua 17 18 lòn loằn lun e, tưởng giá xăng rẻ thì vàng lên lại chứ e
