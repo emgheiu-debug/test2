@@ -20,4 +20,5 @@
 <img width="411" height="349" alt="image" src="https://github.com/user-attachments/assets/cbd0ea26-fdc5-40f5-9b1a-b9ccb300cbbe" /><br>
 ;> đâu e test thử tính năng mới của chatGPT xem sao e<br>
 ;> test chưa e<br>
-;> 
+;> e có hay tập swat hem e<br>
+;> a ngồi chồm hổm tí xíu cái mỏi giò kinh, chắc do ko tập swat
