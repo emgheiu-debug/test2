@@ -8,4 +8,4 @@
 ;> này công ăn lương kiếp nào mua đc hén e<br>
 ;> a 3.5 tỉ e 3.5 tỏi<br>
 =))) <br>
-;> 
+;> thôi kệ ko thì thuê nhà nào có khả năng thì mua e, áp lực quá làm gì e
