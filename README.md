@@ -9,4 +9,5 @@
 ;> ở chung phân chia tiền bạc sao e<br>
 ;> theo a thì nên có thời gian đi chơi vs nhau kha khá đi ròi ở chung<br>
 ;> tuần đi chơi riêng vs nhau 1 lần đi e<br>
-;> đi chơi riêng thì ăn tối chung hoặc mua đồ ăn qua chỗ e chơi xíu ròi về
+;> đi chơi riêng thì ăn tối chung hoặc mua đồ ăn qua chỗ e chơi xíu ròi về<br>
+;> ngủ e, ngủ ngon e, a ngủ à
