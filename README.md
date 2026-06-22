@@ -6,4 +6,5 @@
 ;> của e để lông bth hả<r>
 ;> nhu cầu của a thì thường ko cao cho lắm<br>
 ;> nằm xíu ngủ quên e<br>
-;> ở chung phân chia tiền bạc sao e
+;> ở chung phân chia tiền bạc sao e<br>
+;> theo a thì nên có thời gian đi chơi vs nhau kha khá đi ròi ở chung
