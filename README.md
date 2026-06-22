@@ -7,4 +7,5 @@
 ;> nhu cầu của a thì thường ko cao cho lắm<br>
 ;> nằm xíu ngủ quên e<br>
 ;> ở chung phân chia tiền bạc sao e<br>
-;> theo a thì nên có thời gian đi chơi vs nhau kha khá đi ròi ở chung
+;> theo a thì nên có thời gian đi chơi vs nhau kha khá đi ròi ở chung<br>
+;> tuần đi chơi riêng vs nhau 1 lần đi e
