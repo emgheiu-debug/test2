@@ -5,4 +5,7 @@
 ;> xu thì gần tết nha e<br>
 ;> ở chung a mà thấy a ngủ quên mà chưa tắm rửa đánh răng là kêu a dậy nhe hem e<br>
 ;> để coi vài tháng nữa đổi việc đc ko, đổi việc sớm thì mình gặp nhau sớm thôi e<br>
-;> a tắm xíu lát nhắn nhe e
+;> a tắm xíu lát nhắn nhe e<>br
+;> hôm qua thì a chạy bộ đc 3km<br>
+;> đốt 100kcal 1kg mỡ cỡ 7700kcal<br>
+;> mấy nay chạy chắc đốt đc 100g-200g mỡ quá e
