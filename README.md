@@ -10,4 +10,5 @@
 ;> đốt 100kcal 1kg mỡ cỡ 7700kcal<br>
 ;> mấy nay chạy chắc đốt đc 100g-200g mỡ quá e<br>
 ;> bùn ngủ quá e<br>
-;> a tính ròi chắc hổm nay chạy gần 100g mỡ thôi e
+;> a tính ròi chắc hổm nay chạy gần 100g mỡ thôi e<br>
+;> a ngồi nhìu nên cần đốt mỡ là đẹp ròi
