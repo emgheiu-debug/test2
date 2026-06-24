@@ -9,4 +9,5 @@
 ;> hôm qua thì a chạy bộ đc 3km<br>
 ;> đốt 100kcal 1kg mỡ cỡ 7700kcal<br>
 ;> mấy nay chạy chắc đốt đc 100g-200g mỡ quá e<br>
-;> bùn ngủ quá e
+;> bùn ngủ quá e<br>
+;> a tính ròi chắc hổm nay chạy gần 100g mỡ thôi e
