@@ -12,4 +12,5 @@
 ;> bùn ngủ quá e<br>
 ;> a tính ròi chắc hổm nay chạy gần 100g mỡ thôi e<br>
 ;> a ngồi nhìu nên cần đốt mỡ là đẹp ròi<br>
-;> hy vọng mình sớm gặp nhau nhe e, sớm ỡ chung nhe e
+;> hy vọng mình sớm gặp nhau nhe e, sớm ỡ chung nhe e<br>
+;> ngủ nhe e, a bùn ngủ quá ròi
