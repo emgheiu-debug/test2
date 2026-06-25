@@ -8,4 +8,5 @@
 ;> đi làm xa thì tốt nhất 1 năm gặp/2-3 ngày thôi e<br>
 ;> còn lại 365 ngày -3 ngày tết ra là cuộc sống riêng của mình<br>
 ;> e hơi đâu cố làm hài lòng mấy người trong nhà a như là cha mẹ a<br>
-;> ổng bà 1 tuần cãi lộn tầm 3-4 lần thôi =)))
+;> ổng bà 1 tuần cãi lộn tầm 3-4 lần thôi =)))<br>
+;> tính kì khôi vs già sanh tật nữa ở chung mệt lắm
