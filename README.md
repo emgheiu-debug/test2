@@ -9,4 +9,5 @@
 ;> còn lại 365 ngày -3 ngày tết ra là cuộc sống riêng của mình<br>
 ;> e hơi đâu cố làm hài lòng mấy người trong nhà a như là cha mẹ a<br>
 ;> ổng bà 1 tuần cãi lộn tầm 3-4 lần thôi =)))<br>
-;> tính kì khôi vs già sanh tật nữa ở chung mệt lắm
+;> tính kì khôi vs già sanh tật nữa ở chung mệt lắm<br>
+;> a iu ngủ quên nhe e
