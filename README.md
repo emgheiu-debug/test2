@@ -9,4 +9,5 @@
 ;> ở chung vs cha mẹ a là hay nhảm nhức đầu lắm, ở riêng cuộc sống ai nấy sống cho khỏe e<br>
 ;> a thấy nhìu người đi làm ngta đâu có tính hơn thua vs cái tôi cao đâu ai, ai mà có tính như z làm mướn ko có đc<br>
 ;> mà a thấy cuộc sống ngta đủ đầy có này có kia<br>
-;> phòng gym tuy dơ nhìu người tập, đồ, thiết bị tập dùng chung nhưng ngta tập gym body đẹp, sức khỏe tốt đấy thôi e
+;> phòng gym tuy dơ nhìu người tập, đồ, thiết bị tập dùng chung nhưng ngta tập gym body đẹp, sức khỏe tốt đấy thôi e<br>
+;> a thấy nhìu người ngta kinh doanh làm chủ mua đi bán lại cũng phải đi năn nỉ ngta mua cho nữa, chèo kéo khách nữa
