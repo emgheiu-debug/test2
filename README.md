@@ -6,4 +6,4 @@
 ;> cha mẹ a nuôi a mấy năm ĐH thôi, chứ cấp 2 3 cũng ko học thêm gì nhìu nữa<br>
 ;> tự lập là phải tự lo nhe e<br>
 ;> sau này mình ở chung thì cuộc sống phải tự lo nhe e<br>
-;> 
+;> ở chung vs cha mẹ a là hay nhảm nhức đầu lắm, ở riêng cuộc sống ai nấy sống cho khỏe e
