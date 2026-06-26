@@ -4,4 +4,6 @@
 ;> cho nên là làm dư dả thì cho chút đỉnh ko thì thôi nha e, nói mấy người họ hàng thì ngta bênh<br>
 ;> nên là làm thì nhiu là của 2 đứa mình hết nhe e<br>
 ;> cha mẹ a nuôi a mấy năm ĐH thôi, chứ cấp 2 3 cũng ko học thêm gì nhìu nữa<br>
-;> tự lập là phải tự lo nhe e
+;> tự lập là phải tự lo nhe e<br>
+;> sau này mình ở chung thì cuộc sống phải tự lo nhe e<br>
+;> 
