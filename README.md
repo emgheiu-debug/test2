@@ -9,4 +9,5 @@
 ;> mí mắt a bị dính khó chịu ghê<br>
 ;> thoải mái tiền bạc đi cắt thôi e<br>
 ;> e tưởng tượng như e khóc đi, sáng con mắt e bị bụp vs dính mí, sau 1 thời gian thì nó hết dính mí<br>
-;> còn a dính quanh năm suốt tháng, a nhảy mũi quài dính mí, giờ a ít nhảy mũi ròi e
+;> còn a dính quanh năm suốt tháng, a nhảy mũi quài dính mí, giờ a ít nhảy mũi ròi e<br>
+;> bị dính thành ra 2 mí, mà nó cũng ko đều nữa e
