@@ -4,4 +4,5 @@
 ;> nay a chạy đc 3.3km ghê chưa e<br>
 ;> chạy có chu kỳ cái chạy nhanh hẳn ý e<br>
 ;> chạy quen cái đỡ mỏi giò hơn ý e<br>
-;> a bệnh nay 3 ngày chưa hết nữa e
+;> a bệnh nay 3 ngày chưa hết nữa e<br>
+;> bùn ngủ quá e
