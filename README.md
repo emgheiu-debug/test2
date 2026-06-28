@@ -5,4 +5,5 @@
 ;> chạy có chu kỳ cái chạy nhanh hẳn ý e<br>
 ;> chạy quen cái đỡ mỏi giò hơn ý e<br>
 ;> a bệnh nay 3 ngày chưa hết nữa e<br>
-;> bùn ngủ quá e
+;> bùn ngủ quá e<br>
+;> chồng e bệnh ròi chỉ mún ngủ sớm thôi e
