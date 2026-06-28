@@ -1,2 +1,3 @@
 ;> a nhô e<br>
-;> nay a iu lu xu bu xíu, mốt nhắn nhe e
+;> nay a iu lu xu bu xíu, tối nhắn nhe e<br>
+;> lát a tập gym
