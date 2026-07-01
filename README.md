@@ -5,4 +5,5 @@
 ;> rầu quài cũng đâu thay đổi đc gì đâu e, tới đâu hay tới đó thôi e<br>
 ;> nào hẹn hò đi chơi đi ròi đỡ bỡ ngỡ e<br>
 ;> ròi nào ngủ chung e<br>
-;> mới giờ a bùn ngủ quá e
+;> mới giờ a bùn ngủ quá e<br>
+;> ngủ ngon vợ iu, a ngủ nhe e, bùn ngủ òi
