@@ -13,4 +13,6 @@
 ;> mò chêm bao ra nước lun e<br>
 ;> xíu nhắn nhe e, a lu bu tí<br>
 ;> mới skinecare xong e, để ngủ quên<br>
-;> e thấy a mập hem
+;> e thấy a mập hem<br>
+;> bệnh a bớt ăn lại ròi, ko biết còn nhiu kg<br>
+;> nào mình ở chung a có tiền cắt lại mí mắt cho đều
