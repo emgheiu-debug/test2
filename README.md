@@ -16,4 +16,6 @@
 ;> e thấy a mập hem<br>
 ;> bệnh a bớt ăn lại ròi, ko biết còn nhiu kg<br>
 ;> nào mình ở chung a có tiền cắt lại mí mắt cho đều<br>
-;> bị dính mí khó chịu ý e
+;> bị dính mí khó chịu ý e<br>
+;> cắt lại 1 mí như cũ đi<br>
+;> 
