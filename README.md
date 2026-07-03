@@ -38,4 +38,6 @@
 ;> mà khuya ròi ngủ đi e<br>
 ;> ngủ chung chắc nungdf quá thì mò lon, bóp dú z đó e<br>
 ;> e ngủ có hay mặc quần lót hem e<br>
-;> 
+;> ở chung lâu ngày thì cũng có chuyện 18+ ròi e<br>
+;> của e để lông nhìu hay ít<br>
+;> mà thôi ngủ ngon nhe e, khuya ròi
