@@ -1,6 +1,4 @@
 ;> a nhô e<br>
-;> cơm nước gì chưa e<br>
-;> nào ngủ chung e<br>
-;> nhắn tin vs a đi ròi nào gặp đc mình đi cà phê<br>
-;> ngủ chung là để chêm nguyên lông, dú thả rông nhe hem e<br>
-;> a ngủ quên nhe e
+;> cơm nước gì chưa e ghệ răm<br>
+;> nay a mới chạy bộ về đc 3km<br>
+;> chạy ít nhưng có chạy là đc gòi e
