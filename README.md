@@ -18,4 +18,7 @@
 ;> nào mình ở chung a có tiền cắt lại mí mắt cho đều<br>
 ;> bị dính mí khó chịu ý e<br>
 ;> cắt lại 1 mí như cũ đi<br>
-;> 
+;> thg cha gì trúng viettlot trúng số tới 85 tỉ lận e<br>
+;> trúng như ổng chắc a nghỉ làm lun =)))<br>
+;> nghỉ làm để suy nghĩ mình mua gì vs 85 tỉ<br>
+;> ròi mua nhà mua đất xây homestay nhà nghỉ cho thuê
