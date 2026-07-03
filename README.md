@@ -31,4 +31,7 @@
 ;> thì tụi mình ráng làm đc nhiu thì đc e<br>
 ;> ý a là làm phải có tích lũy để khi cần thì có hay tuổi già có mà dùng ý e<br>
 ;> thành ra a mới kêu e mua vàng đó<br>
-;> vàng nó ổn định, e có dư thoải mái thì mua để dành lâu dài cũng đc
+;> vàng nó ổn định, e có dư thoải mái thì mua để dành lâu dài cũng đc<br>
+;> 1 cây vàng cũng gần 150 củ<br>
+;> 1 chỉ hơn 14 củ<br>
+;> 
