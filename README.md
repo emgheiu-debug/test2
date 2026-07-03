@@ -12,4 +12,5 @@
 ;> ở chung vs nhau đi a mò chêm cho tối khỏi tự xử nữa e<br>
 ;> mò chêm bao ra nước lun e<br>
 ;> xíu nhắn nhe e, a lu bu tí<br>
-;> mới skinecare xong e, để ngủ quên
+;> mới skinecare xong e, để ngủ quên<br>
+;> e thấy a mập hem
