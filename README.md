@@ -35,4 +35,7 @@
 ;> 1 cây vàng cũng gần 150 củ<br>
 ;> 1 chỉ hơn 14 củ<br>
 ;> ở chung thì share tiền bạc, việc nhà tương đối thôi e, a có tiền thì a phụ nhìu cũng đc mà éo có tiền kêu phụ tiền nhìu sao đc<br>
+;> mà khuya ròi ngủ đi e<br>
+;> ngủ chung chắc nungdf quá thì mò lon, bóp dú z đó e<br>
+;> e ngủ có hay mặc quần lót hem e<br>
 ;> 
