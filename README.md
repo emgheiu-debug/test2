@@ -21,4 +21,7 @@
 ;> thg cha gì trúng viettlot trúng số tới 85 tỉ lận e<br>
 ;> trúng như ổng chắc a nghỉ làm lun =)))<br>
 ;> nghỉ làm để suy nghĩ mình mua gì vs 85 tỉ<br>
-;> ròi mua nhà mua đất xây homestay nhà nghỉ cho thuê
+;> ròi mua nhà mua đất xây homestay nhà nghỉ cho thuê<br>
+;> thu tiền đều đều hằng tháng, xu mà ko cho thuê đc thì tháng vài triệu đủ miệng ăn cũng đc e<br>
+;> chắc a éo có số trúng viettlot ròi e<br>
+;> nên a giả dụ z thôi chứ hong có gì đâu e
