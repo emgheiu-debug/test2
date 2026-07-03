@@ -29,5 +29,5 @@
 ;> xui lắm mới có ng chet thôi e, ròi cho mướn ko dc =)))<br>
 ;> trường hợp đó thì chịu ròi, hiếm lắm mới xui đc z<br>
 ;> thì tụi mình ráng làm đc nhiu thì đc e<br>
-;> ý a là làm phải có tích lũy để khi có hay tuổi già có mà dùng ý e<br>
-;> 
+;> ý a là làm phải có tích lũy để khi cần thì có hay tuổi già có mà dùng ý e<br>
+;> thành ra a mới kêu e mua vàng đó
