@@ -34,4 +34,5 @@
 ;> vàng nó ổn định, e có dư thoải mái thì mua để dành lâu dài cũng đc<br>
 ;> 1 cây vàng cũng gần 150 củ<br>
 ;> 1 chỉ hơn 14 củ<br>
+;> ở chung thì share tiền bạc, việc nhà tương đối thôi e, a có tiền thì a phụ nhìu cũng đc mà éo có tiền kêu phụ tiền nhìu sao đc<br>
 ;> 
