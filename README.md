@@ -30,4 +30,5 @@
 ;> trường hợp đó thì chịu ròi, hiếm lắm mới xui đc z<br>
 ;> thì tụi mình ráng làm đc nhiu thì đc e<br>
 ;> ý a là làm phải có tích lũy để khi cần thì có hay tuổi già có mà dùng ý e<br>
-;> thành ra a mới kêu e mua vàng đó
+;> thành ra a mới kêu e mua vàng đó<br>
+;> vàng nó ổn định, e có dư thoải mái thì mua để dành lâu dài cũng đc
