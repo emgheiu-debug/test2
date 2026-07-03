@@ -15,4 +15,5 @@
 ;> mới skinecare xong e, để ngủ quên<br>
 ;> e thấy a mập hem<br>
 ;> bệnh a bớt ăn lại ròi, ko biết còn nhiu kg<br>
-;> nào mình ở chung a có tiền cắt lại mí mắt cho đều
+;> nào mình ở chung a có tiền cắt lại mí mắt cho đều<br>
+;> bị dính mí khó chịu ý e
