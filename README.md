@@ -9,4 +9,5 @@
 ;> a giờ mún đổi việc tốt hơn, nhìu tiền thoải mái<br>
 ;> hi vọng từ giờ tới tết đổi việc đc e<br>
 ;> a quan trọng thu nhập hằng tháng hơn là mấy đồng thưởng tết cả năm mới có 1 lần<br>
-;> ở chung vs nhau đi a mò chêm cho tối khỏi tự xử nữa e
+;> ở chung vs nhau đi a mò chêm cho tối khỏi tự xử nữa e<br>
+;> mò chêm bao ra nước lun e
