@@ -24,4 +24,5 @@
 ;> ròi mua nhà mua đất xây homestay nhà nghỉ cho thuê<br>
 ;> thu tiền đều đều hằng tháng, xu mà ko cho thuê đc thì tháng vài triệu đủ miệng ăn cũng đc e<br>
 ;> chắc a éo có số trúng viettlot ròi e<br>
-;> nên a giả dụ z thôi chứ hong có gì đâu e
+;> nên a giả dụ z thôi chứ hong có gì đâu e<br>
+;> có tuổi mà có bất động sản tài sản cho thuê thu nhập đều đều cũng ngon e, đâu phải trẻ để cày quài đâu e
