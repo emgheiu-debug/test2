@@ -25,4 +25,6 @@
 ;> thu tiền đều đều hằng tháng, xu mà ko cho thuê đc thì tháng vài triệu đủ miệng ăn cũng đc e<br>
 ;> chắc a éo có số trúng viettlot ròi e<br>
 ;> nên a giả dụ z thôi chứ hong có gì đâu e<br>
-;> có tuổi mà có bất động sản tài sản cho thuê thu nhập đều đều cũng ngon e, đâu phải trẻ để cày quài đâu e
+;> có tuổi mà có bất động sản tài sản cho thuê thu nhập đều đều cũng ngon e, đâu phải trẻ để cày quài đâu e<br>
+;> xui lắm mới có ng chet thôi e, ròi cho mướn ko dc =)))<br>
+;> trường hợp đó thì chịu ròi, hiếm lắm mới xui đc z
