@@ -32,4 +32,6 @@ https://www.facebook.com/brxx.minh<br>
 ;> vợ a làm đừng có tiêu xài quá, mình còn để dành chút nhe e, a cũng mới học cách để dành nè<br>
 ;> làm ivf đó tầm 600 triệu á e, bà dì a nói z<br>
 ;> làm ở chung mình cùng quản lý tiền bạc nhe e<br>
-;> cũng thoải mái xíu chứ ko bo bo tiền bạc mệt óc hen e
+;> cũng thoải mái xíu chứ ko bo bo tiền bạc mệt óc hen e<br>
+;> a nói trước z để e nhắm chừng mà chuẩn bị e, mình là người có sở thích lên kế hoạch mà e<br>
+;> 
