@@ -30,4 +30,5 @@
 ;> định 1 tháng để 4 củ mà ăn lố ròi e<br>
 ;> mua đồ lặt vặt hơn 500k ròi e, nên lố thôi<br>
 ;> tháng sau ăn ít lại bù thôi e<br>
-;> coi có xin đc việc khác ko nghỉ việc này nữa e
+;> coi có xin đc việc khác ko nghỉ việc này nữa e<br>
+;> cỡ tháng 12 dương lịch đi e, gần tết ý a lên bạn a chơi sẵn mình gặp nhau chịu hem
