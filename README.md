@@ -38,4 +38,8 @@ https://www.facebook.com/brxx.minh<br>
 ;> ko biết bà thầy bói có bịp ko mà nói sang năm a nhìu tiền lắm<br>
 ;> a cũng hi vọng z<br>
 ;> bà đó chỗ a nhìu người, ngta làm kinh doanh làm chủ tin lắm e, ngta đồn bả hay lắm<br>
-;> làm có tiền a bao e đi du lịch, phụ e làm ivf, mua nhà, mua ô tô, cho mẹ a chút tiền đi chợ, sinh hoạt
+;> làm có tiền a bao e đi du lịch, phụ e làm ivf, mua nhà, mua ô tô, cho mẹ a chút tiền đi chợ, sinh hoạt<br>
+;> có tuổi cái mình có miếng đất ở đà lạt, nha trang, phan thiết, măng đen xây homestay nhà trọ cho thuê<br>
+;> con bà dì a sinh năm 92 chưa chồng nuôi e trai ăn học đại học mua đất ở bảo lộc đó e mà bà đó bả tiết kiệm lắm, rất là keo<br>
+;> mình ko làm đc nhìu tiền thì mình tiết kiệm để có vs ngta thôi e<br>
+;> ai cũng muốn làm nhìu hơn để tiêu xài thoải mái mà càng lớn suy nghĩ đó của a càng thay đổi
