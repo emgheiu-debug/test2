@@ -24,4 +24,6 @@
 ;> lông nhung thì nó nhìu thịt vs giòn ngọt hơn chút e<br>
 ;> làm như a hay ăn ốc nên thấy bth e<br>
 ;> mốt a làm xò huyết xào me thử coi, xò huyết thì hơi mắc hơn gấp đôi giá<br>
-;> a làm sò lông nướng đó oke hem e
+;> a làm sò lông nướng đó oke hem e<br>
+;> dạo này a ăn sang hơi nhìu gòi bớt a sang lại thôi e<br>
+;> tháng này a dư đc hơn 3 củ
