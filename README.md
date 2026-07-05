@@ -20,4 +20,5 @@
 ;> sò lông thường đâu 35-40k ý e, ko biết chỗ a mua có mắt ko mà sò lông thường nó bán 50k, a mua sò nhung<br>
 <img width="200" height="200" alt="z8010323784123_0f5e416e92f03ce17977f448c4de1ac2" src="https://github.com/user-attachments/assets/7123f682-3af5-44b4-b396-ce5d33159f43" /><br>
 ;> <img width="200" height="200" alt="z8010323859210_cd8dc9ba0f6cfd2d3aa1f354acd38ecd" src="https://github.com/user-attachments/assets/3bee8ecb-095f-4b3a-b23e-46611b7d5bf1" /><br>
-;> ăn cũng ngon bth thôi e
+;> ăn cũng ngon bth thôi e<br>
+;> lông nhung thì nó nhìu thịt vs giòn ngọt hơn chút e
