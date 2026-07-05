@@ -26,4 +26,6 @@ https://www.facebook.com/brxx.minh<br>
 ;> bả thích có con gái mà ivf đc con trai, lai tây đó e<br>
 ;> nào e đẻ để a phụ quản lý vài tháng đi<br>
 ;> ivf hình như ko lựa giới tính đc hay sao á e<br>
-;> để ít năm nữa ổn định vs có tiền mình làm hen e
+;> để ít năm nữa ổn định vs có tiền mình làm hen e<br>
+;> bả vs bồ bả mới mua miếng đất gần 2 tỉ dưới quê ý e<br>
+;> bả đâu có học đh gì đâu, bả học tới lớp 11 nghỉ ròi e
