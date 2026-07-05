@@ -15,4 +15,5 @@
 ;> a mua về a ngâm muối vs ớt cho nó nhả cát ra ròi lát a nướng ăn, mỡ hành, đậu phộng xong gòi<br>
 ;> a mua sò lông nhung hơi mắc e nhể 70k/kg<br>
 ;> bữa nay ăn xài hơi nhìu ròi e<br>
-;> a nghèo a tiết kiệm còn e thu nhập cao thì e cứ xài thôi e
+;> a nghèo a tiết kiệm còn e thu nhập cao thì e cứ xài thôi e<br>
+;> sò lông ngoài tiệm 35k/dĩa nhỏ xíu vs loại thường e
