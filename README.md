@@ -36,4 +36,4 @@
 ;> e răm gần chết mà ngại<br>
 ;> e cũng hơi có tuổi rỏi con ngại deplay gì e<br>
 ;> làm để dành tiền ivf 1-2 đứa con e, con lai đi e<br>
-;> 
+;> ko thì nghèo quá 2 mình sống z đến già, miễn sao cuộc sống vui vẻ
