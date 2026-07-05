@@ -9,4 +9,5 @@
 ;> a thích sò huyết xào me nữa, mốt mò làm về nấu cho e ăn<br>
 ;> bài vẽ z mới vui e<br>
 ;> đi ăn tiệm, kiếm cái tiệm vừa ý mình cũng mệt, ko lẽ ăn tiệm quài<br>
-;> mua hủ muối chấm ớt đỏ ớt xanh về sẵn nữa chấm ăn
+;> mua hủ muối chấm ớt đỏ ớt xanh về sẵn nữa chấm ăn<br>
+;> nữa ngủ chung cho bóp nắn, mòlon, bóp dú, bóp đít xíu nhe e
