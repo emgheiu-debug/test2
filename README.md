@@ -12,4 +12,7 @@
 ;> mua hủ muối chấm ớt đỏ ớt xanh về sẵn nữa chấm ăn<br>
 ;> nữa ngủ chung cho bóp nắn, mòlon, bóp dú, bóp đít xíu nhe e<br>
 ;> vùng kín của e để lông hay wax tùy e thôi<br>
-;> a mua về a ngâm muối vs ớt cho nó nhả cát ra ròi lát a nướng ăn, mỡ hành, đậu phộng xong gòi
+;> a mua về a ngâm muối vs ớt cho nó nhả cát ra ròi lát a nướng ăn, mỡ hành, đậu phộng xong gòi<br>
+;> a mua sò lông nhung hơi mắc e nhể 70k/kg<br>
+;> bữa nay ăn xài hơi nhìu ròi e<br>
+;> a nghèo a tiết kiệm còn e thu nhập cao thì e cứ xài thôi e
