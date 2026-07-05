@@ -42,4 +42,7 @@ https://www.facebook.com/brxx.minh<br>
 ;> có tuổi cái mình có miếng đất ở đà lạt, nha trang, phan thiết, măng đen xây homestay nhà trọ cho thuê<br>
 ;> con bà dì a sinh năm 92 chưa chồng nuôi e trai ăn học đại học mua đất ở bảo lộc đó e mà bà đó bả tiết kiệm lắm, rất là keo<br>
 ;> mình ko làm đc nhìu tiền thì mình tiết kiệm để có vs ngta thôi e<br>
-;> ai cũng muốn làm nhìu hơn để tiêu xài thoải mái mà càng lớn suy nghĩ đó của a càng thay đổi
+;> ai cũng muốn làm nhìu hơn để tiêu xài thoải mái mà càng lớn suy nghĩ đó của a càng thay đổi<br>
+;> đâu phải kiếm đc nhìu tiền quài đâu e, người có số mà e, a đi chùa xin xăm toàn là kiểu như người có số có thời, cưỡng cầu quá ko đc gì gì đó, đại loại z e<br>
+;> e làm ròi tranh thủ bắt đáy vài chỉ vàng đi e<br>
+;> 
