@@ -10,4 +10,5 @@
 ;> bài vẽ z mới vui e<br>
 ;> đi ăn tiệm, kiếm cái tiệm vừa ý mình cũng mệt, ko lẽ ăn tiệm quài<br>
 ;> mua hủ muối chấm ớt đỏ ớt xanh về sẵn nữa chấm ăn<br>
-;> nữa ngủ chung cho bóp nắn, mòlon, bóp dú, bóp đít xíu nhe e
+;> nữa ngủ chung cho bóp nắn, mòlon, bóp dú, bóp đít xíu nhe e<br>
+;> vùng kín của e để lông hay wax tùy e thôi
