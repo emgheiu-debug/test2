@@ -27,4 +27,7 @@
 ;> a làm sò lông nướng đó oke hem e<br>
 ;> dạo này a ăn sang hơi nhìu gòi bớt a sang lại thôi e<br>
 ;> tháng này a dư đc hơn 3 củ<br>
-;> định 1 tháng để 4 củ mà ăn lố ròi e
+;> định 1 tháng để 4 củ mà ăn lố ròi e<br>
+;> mua đồ lặt vặt hơn 500k ròi e, nên lố thôi<br>
+;> tháng sau ăn ít lại bù thôi e<br>
+;> coi có xin đc việc khác ko nghỉ việc này nữa e
