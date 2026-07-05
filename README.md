@@ -28,4 +28,5 @@ https://www.facebook.com/brxx.minh<br>
 ;> ivf hình như ko lựa giới tính đc hay sao á e<br>
 ;> để ít năm nữa ổn định vs có tiền mình làm hen e<br>
 ;> bả vs bồ bả mới mua miếng đất gần 2 tỉ dưới quê ý e<br>
-;> bả đâu có học đh gì đâu, bả học tới lớp 11 nghỉ ròi e
+;> bả đâu có học đh gì đâu, bả học tới lớp 11 nghỉ ròi e<br>
+;> vợ a làm đừng có tiêu xài quá, mình còn để dành chút nhe e, a cũng mới học cách để dành nè
