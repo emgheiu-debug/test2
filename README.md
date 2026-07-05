@@ -16,4 +16,5 @@
 ;> a mua sò lông nhung hơi mắc e nhể 70k/kg<br>
 ;> bữa nay ăn xài hơi nhìu ròi e<br>
 ;> a nghèo a tiết kiệm còn e thu nhập cao thì e cứ xài thôi e<br>
-;> sò lông ngoài tiệm 35k/dĩa nhỏ xíu vs loại thường e
+;> sò lông ngoài tiệm 35k/dĩa nhỏ xíu vs loại thường e<br>
+;> sò lông thường đâu 35-40k ý e, ko biết chỗ a mua có mắt ko mà sò lông thường nó bán 50k, a mua sò nhung
