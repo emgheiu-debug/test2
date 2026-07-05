@@ -1,19 +1,4 @@
 ;> a nhô e<br>
-;> nghèo quá hay ngủ quên thôi e<br>
-;> gần cuối năm mình gặp nhau nhe e<br>
-;> nửa ngủ chung cho a bóp dú mòlon rờ 2 mép cái<br>
-;> cho a rờ con chêm có lông của e<br>
-;> mấy nay e có nungfd hem e<br>
-;> nay a định mua sò lông hàu về nướng mỡ hành ăn<br>
-;> luộc sơ ròi nướng bằng nồi chiên ko dầu nó cũng mau chín hơn e<br>
-;> a thích sò huyết xào me nữa, mốt mò làm về nấu cho e ăn<br>
-;> bài vẽ z mới vui e<br>
-;> đi ăn tiệm, kiếm cái tiệm vừa ý mình cũng mệt, ko lẽ ăn tiệm quài<br>
-;> mua hủ muối chấm ớt đỏ ớt xanh về sẵn nữa chấm ăn<br>
-;> nữa ngủ chung cho bóp nắn, mòlon, bóp dú, bóp đít xíu nhe e<br>
-;> vùng kín của e để lông hay wax tùy e thôi<br>
-;> a mua về a ngâm muối vs ớt cho nó nhả cát ra ròi lát a nướng ăn, mỡ hành, đậu phộng xong gòi<br>
-;> a mua sò lông nhung hơi mắc e nhể 70k/kg<br>
 ;> bữa nay ăn xài hơi nhìu ròi e<br>
 ;> a nghèo a tiết kiệm còn e thu nhập cao thì e cứ xài thôi e<br>
 ;> sò lông ngoài tiệm 35k/dĩa nhỏ xíu vs loại thường e<br>
@@ -37,4 +22,5 @@
 ;> e cũng hơi có tuổi rỏi con ngại deplay gì e<br>
 ;> làm để dành tiền ivf 1-2 đứa con e, con lai đi e<br>
 ;> ko thì nghèo quá 2 mình sống z đến già, miễn sao cuộc sống vui vẻ<br>
-;> sợ e hơi có tuổi ròi sinh nở khó thôi e
+;> sợ e hơi có tuổi ròi sinh nở khó thôi e<br>
+;> như bà dì a cũng làm ivf vs bồ bả ròi có con lai đó e
