@@ -23,4 +23,9 @@
 ;> làm để dành tiền ivf 1-2 đứa con e, con lai đi e<br>
 ;> ko thì nghèo quá 2 mình sống z đến già, miễn sao cuộc sống vui vẻ<br>
 ;> sợ e hơi có tuổi ròi sinh nở khó thôi e<br>
-;> như bà dì a cũng làm ivf vs bồ bả ròi có con lai đó e
+;> như bà dì a cũng làm ivf vs bồ bả ròi có con lai đó e<br>
+;> 3x đẻ ròi e<br>
+;> bồ bả sinh năm 90 nay 36 ròi đang mang bầu đứa nửa hay sao ý e, tại 2 người bàn vs nhau là định đẻ 3 con, a nghe z<br>
+;> ở hà nội bán trà sửa thôi e<br>
+;> chắc kinh doanh cũng khá, mới mua đất gần 2 tỉ nữa e<br>
+;> 
