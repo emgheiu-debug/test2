@@ -46,4 +46,5 @@ https://www.facebook.com/brxx.minh<br>
 ;> đâu phải kiếm đc nhìu tiền quài đâu e, người có số mà e, a đi chùa xin xăm toàn là kiểu như người có số có thời, cưỡng cầu quá ko đc gì gì đó, đại loại z e<br>
 ;> e làm ròi tranh thủ bắt đáy vài chỉ vàng đi e<br>
 ;> xe ô tô bèo bèo giờ cũng hơn 300 triệu e, có tiền thì mình mua 1 chiếc e, e có bầu chở e đi khám thai, chở gia đình nhỏ mình đi e<br>
-;> a lubu xíu nhắn nhe e, tắm cái đã
+;> a lubu xíu nhắn nhe e, tắm cái đã<br>
+;> e chịu z hem e
