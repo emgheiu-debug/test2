@@ -26,4 +26,5 @@
 ;> mốt a làm xò huyết xào me thử coi, xò huyết thì hơi mắc hơn gấp đôi giá<br>
 ;> a làm sò lông nướng đó oke hem e<br>
 ;> dạo này a ăn sang hơi nhìu gòi bớt a sang lại thôi e<br>
-;> tháng này a dư đc hơn 3 củ
+;> tháng này a dư đc hơn 3 củ<br>
+;> định 1 tháng để 4 củ mà ăn lố ròi e
