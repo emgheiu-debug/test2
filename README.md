@@ -34,4 +34,8 @@ https://www.facebook.com/brxx.minh<br>
 ;> làm ở chung mình cùng quản lý tiền bạc nhe e<br>
 ;> cũng thoải mái xíu chứ ko bo bo tiền bạc mệt óc hen e<br>
 ;> a nói trước z để e nhắm chừng mà chuẩn bị e, mình là người có sở thích lên kế hoạch mà e<br>
-;> 
+;> kế hoạch của a thì là đổi việc đổi đt mới, sang năm thì để dành tiền mua vàng, mua xe future hay AB thôi e<br>
+;> ko biết bà thầy bói có bịp ko mà nói sang năm a nhìu tiền lắm<br>
+;> a cũng hi vọng z<br>
+;> bà đó chỗ a nhìu người, ngta làm kinh doanh làm chủ tin lắm e, ngta đồn bả hay lắm<br>
+;> làm có tiền a bao e đi du lịch, phụ e làm ivf, mua nhà, mua ô tô, cho mẹ a chút tiền đi chợ, sinh hoạt
