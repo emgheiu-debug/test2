@@ -31,4 +31,5 @@ https://www.facebook.com/brxx.minh<br>
 ;> bả đâu có học đh gì đâu, bả học tới lớp 11 nghỉ ròi e<br>
 ;> vợ a làm đừng có tiêu xài quá, mình còn để dành chút nhe e, a cũng mới học cách để dành nè<br>
 ;> làm ivf đó tầm 600 triệu á e, bà dì a nói z<br>
-;> 
+;> làm ở chung mình cùng quản lý tiền bạc nhe e<br>
+;> cũng thoải mái xíu chứ ko bo bo tiền bạc mệt óc hen e
