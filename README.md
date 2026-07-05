@@ -9,4 +9,5 @@
 ;> xe ô tô bèo bèo giờ cũng hơn 300 triệu e, có tiền thì mình mua 1 chiếc e, e có bầu chở e đi khám thai, chở gia đình nhỏ mình đi e<br>
 ;> a lubu xíu nhắn nhe e, tắm cái đã<br>
 ;> e chịu z hem e<br>
-;> năm xíu cái ngủ quên lun e, giờ mới z nè
+;> nằm xíu cái ngủ quên lun e, giờ mới z nè<br>
+;> mà khuya ròi ngủ nha e, ngủ ngon e, mai nhắn tiếp nhe
