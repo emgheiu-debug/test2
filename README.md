@@ -28,4 +28,6 @@
 ;> bồ bả sinh năm 90 nay 36 ròi đang mang bầu đứa nửa hay sao ý e, tại 2 người bàn vs nhau là định đẻ 3 con, a nghe z<br>
 ;> ở hà nội bán trà sửa thôi e<br>
 ;> chắc kinh doanh cũng khá, mới mua đất gần 2 tỉ nữa e<br>
-;> e đẻ ròi cty e để a quản lý
+;> e đẻ ròi cty e để a quản lý<br>
+https://www.facebook.com/brxx.minh<br>
+;> này fb bả
