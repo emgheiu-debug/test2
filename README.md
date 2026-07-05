@@ -30,4 +30,6 @@
 ;> chắc kinh doanh cũng khá, mới mua đất gần 2 tỉ nữa e<br>
 ;> e đẻ ròi cty e để a quản lý<br>
 https://www.facebook.com/brxx.minh<br>
-;> này fb bả
+;> này fb bả<br>
+<img width="223" height="370" alt="image" src="https://github.com/user-attachments/assets/bb22f8c8-8686-4835-9e97-bcf4c408f869" /><br>
+;> bả thích có con gái mà ivf đc con trai, lai tây đó e
