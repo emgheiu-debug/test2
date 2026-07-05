@@ -29,4 +29,6 @@ https://www.facebook.com/brxx.minh<br>
 ;> để ít năm nữa ổn định vs có tiền mình làm hen e<br>
 ;> bả vs bồ bả mới mua miếng đất gần 2 tỉ dưới quê ý e<br>
 ;> bả đâu có học đh gì đâu, bả học tới lớp 11 nghỉ ròi e<br>
-;> vợ a làm đừng có tiêu xài quá, mình còn để dành chút nhe e, a cũng mới học cách để dành nè
+;> vợ a làm đừng có tiêu xài quá, mình còn để dành chút nhe e, a cũng mới học cách để dành nè<br>
+;> làm ivf đó tầm 600 triệu á e, bà dì a nói z<br>
+;> 
