@@ -7,4 +7,5 @@
 ;> a giờ hả muốn có tiền, 2 mình ở chung, tối ngủ chung<br>
 ;> ngủ chung vài chục năm nữa tèo ròi e<br>
 ;> ròi hong tranh thủ ngủ chung đi e<br>
-;> xíu nhắn nhe a, a lubu xíu
+;> xíu nhắn nhe a, a lubu xíu<br>
+;> sao e ko mời a vô chung cư e chơi, nào có dịp á e
