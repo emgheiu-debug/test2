@@ -6,4 +6,5 @@
 ;> vợ a cũng giảm cân đi mập nhìn hơi già<br>
 ;> a giờ hả muốn có tiền, 2 mình ở chung, tối ngủ chung<br>
 ;> ngủ chung vài chục năm nữa tèo ròi e<br>
-;> ròi hong tranh thủ ngủ chung đi e
+;> ròi hong tranh thủ ngủ chung đi e<br>
+;> xíu nhắn nhe a, a lubu xíu
