@@ -3,4 +3,5 @@
 ;> xài cân điện tử nên chính xác lắm e<br>
 ;> a định giảm bèo lắm 46kg<br>
 ;> cơm nước đi e, xíu ròi nhắn<br>
-;> vợ a cũng giảm cân đi mập nhìn hơi già
+;> vợ a cũng giảm cân đi mập nhìn hơi già<br>
+;> a giờ hả muốn có tiền, 2 mình ở chung, tối ngủ chung
