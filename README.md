@@ -4,4 +4,5 @@
 ;> a định giảm bèo lắm 46kg<br>
 ;> cơm nước đi e, xíu ròi nhắn<br>
 ;> vợ a cũng giảm cân đi mập nhìn hơi già<br>
-;> a giờ hả muốn có tiền, 2 mình ở chung, tối ngủ chung
+;> a giờ hả muốn có tiền, 2 mình ở chung, tối ngủ chung<br>
+;> ngủ chung vài chục năm nữa tèo ròi e
