@@ -9,4 +9,5 @@
 ;> mặt a dạo này hơi mụn e<br>
 ;> có lương a mua hàu về làm tương tự như bữa nướng sò lông nhung ý e, mà hàu thì rẻ hơn, hàu sữa 45k/kg luộc ròi e<br>
 ;> hàu sửa luộc ăn ngán lắm e, nướng mỡ hành thì ăn oke ngon hơn nhìu<br>
+;> con lồn già a ghét mắc nợ 200củ ko tiền trả, ngày nào cũng lên mạng lảm nhảm hết e, nó đi dạy ko có nhìu tiền vs thời gian rảnh nhìu, nên chủ yếu lảm nhảm là chính<br>
 ;> 
