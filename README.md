@@ -11,4 +11,5 @@
 ;> mình nên nhìn mấy người có tiền cuộc sống ngta tốt mình học theo e<br>
 ;> nhìu ng làm lương thấp nhưng mà khi có gia đình cha mẹ 2 bên phụ, còn lương thấp mà tự lập 100% thì khổ, ko đủ tiền<br>
 ;> game nội dung hơi xàm e<br>
-;> a iu tắm rửa xíu nhắn nhe e
+;> a iu tắm rửa xíu nhắn nhe e<br>
+;> nửa làm vợ ngủ chung a nhe e
