@@ -13,4 +13,5 @@
 ;> a đâu có coi nó lảm nhảm chi e, thấy xàm quá lướt qua mất 1 giây<br>
 ;> cơ bản giờ rảnh, hem có gì coi hết e<br>
 ;> nay làm biếng code e<br>
-;> giờ a ước thu nhập hằng tháng cao, xong có tiền làm này làm kia, mua này mua nọ, cắt mí mắt lại cho đều, để dành các thứ...
+;> giờ a ước thu nhập hằng tháng cao, xong có tiền làm này làm kia, mua này mua nọ, cắt mí mắt lại cho đều, để dành các thứ...<br>
+;> a bùn ngủ quá e, a ngủ trước nhe e, ngủ ngon vợ iu
