@@ -10,4 +10,4 @@
 ;> dưới a ngta khá giả, giàu có ngta làm nhìu hơn nói, ngta lo cho bản thân, con cái ngta đủ đầy<br>
 ;> mình nên nhìn mấy người có tiền cuộc sống ngta tốt mình học theo e<br>
 ;> nhìu ng làm lương thấp nhưng mà khi có gia đình cha mẹ 2 bên phụ, còn lương thấp mà tự lập 100% thì khổ, ko đủ tiền<br>
-;> 
+;> game nội dung hơi xàm e
