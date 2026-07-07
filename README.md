@@ -7,4 +7,6 @@
 ;> a iu tắm rửa xíu nhắn nhe e<br>
 ;> nửa làm vợ ngủ chung a nhe e<br>
 ;> mặt a dạo này hơi mụn e<br>
-;> có lương a mua hàu về làm tương tự như bữa nướng sò lông nhung ý e, mà hàu thì rẻ hơn, hàu sữa 45k/kg luộc ròi e
+;> có lương a mua hàu về làm tương tự như bữa nướng sò lông nhung ý e, mà hàu thì rẻ hơn, hàu sữa 45k/kg luộc ròi e<br>
+;> hàu sửa luộc ăn ngán lắm e, nướng mỡ hành thì ăn oke ngon hơn nhìu<br>
+;> 
