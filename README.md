@@ -8,4 +8,6 @@
 ;> con đũy già a ghét mắc nợ lên mạng lảm nhảm than khổ e =)))<br>
 ;> dạy cách nhìn đời, nhìn người,... dạy ngta chứ đéo lợi lộc gì cho bản thân, cái tôi nó cao thích lảm nhảm cho sướng miệng ý e<br>
 ;> dưới a ngta khá giả, giàu có ngta làm nhìu hơn nói, ngta lo cho bản thân, con cái ngta đủ đầy<br>
-;> mình nên nhìn mấy người có tiền cuộc sống ngta tốt mình học theo e
+;> mình nên nhìn mấy người có tiền cuộc sống ngta tốt mình học theo e<br>
+;> nhìu ng làm lương thấp nhưng mà khi có gia đình cha mẹ 2 bên phụ, còn lương thấp mà tự lập 100% thì khổ, ko đủ tiền<br>
+;> 
