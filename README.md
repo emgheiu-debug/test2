@@ -8,4 +8,5 @@
 ;> 1800calo/7700calo =0.234 kg mỡ<br>
 ;> tính ra đốt đc hơn 200gram mỡ thôi e<br>
 ;> kệ đc nhiu hay nhiu e, có giảm mỡ là đc<br>
-;> a tập nhẹ mà e
+;> a tập nhẹ mà e<br>
+;> xíu nhắn nhe e
