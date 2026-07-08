@@ -9,4 +9,7 @@
 ;> tính ra đốt đc hơn 200gram mỡ thôi e<br>
 ;> kệ đc nhiu hay nhiu e, có giảm mỡ là đc<br>
 ;> a tập nhẹ mà e<br>
-;> xíu nhắn nhe e
+;> xíu nhắn nhe e<br>
+;> a tắm đã e<br>
+;> a mún có tầm 1-2 con thôi e, e mún mấy con e<br>
+;> tùy theo túi tiền mình nữa e, giàu có khả năng nuôi thì mấy con cũng đc e
