@@ -15,4 +15,7 @@
 ;> tùy theo túi tiền mình nữa e, giàu có khả năng nuôi thì mấy con cũng đc e<br>
 ;> a tắm rửa đánh răng ròi e, có ngủ quên cũng hem sao<br>
 ;> a nay bớt ăn ốm lại ròi, mà chưa cân lại nữa e, chắc còn hơn 48kg quá e<br>
-;> a ốm mới đẹp e, mặt gọn
+;> a ốm mới đẹp e, mặt gọn<br>
+;> e thích mấy con e<br>
+;> bùn ngủ quá e<br>
+;> 
