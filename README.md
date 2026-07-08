@@ -14,4 +14,5 @@
 ;> a mún có tầm 1-2 con thôi e, e mún mấy con e<br>
 ;> tùy theo túi tiền mình nữa e, giàu có khả năng nuôi thì mấy con cũng đc e<br>
 ;> a tắm rửa đánh răng ròi e, có ngủ quên cũng hem sao<br>
-;> a nay bớt ăn ốm lại ròi, mà chưa cân lại nữa e, chắc còn hơn 48kg quá e
+;> a nay bớt ăn ốm lại ròi, mà chưa cân lại nữa e, chắc còn hơn 48kg quá e<br>
+;> a ốm mới đẹp e, mặt gọn
