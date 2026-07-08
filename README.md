@@ -4,4 +4,6 @@
 ;> chạy mấy tháng chắc cũng mất vài trăm gram mỡ ròi e<br>
 ;> cho 2 tuần/ 300calo đi e<br>
 ;> 1 tháng 600calc<br>
-;> a chạy cho 3 tháng đi, đốt 1800calo
+;> a chạy cho 3 tháng đi, đốt 1800calo<br>
+;> 1800calo/7700calo =0.234 kg mỡ<br>
+;> tính ra đốt đc hơn 200gram mỡ thôi e
