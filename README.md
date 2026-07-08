@@ -3,4 +3,5 @@
 ;> tuần chạy bộ 1-2 lần thế thôi e, đốt mỡ bớt<br>
 ;> chạy mấy tháng chắc cũng mất vài trăm gram mỡ ròi e<br>
 ;> cho 2 tuần/ 300calo đi e<br>
-;> 1 tháng 600calc
+;> 1 tháng 600calc<br>
+;> a chạy cho 3 tháng đi, đốt 1800calo
