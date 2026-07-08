@@ -18,4 +18,4 @@
 ;> a ốm mới đẹp e, mặt gọn<br>
 ;> e thích mấy con e<br>
 ;> bùn ngủ quá e<br>
-;> xíu thấy a i, ru quài là a ngủ quên nha e
+;> xíu thấy a im ru quài là a ngủ quên nha e
