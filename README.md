@@ -16,4 +16,6 @@
 ;> nói chung thì cty này lương thấp e nên a mún xin nghỉ<br>
 ;> vs hay nợ lương<br>
 ;> làm thì mình cũng làm như bth thôi e, để ngta ko nghi ngờ xin nghỉ đi pv nó cũng dễ<br>
-;> làm phải để ngta nghỉ mình lâu dài vs ngta e, còn lâu hay ko đó là tự trong bụng mình suy nghĩ
+;> làm phải để ngta nghỉ mình lâu dài vs ngta e, còn lâu hay ko đó là tự trong bụng mình suy nghĩ<br>
+;> ai nghĩ gì kệ ngta thôi e, hơi đâu quản chuyện mình ko kiểm soát đc hen e<br>
+;> khuya r ngủ đi e
