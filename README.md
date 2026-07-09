@@ -10,4 +10,5 @@
 ;> 1 tháng làm vài chục củ thử coi e, sống phẻ re chứ gì e<br>
 ;> thời buổi này làm có tiền ko lẹ thuộc ai hết, làm mướn thì lệ thuộc chủ, còn làm chủ thì lệ thuộc khách hàng, làm ko bán đc, hay ko có ai dùng dịch vụ cũng móm nữa e<br>
 ;> có làm nhà nước là ko phải nhìn sắc mặc ai à e, nhưng mà tiền ít thì cũng phải chật vật khổ thôi e<br>
-;> nghèo cũng nhìn sắc mặt người khác thôi e, như cuối tháng đóng tiền trọ ko có tiền phải năn nỉ ngta, đóng tiền học cho con ko có tiền cũng phải lếch mặt đi xin ngta đóng trễ z e
+;> nghèo cũng nhìn sắc mặt người khác thôi e, như cuối tháng đóng tiền trọ ko có tiền phải năn nỉ ngta, đóng tiền học cho con ko có tiền cũng phải lếch mặt đi xin ngta đóng trễ z e<br>
+;> mong muốn của a trong năm nay là đổi việc mới để làm lâu dài
