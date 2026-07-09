@@ -15,4 +15,5 @@
 ;> a làm a sắm sửa này kia ko có dám đem vô sài lun á, dể ngta nói mình nhờ có ngta mà mình có này kia sài, làm giá lên cty ngta lương tốt các thứ, ròi làm như là a làm chỗ này mới có những thứ đó, làm chỗ khác ko có<br>
 ;> nói chung thì cty này lương thấp e nên a mún xin nghỉ<br>
 ;> vs hay nợ lương<br>
-;> làm thì mình cũng làm như bth thôi e, để ngta ko nghi ngờ xin nghỉ đi pv nó cung4 dễ
+;> làm thì mình cũng làm như bth thôi e, để ngta ko nghi ngờ xin nghỉ đi pv nó cũng dễ<br>
+;> làm phải để ngta nghỉ mình lâu dài vs ngta e, còn lâu hay ko đó là tự trong bụng mình suy nghĩ
