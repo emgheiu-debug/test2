@@ -12,4 +12,6 @@
 ;> đổi việc mới thì mình gặp nhau sớm ko thì gần cuối năm e, tháng 10,11 âm lịch gì đó<br>
 ;> tối uống trà riếc răng nó muốn vàng lun e<br>
 ;> chắc mốt đi cạo vôi răng thôi e<br>
-;> a mún có tiền để làm nhìu thứ lắm
+;> a mún có tiền để làm nhìu thứ lắm<br>
+;> ko đổi việc đc thì cứ làm công việc cũ thôi e<br>
+;> giờ khó xin việc ko phải như ngày xưa nữa e
