@@ -11,4 +11,5 @@
 ;> đi làm chỗ nghèo thì sống vô tri xíu e<br>
 ;> đổi việc mới thì mình gặp nhau sớm ko thì gần cuối năm e, tháng 10,11 âm lịch gì đó<br>
 ;> tối uống trà riếc răng nó muốn vàng lun e<br>
-;> chắc mốt đi cạo vôi răng thôi e
+;> chắc mốt đi cạo vôi răng thôi e<br>
+;> a mún có tiền để làm nhìu thứ lắm
