@@ -14,4 +14,5 @@
 ;> chắc mốt đi cạo vôi răng thôi e<br>
 ;> a mún có tiền để làm nhìu thứ lắm<br>
 ;> ko đổi việc đc thì cứ làm công việc cũ thôi e<br>
-;> giờ khó xin việc ko phải như ngày xưa nữa e
+;> giờ khó xin việc ko phải như ngày xưa nữa e<br>
+;> ngủ đi vợ, mai nhắn tiếp a, a cũng hơi bùn ngủ ròi
