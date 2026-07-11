@@ -7,4 +7,7 @@
 ;> mấy nay a ốm đc có xíu chắc bớt a lại, bth a ko có ăn sáng e<br>
 ;> ít khi nào ăn lắm<br>
 ;> tháng sau nữa chắc mua đc cái đt 10 củ mà thôi để đó đi<br>
-;> tính ra lương a như z nếu mà làm lâu dài thì vừa già vừa nghèo
+;> tính ra lương a như z nếu mà làm lâu dài thì vừa già vừa nghèo<br>
+;> nữa mình ở chung làm góc ban công trồng cây ý e, kiểng, rau màu đồ ý e<br>
+;> <img width="260" height="274" alt="image" src="https://github.com/user-attachments/assets/32fe1ea7-13b7-4867-9d70-6d5683885f68" /><br>
+;> monstera này đẹp á e
