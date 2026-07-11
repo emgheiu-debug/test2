@@ -5,4 +5,6 @@
 ;> giờ chưa tiền nữa e, nào ở chung có con e, chắc e phải có con muộn ròi<br>
 ;> thôi số tới đâu cố tới đó z e<br>
 ;> mấy nay a ốm đc có xíu chắc bớt a lại, bth a ko có ăn sáng e<br>
-;> ít khi nào ăn lắm
+;> ít khi nào ăn lắm<br>
+;> tháng sau nữa chắc mua đc cái đt 10 củ mà thôi để đó đi<br>
+;> tính ra lương a như z nếu mà làm lâu dài thì vừa già vừa nghèo
