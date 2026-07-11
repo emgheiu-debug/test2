@@ -11,4 +11,5 @@
 ;> nữa mình ở chung làm góc ban công trồng cây ý e, kiểng, rau màu đồ ý e<br>
 ;> <img width="260" height="274" alt="image" src="https://github.com/user-attachments/assets/32fe1ea7-13b7-4867-9d70-6d5683885f68" /><br>
 ;> monstera này đẹp á e<br>
-;> monstera đột biến trắng xanh nhìn đẹp á e
+;> monstera đột biến trắng xanh nhìn đẹp á e<br>
+<img width="331" height="251" alt="image" src="https://github.com/user-attachments/assets/51a65bf4-0ba0-402f-82b6-b38686a05e7f" /><br>
