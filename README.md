@@ -18,4 +18,5 @@
 ;> có nước trúng số á e, trúng vài tờ á e, mới đc thôi, ko thì thu nhập cao làm tích lũy nhìu năm<br>
 ;> thu nhập cao mà làm biết tích lũy kìa, lỡ xui rủi thu nhập thấp tiền bạc ko thuận lợi cũng có cái mà quay<br>
 ;> đâu phải ai cũng kiếm nhìu tiền quài đâu e<br>
-;> như shark bình kinh doanh lụi tàn đi lừa đảo lùa gà, khoa pubg phá sản đó e
+;> như shark bình kinh doanh lụi tàn đi lừa đảo lùa gà, khoa pubg phá sản đó e<br>
+;> a bùn ngủ quá e, e mún khi nào mình ngủ vs nhau e
