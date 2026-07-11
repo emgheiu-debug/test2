@@ -13,4 +13,6 @@
 ;> monstera này đẹp á e<br>
 ;> monstera đột biến trắng xanh nhìn đẹp á e<br>
 <img width="331" height="251" alt="image" src="https://github.com/user-attachments/assets/51a65bf4-0ba0-402f-82b6-b38686a05e7f" /><br>
-;> sao a nghĩ lại cuộc đời a bùn quá e
+;> sao a nghĩ lại cuộc đời a bùn quá e<br>
+;> ước làm có nhìu tiền mua đất cất nhà, mua sắm vật chất =)))<br>
+;> có nước trúng số á e, trúng vài tờ á e, mới đc thôi, ko thì thu nhập cao làm tích lũy nhìu năm
