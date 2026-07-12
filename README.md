@@ -36,4 +36,4 @@
 ;> khu vực ảo tưởng mua ôtô thì cách nhà a 10km, còn gần nhà a chủ yếu ngta làm có tiền bo bo mua đất tích lũy ko à<br>
 ;> có chỗ ngta mua góp xe tải ròi cho thuê nữa e<br>
 ;> mà cho thuê thì xe tải cũng hay hư lắm e, xài lâu nó hư quài à<br>
-;> 
+;> ở bình tân có chỗ bán gà nướng pleiku gì á e, nào a ghé đó a mua ăn
