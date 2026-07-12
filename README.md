@@ -38,4 +38,4 @@
 ;> mà cho thuê thì xe tải cũng hay hư lắm e, xài lâu nó hư quài à<br>
 ;> ở bình tân có chỗ bán gà nướng pleiku gì á e, nào a ghé đó a mua ăn<br>
 ;> đợi mua cho 2 đứa mình ăn á, chắc a chảy nước miếng lun<br>
-;> 
+;> thôi thèm tự ăn cho lành e, xíu rảnh a nhắn nhe e
