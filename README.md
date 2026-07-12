@@ -17,4 +17,6 @@
 ;> ở việt nam mà đánh thuế bất động sản thì ngta mới thay đổi khái niệm về mua đất để tích lũy thôi e<br>
 ;> nói trước z thôi e, chứ giờ nghèo quá ảo tưởng miếng<br>
 ;> ở dưới quê a có người làm lương thấp mà vẫn ảo tưởng mua ô tô<br>
-;> nội tiền mà đổ xăng nuôi chiếc xe thôi cũng 1 ngày lương ròi lấy gì ăn, nuôi gia đình
+;> nội tiền mà đổ xăng nuôi chiếc xe thôi cũng 1 ngày lương ròi lấy gì ăn, nuôi gia đình<br>
+;> a biết có cặp vợ chồng mua con xe ô tô hơn 300 triệu làm lương thấp mà vợ đang có bầu 1 ngày chạy 2 vợ chồng đi làm cũng 100k tiền xăng ròi<br>
+;> trong khi lương tháng vài triệu à
