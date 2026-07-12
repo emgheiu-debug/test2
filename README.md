@@ -19,4 +19,7 @@
 ;> ở dưới quê a có người làm lương thấp mà vẫn ảo tưởng mua ô tô<br>
 ;> nội tiền mà đổ xăng nuôi chiếc xe thôi cũng 1 ngày lương ròi lấy gì ăn, nuôi gia đình<br>
 ;> a biết có cặp vợ chồng mua con xe ô tô hơn 300 triệu làm lương thấp mà vợ đang có bầu 1 ngày chạy 2 vợ chồng đi làm cũng 100k tiền xăng ròi<br>
-;> trong khi lương tháng vài triệu à
+;> trong khi lương tháng vài triệu à<br>
+;> xe ôtô morning ý e<br>
+<img width="401" height="287" alt="image" src="https://github.com/user-attachments/assets/1752eff0-d40e-4da2-b1b1-70cd5a11858c" /><br>
+;> 
