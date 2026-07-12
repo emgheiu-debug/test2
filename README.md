@@ -33,4 +33,7 @@
 ;> xăng E10 20k/1 lít<br>
 ;> thấy ngta ảo tưởng quá mà mình ko dám nói, sợ bị chửi vs bị ghét ý e mà ko phải việc của mình nữa<br>
 ;> còn ở gần nhà a thì ngta lo làm mua đất là chủ yếu ko có mua ôtô như ở khu vực đó<br>
-;> khu vực ảo tưởng mua ôtô thì cách nhà a 10km, còn gần nhà a chủ yếu ngta làm có tiền bo bo mua đất tích lũy ko à
+;> khu vực ảo tưởng mua ôtô thì cách nhà a 10km, còn gần nhà a chủ yếu ngta làm có tiền bo bo mua đất tích lũy ko à<br>
+;> có chỗ ngta mua góp xe tải ròi cho thuê nữa e<br>
+;> mà cho thuê thì xe tải cũng hay hư lắm e, xài lâu nó hư quài à<br>
+;> 
