@@ -15,4 +15,6 @@
 ;> có tiền mình mua bất động sản cho thuê<br>
 ;> a thì a thích đầu tư bất động sản hơn là gửi ngân hàng lấy lãi<br>
 ;> ở việt nam mà đánh thuế bất động sản thì ngta mới thay đổi khái niệm về mua đất để tích lũy thôi e<br>
-;> nói trước z thôi e, chứ giờ nghèo quá ảo tưởng miếng
+;> nói trước z thôi e, chứ giờ nghèo quá ảo tưởng miếng<br>
+;> ở dưới quê a có người làm lương thấp mà vẫn ảo tưởng mua ô tô<br>
+;> nội tiền mà đổ xăng nuôi chiếc xe thôi cũng 1 ngày lương ròi lấy gì ăn, nuôi gia đình
