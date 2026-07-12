@@ -7,4 +7,6 @@
 ;> mấy nay có nungfg hem e<br>
 ;> đợi năm sau coi a hết nghèo hem e<br>
 ;> nữa e nghỉ đẻ ròi có thể a sẽ thay e quản lý cty e hả<br>
-;> hay ai quản lý a quản lý phụ e thôi
+;> hay ai quản lý a quản lý phụ e thôi<br>
+;> a làm chỗ khác quá nhìu tiền thì a vừa làm chỗ đó vừa phụ e cũng đc<br>
+;> nói chung là kinh tế gia đình thôi e
