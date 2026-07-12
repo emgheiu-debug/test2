@@ -11,4 +11,5 @@
 ;> a vệ sinh cá nhân xíu, lát nhắn nhe e<br>
 ;> hẹn e dịp gần tết nhe e<br>
 ;> đợi a 4-5 tháng nữa nhe e, vì giờ chưa tiền, công việc chưa ổn định chưa có gì cả, thôi thì cuối năm gặp lấy niềm vui e nhể<br>
-;> iu đéo gì toàn iu xa ko à e
+;> iu đéo gì toàn iu xa ko à e<br>
+;>
