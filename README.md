@@ -22,4 +22,5 @@
 ;> trong khi lương tháng vài triệu à<br>
 ;> xe ôtô morning ý e<br>
 <img width="401" height="287" alt="image" src="https://github.com/user-attachments/assets/1752eff0-d40e-4da2-b1b1-70cd5a11858c" /><br>
-;> 
+;> xe nó chút xíu à, 4 chỗ, làm công ăn lương , lương thấp mà mua xe hơn 300 củ<br>
+;> xe ôtô có mua trả góp nữa e
