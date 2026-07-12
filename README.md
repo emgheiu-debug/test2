@@ -5,4 +5,6 @@
 ;> a sợ nghèo hơn là sợ bắt đầu ở môi trường mới<br>
 ;> a bớt ăn lại để giảm cân e, vs nghèo nữa<br>
 ;> mấy nay có nungfg hem e<br>
-;> đợi năm sau coi a hết nghèo hem e
+;> đợi năm sau coi a hết nghèo hem e<br>
+;> nữa e nghỉ đẻ ròi có thể a sẽ thay e quản lý cty e hả<br>
+;>
