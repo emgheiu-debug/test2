@@ -8,4 +8,5 @@
 ;> e hỉu ý a hong<br>
 ;> kiếp nạn tuổi trẻ hay gì á e, vô chỗ gì đâu ko, kiếp trước chắc ăn giựt dữ lắm mới đc như a<br>
 ;> bùn ngủ quá e<br>
-;> a vệ sinh cá nhân xíu, lát nhắn nhe e
+;> a vệ sinh cá nhân xíu, lát nhắn nhe e<br>
+;> hẹn e dịp gần tết nhe e
