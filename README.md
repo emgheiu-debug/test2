@@ -4,3 +4,4 @@
 ;> ko biết bao giờ mới nghỉ đc chỗ này e<br>
 ;> a sợ nghèo hơn là sợ bắt đầu ở môi trường mới<br>
 ;> a bớt ăn lại để giảm cân e, vs nghèo nữa<br>
+;> mấy nay có nungfg hem e
