@@ -10,4 +10,5 @@
 ;> hay ai quản lý a quản lý phụ e thôi<br>
 ;> a làm chỗ khác quá nhìu tiền thì a vừa làm chỗ đó vừa phụ e cũng đc<br>
 ;> nói chung là kinh tế gia đình thôi e<br>
-;> a làm chỗ khác giàu có đem kinh nghiệm về phụ e cũng đc
+;> a làm chỗ khác giàu có đem kinh nghiệm về phụ e cũng đc<br>
+;> làm có tuổi bị ngta đuổi về làm cho e
