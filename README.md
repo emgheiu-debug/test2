@@ -7,4 +7,4 @@
 ;> mấy nay có nungfg hem e<br>
 ;> đợi năm sau coi a hết nghèo hem e<br>
 ;> nữa e nghỉ đẻ ròi có thể a sẽ thay e quản lý cty e hả<br>
-;>
+;> hay ai quản lý a quản lý phụ e thôi
