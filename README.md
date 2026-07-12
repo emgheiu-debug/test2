@@ -14,4 +14,5 @@
 ;> làm có tuổi bị ngta đuổi về làm cho e<br>
 ;> có tiền mình mua bất động sản cho thuê<br>
 ;> a thì a thích đầu tư bất động sản hơn là gửi ngân hàng lấy lãi<br>
-;> ở việt nam mà đánh thuế bất động sản thì ngta mới thay đổi khái niệm về mua đất để tích lũy thôi e
+;> ở việt nam mà đánh thuế bất động sản thì ngta mới thay đổi khái niệm về mua đất để tích lũy thôi e<br>
+;> nói trước z thôi e, chứ giờ nghèo quá ảo tưởng miếng
