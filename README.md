@@ -26,4 +26,11 @@
 ;> xe ôtô có mua trả góp nữa e<br>
 ;> chạy gần 1 ngày 100k tiền xăng<br>
 ;> nghèo mà ảo tưởng ghê e, có người làm lương 5 triệu, làm lương như công nhân mà ảo tưởng mua xe ô tô hơn 300 củ nữa<br>
-;> 
+;> ngta làm ko có tính chuyện mua nhà ở nhà vs cha mẹ ko à e<br>
+;> vs lại chi phí ngta ăn xài nó ít lắm ko giống như xài gòn<br>
+;> ngta làm lương 5 triệu mà nhìu khi còn có dư á e<br>
+;> hợp cơm 25k<br>
+;> xăng E10 20k/1 lít<br>
+;> thấy ngta ảo tưởng quá mà mình ko dám nói, sợ bị chửi vs bị ghét ý e mà ko phải việc của mình nữa<br>
+;> còn ở gần nhà a thì ngta lo làm mua đất là chủ yếu ko có mua ôtô như ở khu vực đó<br>
+;> khu vực ảo tưởng mua ôtô thì cách nhà a 10km, còn gần nhà a chủ yếu ngta làm có tiền bo bo mua đất tích lũy ko à
