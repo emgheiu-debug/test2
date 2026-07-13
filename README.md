@@ -16,4 +16,6 @@
 ;> a uống matcha riếc mà cái mũi đỡ bị ngứa khi uống nước đá rất là nhìu e<br>
 ;> chứ ngày xưa a còn đi học khám lẫn mua thuốc lun hơn 3 củ mà ko hết<br>
 ;> hết mà tái tái đi tái lại xong như cũ ý e<br>
-;> mà tận hơn 3 củ
+;> mà tận hơn 3 củ<br>
+;> vợ a nhìn dú ngon dữ z e =)))<br>
+;> đi làm là có động lực về sớm vs vợ liền
