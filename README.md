@@ -14,4 +14,6 @@
 ;> a đổi dt xong nếu mà công việc của a tạo ra nhìu tiền thì a đổi laptop xong xong mới đổi con xe máy<br>
 ;> cha mẹ ko lo thì mình tự lo thôi e, làm có tiền thì mình hưởng thụ bản thân là chính thôi e<br>
 ;> a uống matcha riếc mà cái mũi đỡ bị ngứa khi uống nước đá rất là nhìu e<br>
-;> chứ ngày xưa a còn đi học khám lẫn mua thuốc lun hơn 3 củ mà ko hết
+;> chứ ngày xưa a còn đi học khám lẫn mua thuốc lun hơn 3 củ mà ko hết<br>
+;> hết mà tái tái đi tái lại xong như cũ ý e<br>
+;> mà tận hơn 3 củ
