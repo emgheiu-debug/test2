@@ -7,4 +7,9 @@
 ;> a cũng ko có ghiền mua vé số đâu e<br>
 ;> thấy thg cha gì trên mạng mua vé số trúng cỡ 83 tỉ, có thể là ngta trúng thật cũng có thể là ngta đc thuê để PR quảng cáo cho mấy chỗ vietlot trúng số<br>
 ;> ko biết vietlot kinh doanh gì mà 1 lần trúng đậm ghê e, đậm đến nỗi mà trúng 1 lần ko cần phải đi làm nữa<br>
-;> thời buổi giờ kinh doanh gì giàu e, khó lắm
+;> thời buổi giờ kinh doanh gì giàu e, khó lắm<br>
+;> a thấy có gói mua đt trả góp 0% nữa mà a có ý định đổi việc nên ko trả góp đc<br>
+;> trả góp đt tiêu sản đâu có như trả góp nhà đâu e<br>
+;> vợ a lên ảnh có bóp ảnh gì hem sao nhìn gọn z e<br>
+;> a đổi dt xong nếu mà công việc của a tạo ra nhìu tiền thì a đổi laptop xong xong mới đổi con xe máy<br>
+;> cha mẹ ko lo thì mình tự lo thôi e, làm có tiền thì mình hưởng thụ bản thân là chính thôi e
