@@ -6,4 +6,5 @@
 ;> hẹn gặp e 3-4 tháng nữa, tại a đi mua đt <br>
 ;> nếu mà ko đổi việc thì 3-4 tháng nữa đủ mua ròi e, đổi việc lương cao thì vẫn đủ mua thôi e mà hơi rủi ro, có giai đoạn thử việc nữa, làm quen vs môi trường mới<br>
 ;> có hợp vs văn hóa cty hay ko nữa đủ thứ vấn đề<br>
-;> thà hơi rủi ro chứ nghèo cả đời sao sống nổi e
+;> thà hơi rủi ro chứ nghèo cả đời sao sống nổi e<br>
+;> khuya ròi ngủ đi e, ngủ ngon
