@@ -6,4 +6,5 @@
 ;> có tập là đc ngồi nhìu ko có tốt e<br>
 ;> giờ a nghèo quá ước có nhìu tiền =)))<br>
 ;> đổi việc ý e<br>
-;> mà thời buổi giờ kinh doanh khó khăn nên xin việc cũng khó e
+;> mà thời buổi giờ kinh doanh khó khăn nên xin việc cũng khó e<br>
+;> bùn ngủ quá vợ ơi
