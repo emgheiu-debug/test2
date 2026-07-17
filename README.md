@@ -6,4 +6,5 @@
 ;> mua đi e, mới nhắn hỏi nó bán ế quá trời<br>
 ;> https://www.tiktok.com/@plantlabdatsach?_r=1&_t=ZS-986bZGZTKLd<br>
 ;> link tiktok shop nè e, mua đi a chỉ cho trồng<br>
-;> mở hàng e =)))
+;> mở hàng e =)))<br>
+;> a iu ngủ quên e, mà nay ko có làm
