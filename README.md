@@ -19,4 +19,5 @@
 ;> e thì chắc thích ăn đồ ngọt<br>
 ;> a thì món nào ngon a cũng ăn đc hết á<br>
 ;> mà a hong ưa đồ ngọt cho lắm<br>
-;> e có ăn cho a 1-2 muỗng a cho biết, lấy vị z thôi e
+;> e có ăn cho a 1-2 muỗng a cho biết, lấy vị z thôi e<br>
+;> vợ a nấu canh, xào, nướng, chiên,...a đều ăn đc hết ko có kị món nào hết, cũng cũng dễ nuôi e
