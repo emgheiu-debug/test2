@@ -31,4 +31,5 @@
 ;> mà răng a đi cạo vôi răng gặp chỗ nào cạo ko kỹ là cũng như ko<br>
 ;> tại nó ít quá<br>
 ;> ko kỹ thì ko thấy, a nghĩ nhìu mới dễ cạo chứ e<br>
-;> e nay nhiu kg e
+;> e nay nhiu kg e<br>
+;> a ngủ nhe, bùn ngủ quá, ngủ ngon e
