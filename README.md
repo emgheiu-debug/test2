@@ -20,4 +20,5 @@
 ;> a thì món nào ngon a cũng ăn đc hết á<br>
 ;> mà a hong ưa đồ ngọt cho lắm<br>
 ;> e có ăn cho a 1-2 muỗng a cho biết, lấy vị z thôi e<br>
-;> vợ a nấu canh, xào, nướng, chiên,...a đều ăn đc hết ko có kị món nào hết, cũng cũng dễ nuôi e
+;> vợ a nấu canh, xào, nướng, chiên,...a đều ăn đc hết ko có kị món nào hết, cũng cũng dễ nuôi e<br>
+;> 1 ngày 2-3 món đc ròi e, bận quá thì 1 món hay 2 món cũng đc hoặc ăn tiệm
