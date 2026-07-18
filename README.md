@@ -14,4 +14,5 @@
 ;> a bận xíu<br>
 ;> hẹn hò dần ròi ngủ chung e, a mới mua 2 cái quần đùi có con in con vịt lên cũng dễ thương lắm e<br>
 ;> mấy nay bỏ bê e quá<br>
-;> mà a kêu e mua đồ tiktok giùm ko mua
+;> mà a kêu e mua đồ tiktok giùm ko mua<br>
+;> a tắm rửa xíu ròi a nhắn nhe e
