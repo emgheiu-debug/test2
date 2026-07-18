@@ -8,4 +8,5 @@
 <img width="100" height="100" alt="1784374106797_355417292016876579_8312341677704101526_21abb6d047d86a242f37ca3f32fe3337" src="https://github.com/user-attachments/assets/885b2ed3-1f02-4d3e-9f22-6187a1ef5b83" /><br>
 ;> mèo nhà mẹ a nuôi dễ thương ko e<br>
 ;> nhà a nuôi 2 con chó 2 con mèo, mẹ a nuôi chứ a ko có nuôi<br>
-;> a thì a thích nuôi mèo hơn nuôi chó
+;> a thì a thích nuôi mèo hơn nuôi chó<br>
+;> nào hẹn hò thì mình sắp xếp gặp nhau 1tuần/1-3 lần
