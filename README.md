@@ -18,4 +18,5 @@
 ;> a tắm rửa xíu ròi a nhắn nhe e<br>
 ;> e thì chắc thích ăn đồ ngọt<br>
 ;> a thì món nào ngon a cũng ăn đc hết á<br>
-;> mà a hong ưa đồ ngọt cho lắm
+;> mà a hong ưa đồ ngọt cho lắm<br>
+;> e có ăn cho a 1-2 muỗng a cho biết, lấy vị z thôi e
