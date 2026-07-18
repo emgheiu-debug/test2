@@ -27,4 +27,7 @@
 ;> tại chưa skinecare đánh răng e, nữa đá lưỡi vs e, e chê ròi sao<br>
 ;> ăn chung muỗng, đũa chê sao e =)))<br>
 ;> bulon chắc hong chê<br>
-;> nói z chứ răng a trắng lắm, hong có vàng, vàng là có nước mới đánh răng xong uống trà bị vàng thôi 
+;> nói z chứ răng a trắng lắm, hong có vàng, vàng là có nước mới đánh răng xong uống trà bị vàng thôi<br> 
+;> mà răng a đi cạo vôi răng gặp chỗ nào cạo ko kỹ là cũng như ko<br>
+;> tại nó ít quá<br>
+;> ko kỹ thì ko thấy, a nghĩ nhìu mới dễ cạo chứ e
