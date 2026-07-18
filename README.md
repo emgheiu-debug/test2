@@ -9,4 +9,5 @@
 ;> mèo nhà mẹ a nuôi dễ thương ko e<br>
 ;> nhà a nuôi 2 con chó 2 con mèo, mẹ a nuôi chứ a ko có nuôi<br>
 ;> a thì a thích nuôi mèo hơn nuôi chó<br>
-;> nào hẹn hò thì mình sắp xếp gặp nhau 1tuần/1-3 lần
+;> nào hẹn hò thì mình sắp xếp gặp nhau 1tuần/1-3 lần<br>
+;> tối a nhịn a tại mập lại ròi e
