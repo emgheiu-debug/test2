@@ -21,4 +21,6 @@
 ;> mà a hong ưa đồ ngọt cho lắm<br>
 ;> e có ăn cho a 1-2 muỗng a cho biết, lấy vị z thôi e<br>
 ;> vợ a nấu canh, xào, nướng, chiên,...a đều ăn đc hết ko có kị món nào hết, cũng cũng dễ nuôi e<br>
-;> 1 ngày 2-3 món đc ròi e, bận quá thì 1 món hay 2 món cũng đc hoặc ăn tiệm
+;> 1 ngày 2-3 món đc ròi e, bận quá thì 1 món hay 2 món cũng đc hoặc ăn tiệm<br>
+;> chắc mốt a làm sò huyết xào bơ tỏi hay muối ớt đi e, xò huyết xào me thì ngon hơn mà a ko biết làm<br>
+;>
