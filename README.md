@@ -23,4 +23,7 @@
 ;> vợ a nấu canh, xào, nướng, chiên,...a đều ăn đc hết ko có kị món nào hết, cũng cũng dễ nuôi e<br>
 ;> 1 ngày 2-3 món đc ròi e, bận quá thì 1 món hay 2 món cũng đc hoặc ăn tiệm<br>
 ;> chắc mốt a làm sò huyết xào bơ tỏi hay muối ớt đi e, xò huyết xào me thì ngon hơn mà a ko biết làm<br>
-;>
+;> a nằm xíu nữa a ngủ quên<br>
+;> tại chưa skinecare đánh răng e, nữa đá lưỡi vs e, e chê ròi sao<br>
+;> ăn chung muỗng, đũa chê sao e =)))<br>
+;> bulon chắc hong chê
