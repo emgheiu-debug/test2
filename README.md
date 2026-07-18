@@ -26,4 +26,5 @@
 ;> a nằm xíu nữa a ngủ quên<br>
 ;> tại chưa skinecare đánh răng e, nữa đá lưỡi vs e, e chê ròi sao<br>
 ;> ăn chung muỗng, đũa chê sao e =)))<br>
-;> bulon chắc hong chê
+;> bulon chắc hong chê<br>
+;> nói z chứ răng a trắng lắm, hong có vàng, vàng là có nước mới đánh răng xong uống trà bị vàng thôi 
