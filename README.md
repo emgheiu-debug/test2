@@ -19,4 +19,5 @@
 ;> a tắm rửa xíu ròi a nhắn nhe e<br>
 ;> e nữa làm vợ a chịu hem<br>
 ;> còn ngủ chung đc cỡ 40 năm nữa thôi e, cho mình sống đến hơn 70 đi e<br>
-;> sống hơn 90 là gì lãng lai, mắt kém, tay chân run ròi e, sống khổ lắm
+;> sống hơn 90 là gì lãng lai, mắt kém, tay chân run ròi e, sống khổ lắm<br>
+;> tầm giờ này a hay bùn ngủ lắm e
