@@ -6,4 +6,5 @@
 ;> bữa chạy bộ còn đau cơ chắc ít bữa nữa mới chạy e<br>
 ;> mới ăn giờ thấy hơi đói đói ròi e, mà chắc ăn ít lại<br>
 ;> ngủ chung ròi có cho mò mẫm gì hem e<br>
-;> a lu bu xíu e
+;> a lu bu xíu e<br>
+;> a iu bùn ngủ quá e, tới giờ bùn ngủ ròi e
