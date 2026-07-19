@@ -13,4 +13,5 @@
 ;> mua tai nghe mới nó nghe ko đều như cái tai nghe cũ e<br>
 ;> nhảy qua youtube thì 40 mới nghe đc còn tự phát nhạc file.mp3 thì nó to kinh khủng ko đều đc như cái cũ <br>
 ;> a mua miếng nhựa dán lại coi ổn ko, cái cũ nghe bth mà thỉnh thoảng nó hơi giựt giựt lỗ tai nhẹ thôi e<br>
-;> giống như mà laptop kim loại mình xài ý e, thỉnh thoảng đụng cái nó hơi giựt giựt nhẹ
+;> giống như mà laptop kim loại mình xài ý e, thỉnh thoảng đụng cái nó hơi giựt giựt nhẹ<br>
+;> e xài mac có bị z hem, đang sạc lâu lâu đụng cái nó giựt giựt nhẹ
