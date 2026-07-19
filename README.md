@@ -7,4 +7,6 @@
 ;> mới ăn giờ thấy hơi đói đói ròi e, mà chắc ăn ít lại<br>
 ;> ngủ chung ròi có cho mò mẫm gì hem e<br>
 ;> a lu bu xíu e<br>
-;> a iu bùn ngủ quá e, tới giờ bùn ngủ ròi e
+;> a iu bùn ngủ quá e, tới giờ bùn ngủ ròi e<br>
+;> con laptop cũng hơi già ròi, ko biết khi nào có tiền đổi con mới<br>
+;> ko biết năm sau có tiền như bà thầy bói nói ko nữa e, mà giờ vẫn nghèo
