@@ -16,4 +16,7 @@
 ;> giống như mà laptop kim loại mình xài ý e, thỉnh thoảng đụng cái nó hơi giựt giựt nhẹ<br>
 ;> e xài mac có bị z hem, đang sạc lâu lâu đụng cái nó giựt giựt nhẹ<br>
 <img width="374" height="182" alt="image" src="https://github.com/user-attachments/assets/7eee9bc2-e355-4b74-9a9a-08aeafdee0cf" /><br>
-;> a tắm rửa xíu ròi a nhắn nhe e
+;> a tắm rửa xíu ròi a nhắn nhe e<br>
+;> e nữa làm vợ a chịu hem<br>
+;> còn ngủ chung đc cỡ 40 năm nữa thôi e, cho mình sống đến hơn 70 đi e<br>
+;> sống hơn 90 là gì lãng lai, mắt kém, tay chân run ròi e, sống khổ lắm
