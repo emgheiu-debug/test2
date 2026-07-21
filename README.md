@@ -8,4 +8,5 @@
 ;> mà thôi khỏi đi e, khi nào con laptop kiếm đc nhìu tiền thì nên đầu tư, ko thì mua phí tiền<br>
 ;> 70 củ =)))<br>
 ;> vợ a bùn ngủ chưa e<br>
-;> hẹn e 3 tháng nữa nhe, mình gặp nhau
+;> hẹn e 3 tháng nữa nhe, mình gặp nhau<br>
+;> ko đổi việc thì mua đt chữa lành thôi e
