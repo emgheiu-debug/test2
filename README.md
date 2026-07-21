@@ -4,4 +4,5 @@
 ;> làm lương thấp nhưng mà có vẫn hơn e<br>
 ;> a lu bu xíu, lát a nhắn nhe e<br>
 ;> xài con lap cấu hình chưa tới phải xài 1TGB 32G RAM mới đã e<br>
-;> mà chắc mắc dữ lắm
+;> mà chắc mắc dữ lắm<br>
+;> mà thôi khỏi đi e, khi nào con laptop kiếm đc nhìu tiền thì nên đầu tư, ko thì mua phí tiền
