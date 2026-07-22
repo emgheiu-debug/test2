@@ -9,4 +9,6 @@
 ;> mấy nay lười code quá, xíu xíu a code, tối tối xíu a nhắn nhe e<br>
 ;> ăn ít cơm, nhìu thịt nhìu đồ ăn a thấy lâu đói hơn á e, mà lại ốm nữa<br>
 ;> đâu e làm thử coi ăn ít cơm lại ăn thịt vs rau nhìu là ốm <br>
-;> a mới ăn 1 bữa mà ốm ròi e, 1-3 bữa chắc còn 48kg
+;> a mới ăn 1 bữa mà ốm ròi e, 1-3 bữa chắc còn 48kg<br>
+;> bớt ăn cơm lại là ốm thôi e, ăn thịt vs rau<br>
+;>
