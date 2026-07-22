@@ -6,4 +6,5 @@
 ;> a giờ sống nghèo khổ tới cuối tháng ròi e<br>
 ;> cơ bản là có mấy món ăn cũng chán ròi e<br>
 ;> ăn cơm bth, vs sáng 1 ly matcha tiền xăng là những ngày cuối tháng của a<br>
-;> mấy nay lười code quá, xíu xíu a code, tối tối xíu a nhắn nhe e
+;> mấy nay lười code quá, xíu xíu a code, tối tối xíu a nhắn nhe e<br>
+;> ăn ít cơm, nhìu thịt nhìu đồ ăn a thấy lâu đói hơn á e, mà lại ốm nữa
