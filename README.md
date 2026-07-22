@@ -4,3 +4,5 @@
 ;> tối e thường làm gì e<br>
 ;> toàn xàm lòn hem có gì coi hết e<br>
 ;> a giờ sống nghèo khổ tới cuối tháng ròi e<br>
+;> cơ bản là có mấy món ăn cũng chán ròi e<br>
+;> 
