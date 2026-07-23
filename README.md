@@ -5,4 +5,4 @@
 ;> nay hem chạy bộ là ngồi dán miếng đó đó e<br>
 ;> a dán xấu lắm<br>
 ;> cỡ tháng 11 a mua đt nhe e<br>
-;> 
+;> ngủ đi e, a ngủ à
