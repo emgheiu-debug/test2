@@ -12,4 +12,5 @@
 ;> làm cho người lớn tuổi vs người trẻ tuổi nó khác nhau e à<br>
 ;> ví dụ như người trẻ tầm loanh quanh 30 thì ngta thoải mái hơn vs chú trọng hiệu suất cv<br>
 ;> còn người lớn tuổi thì họ chú trọng kỷ luật giờ giấc làm đúng giờ hơn là cái chuyện làm xong việc e<br>
-;> 
+;> làm đủ 8 tiếng như mà làm lề mề chưa xong việc làm đúng giờ giấc họ vẫn thích hơn là làm 5 tiếng như mà làm xong việc<br>
+;>
