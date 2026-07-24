@@ -8,4 +8,8 @@
 ;> nảy giờ nằm liu thiu bùn ngủ e<br>
 ;> a mới ươm cây cà chua sôcôla nè e, tại hong có chỗ trồng nhìu<br>
 ;> trồng 2-3 loại rau ăn chơi chơi thôi e<br>
-;> a mong cho hết ngày hết tháng để đến lúc nghỉ việc công ty này
+;> a mong cho hết ngày hết tháng để đến lúc nghỉ việc công ty này<br>
+;> làm cho người lớn tuổi vs người trẻ tuổi nó khác nhau e à<br>
+;> ví dụ như người trẻ tầm loanh quanh 30 thì ngta thoải mái hơn vs chú trọng hiệu suất cv<br>
+;> còn người lớn tuổi thì họ chú trọng kỷ luật giờ giấc làm đúng giờ hơn là cái chuyện làm xong việc e<br>
+;> 
