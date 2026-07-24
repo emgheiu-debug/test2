@@ -7,4 +7,5 @@
 ;> a mới mua vớ này nè e, nhìn củng đẹp<br>
 ;> nảy giờ nằm liu thiu bùn ngủ e<br>
 ;> a mới ươm cây cà chua sôcôla nè e, tại hong có chỗ trồng nhìu<br>
-;> trồng 2-3 loại ra ăn chơi chơi thôi e
+;> trồng 2-3 loại rau ăn chơi chơi thôi e<br>
+;>
