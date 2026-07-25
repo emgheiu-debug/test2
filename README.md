@@ -15,4 +15,5 @@
 ;> mấy nay có nungfd hem e, ngủ chung làm tình xíu e nhó<br>
 ;> hôm nào ko ngủ quên là skinecare đánh răng đủ e nhó<br>
 ;> kem đánh răng thì a xài sensodyne vs ngọc châu là ổn ko biết loại nào ổn hơn ko e<br>
-;> mới giờ mà a buồn ngủ vãi
+;> mới giờ mà a buồn ngủ vãi<br>
+;> ngủ e, a mở mắt hết nổi rồi, ngủ ngon vợ iu
