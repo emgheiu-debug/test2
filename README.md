@@ -10,4 +10,5 @@
 ;> nằm liu thiu a bùn ngủ quá e<br>
 ;> tối e thường coi cái gì e, ngoài phim séc<br>
 <img width="607" height="395" alt="image" src="https://github.com/user-attachments/assets/74fd5523-5fce-4959-b253-0a964426e3bb" /><br>
-;> a coi con game này đã e
+;> a coi con game này đã e<br>
+;> a coi con game nhắn tin xíu a ngủ
