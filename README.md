@@ -6,4 +6,6 @@
 ;> tháng dư nhiu đó mua đồ, ko thì ăn ít lại thôi e, ko ăn tiệm là bao dư e<br>
 ;> a ko ăn tiệm cũng đâu đói đâu e<br>
 ;> bồ e nghèo nên z, thời buổi giờ khó kiếm tiền mà tiền ít thì có dư để có vẫn hơn<br>
-;> xíu a iu nhắn nhe vợ iu, mai a ở hem có đi đâu chơi, có chạy bộ thôi e
+;> xíu a iu nhắn nhe vợ iu, mai a ở hem có đi đâu chơi, có chạy bộ thôi e<br>
+;> nằm liu thiu a bùn ngủ quá e<br>
+;> tối e thường coi cái gì e, ngoài phim séc
