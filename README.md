@@ -5,4 +5,5 @@
 ;> ăn sang thì cùng lắm là lố ít trăm thôi e, ko lố nhìu vẫn đúng theo kế hoạch bth<br>
 ;> tháng dư nhiu đó mua đồ, ko thì ăn ít lại thôi e, ko ăn tiệm là bao dư e<br>
 ;> a ko ăn tiệm cũng đâu đói đâu e<br>
-;> bồ e nghèo nên z, thời buổi giờ khó kiếm tiền mà tiền ít thì có dư để có vẫn hơn
+;> bồ e nghèo nên z, thời buổi giờ khó kiếm tiền mà tiền ít thì có dư để có vẫn hơn<br>
+;> xíu a iu nhắn nhe vợ iu, mai a ở hem có đi đâu chơi, có chạy bộ thôi e
