@@ -13,4 +13,6 @@
 ;> a coi con game này đã e<br>
 ;> a coi con game nhắn tin xíu a ngủ<br>
 ;> mấy nay có nungfd hem e, ngủ chung làm tình xíu e nhó<br>
-;> hôm nào ko ngủ quên là skinecare đánh răng đủ e nhó
+;> hôm nào ko ngủ quên là skinecare đánh răng đủ e nhó<br>
+;> kem đánh răng thì a xài sensodyne vs ngọc châu là ổn ko biết loại nào ổn hơn ko e<br>
+;> 
