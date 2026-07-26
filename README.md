@@ -21,4 +21,5 @@
 ;> ủa nhìu người ở sài gòn lương thấp sống cũng kham khổ như a mà e<br>
 ;> ko ăn tiệm thì tự nấu ăn ở nhà đc mà e<br>
 ;> nào đi chơi vs a muốn ôm ấp, nắm tay thì kiếm chỗ nào kín kín e<br>
-;> chiều chiều a iu nhắn nhe e
+;> chiều chiều a iu nhắn nhe e<br>
+;> a bận xíu nên giờ nhắn nhe e, ăn cơm chưa e
