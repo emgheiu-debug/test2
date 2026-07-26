@@ -11,4 +11,6 @@
 ;> a bận xíu nên giờ nhắn nhe e, ăn cơm chưa e<br>
 ;> nửa ngủ chung a nha e<br>
 ;> a đi tắm đã e<br>
-;> mới quen ngủ chung cho bóp dú hem e
+;> mới quen ngủ chung cho bóp dú hem e<br>
+;> đợt a kêu e mua vàng e mua là lỗ ròi e<br>
+;> e có mua ko
