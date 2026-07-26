@@ -16,4 +16,8 @@
 ;> e có mua ko<br>
 ;> xui thôi e<br>
 ;> a mà tiết kiệm 1 là lố tay 2 là dư tiền chứ ko có vừa đủ khó canh lắm<br>
-;> đi làm cũng canh đâu đúng giờ đc e
+;> đi làm cũng canh đâu đúng giờ đc e<br>
+;> mới giờ a bùn ngủ ròi e<br>
+;> mà chắc hơn 12h a ngủ đi, nửa ngủ chung thì tùy theo giờ làm việc thì đồng hồ sinh học nó thay đổi theo thôi e<br>
+;> làm chỗ bắt đi sớm ko cho trễ thì phải như a<br>
+;> đó cũng là 1 trong những lý do a muốn nghỉ
