@@ -13,4 +13,5 @@
 ;> ngta thu nhập thấp ngta để dành để có cho bằng người này người kia ý e<br>
 ;> nhìu ng e thấy ngta đi xe sang xài đt xịn chứ họ cũng bo bo đó e<br>
 ;> e nửa làm vợ a, a quen e thôi đc chưa<br>
-;> a đâu có tật quen lại nyc e, bỏ qua ròi thì thôi chứ đâu cần
+;> a đâu có tật quen lại nyc e, bỏ qua ròi thì thôi chứ đâu cần<br>
+;> mình nghèo mình biết mình nghèo để mình cải thiện chứ làm lương thấp mà biết đủ là nghèo cả đời ý e
