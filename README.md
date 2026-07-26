@@ -20,4 +20,4 @@
 ;> hơn 30 tuổi nghèo thì mới suy nghĩ lại chứ e<br>
 ;> ủa nhìu người ở sài gòn lương thấp sống cũng kham khổ như a mà e<br>
 ;> ko ăn tiệm thì tự nấu ăn ở nhà đc mà e<br>
-;> 
+;> nào đi chơi vs a muốn ôm ấp, nắm tay thì kiếm chỗ nào kín kín e
