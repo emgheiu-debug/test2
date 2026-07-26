@@ -24,4 +24,5 @@
 ;> a ước mình có nhà riêng 1-2 đứa con tối về cùng nhau nấu ăn thỉnh thoảng ăn tiệm tối ngủ chung z thôi e<br>
 ;> nhìu người ngta thích không gian sống mà ko có tiền nhìu thì mua chung cư, còn a thì thích nhà mặt đất, ở chung cư đóng phí hằng tháng cũng nhìu e, lỡ có tuổi ko kiếm đc tiền thì sao e, nói z thôi tới đâu hay tới đó e<br>
 ;> e ghệ răm bùn ngủ chưa e<br>
-;> e là con ghệ răm nhất nhì mà a từng quen =))), thiệc láo làm tó lun e
+;> e là con ghệ răm nhất nhì mà a từng quen =))), thiệc láo làm tó lun e<br>
+;> ngủ ngon nhe e, bye vợ
