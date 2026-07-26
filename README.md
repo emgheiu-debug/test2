@@ -14,4 +14,7 @@
 ;> nhìu ng e thấy ngta đi xe sang xài đt xịn chứ họ cũng bo bo đó e<br>
 ;> e nửa làm vợ a, a quen e thôi đc chưa<br>
 ;> a đâu có tật quen lại nyc e, bỏ qua ròi thì thôi chứ đâu cần<br>
-;> mình nghèo mình biết mình nghèo để mình cải thiện chứ làm lương thấp mà biết đủ là nghèo cả đời ý e
+;> mình nghèo mình biết mình nghèo để mình cải thiện chứ làm lương thấp mà biết đủ là nghèo cả đời ý e<br>
+;> a thì quan điểm a cứ làm có việc khác nghĩ<br>
+;> tại a quen e chênh lệch 5 tuổi mà a mới ra trường có bao năm đâu e<br>
+;> hơn 30 tuổi nghèo thì mới suy nghĩ lại chứ e
