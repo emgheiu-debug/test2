@@ -12,4 +12,5 @@
 ;> chạy xe thì chạy xe cùi để đỡ tốn xăng, lớn tuổi hơn e mà chưa có gia đình<br>
 ;> ngta thu nhập thấp ngta để dành để có cho bằng người này người kia ý e<br>
 ;> nhìu ng e thấy ngta đi xe sang xài đt xịn chứ họ cũng bo bo đó e<br>
-;> 
+;> e nửa làm vợ a, a quen e thôi đc chưa<br>
+;> a đâu có tật quen lại nyc e, bỏ qua ròi thì thôi chứ đâu cần
