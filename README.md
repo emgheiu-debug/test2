@@ -14,4 +14,6 @@
 ;> mới quen ngủ chung cho bóp dú hem e<br>
 ;> đợt a kêu e mua vàng e mua là lỗ ròi e<br>
 ;> e có mua ko<br>
-;> xui thôi e
+;> xui thôi e<br>
+;> a mà tiết kiệm 1 là lố tay 2 là dư tiền chứ ko có vừa đủ khó canh lắm<br>
+;> đi làm cũng canh đâu đúng giờ đc e
