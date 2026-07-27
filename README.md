@@ -5,4 +5,5 @@
 ;> mất thời gian thử việc vs làm quen môi trường mới<br>
 ;> a sống kiếp người mắc mệt quá e<br>
 ;> tắm cái a nhắn nhe e<br>
-;> ko biết ráng làm nổi qua tết ko, tại cty này nó ko hợp vs a lắm
+;> ko biết ráng làm nổi qua tết ko, tại cty này nó ko hợp vs a lắm<br>
+;> đời a cu lụ mà e
