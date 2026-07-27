@@ -6,4 +6,8 @@
 ;> a sống kiếp người mắc mệt quá e<br>
 ;> tắm cái a nhắn nhe e<br>
 ;> ko biết ráng làm nổi qua tết ko, tại cty này nó ko hợp vs a lắm<br>
-;> đời a cu lụ mà e
+;> đời a cu lụ mà e<br>
+;> a cũng bị khó tính hơn ngta làm cái gì ko vừa ý là nghĩ ngay đến chuyện nghĩ à e<br>
+;> ko phải a ham đồng thưởng tết, thưởng thì nó cũng chả bao nhiu đâu e<br>
+;> thu nhập hằng tháng cao vẫn hơn là 1 tháng thưởng tết hen e<br>
+;> a bùn ngủ quá e
