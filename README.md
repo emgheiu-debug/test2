@@ -7,4 +7,7 @@
 ;> a nay ít ăn cơm giảm đc còn hơn 49kg 1 xíu<br>
 ;> chắc cỡ 1 tuần còn hơn 48kg á e<br>
 ;> a ăn thịt nhìu hơn ròi<br>
-;> hẹn gặp e, hơn 2 tháng nữa nhe e
+;> hẹn gặp e, hơn 2 tháng nữa nhe e<br>
+;> nói chung là e đợi trước tết nhe e<br>
+;> a mua đt mới, mua cũ thôi e<br>
+;> đủ tiền thì a mua đt sớm z thôi e
