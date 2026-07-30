@@ -9,4 +9,6 @@
 ;> ai biết tới đâu hay tới đó thôi e<br>
 ;> a giờ cũng nghèo chetme <br>
 ;> làm có chén cơm ăn vs chút đỉnh tiền để dành thôi e, mà làm chỗ hãm cũng mệt lắm, nó ko có thoải mái giờ giấc<br>
-;> 
+;> làm phải đúng giờ đúng giấc nó mới chịu làm chậm cũng đc<br>
+;> kiểu ko lệch 1 phút ý e, có quy định phạt tiền nữa nên a ko muốn làm lâu dài ở đây<br>
+;> vs lại vấn đề vệ sinh cty cũng khá là tế nhị
