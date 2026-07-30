@@ -15,4 +15,7 @@
 ;> a thấy cty này ko đc cái gì hết, phúc lợi thì chẳng có, ko có làm remote<br>
 ;> mà a thấy lạ là vẫn có người chịu đc làm vài năm hay thật<br>
 ;> tiền bạc thì cũng bèo nhèo, phúc lợi thì chẳng có, môi trường lại ko thoải mái toàn camera chạy bằng cơm<br>
-;> cỡ nào năm sau a phải nghỉ
+;> cỡ nào năm sau a phải nghỉ<br>
+;> cty này lương thấp mà gò bó ý e, giống làm công nhân trong khu công nghiệp ý e<br>
+;> ngày chấm công 4 lần mới chịu ý e =)))<br>
+;> láo làm chó 
