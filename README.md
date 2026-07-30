@@ -6,4 +6,5 @@
 ;> tại con nhỏ bạn a cũng làm cho ông cỡ cỡ tuổi e mà dạng như ngta mới khởi nghiệp làm remote ko à, nó làm cũng hơn 1 năm ròi e<br>
 ;> nó mắc làm giờ nào làm à,cũng ko có nhìu việc để làm<br>
 ;> mà lương cũng thấp nữa, a đoán z, tại cty mới khởi nghiệp mà e chưa có phúc lợi vs lương cao đâu e<br>
-;> e làm chủ đỡ có cái khổ riêng mà làm mướn như a cũng có cái khổ riêng, a thấy làm mướn mệt lắm e
+;> e làm chủ đỡ có cái khổ riêng mà làm mướn như a cũng có cái khổ riêng, a thấy làm mướn mệt lắm e<br>
+;> ngủ vợ iu
