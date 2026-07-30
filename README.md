@@ -22,4 +22,7 @@
 ;> 1 chuyện lương thấp là ko muốn làm lâu dài ròi e, đừng nói chi à bonus thêm chuyện khác<br>
 ;> mịa e nghĩ xem tháng làm nhiu đó ròi sao có gia đình nuôi ai đc<br>
 ;> sống 1 cuộc đời nhịn ăn nhịn mặc co ro cắc rắc kì kèo từng đồng từng bạc kiết lị kẹo kéo, suy nghĩ đắn đo về tiền bạc<br>
-;> nửa về 1 nhà thì a làm cho e cũng như làm cho a ý mà e
+;> nửa về 1 nhà thì a làm cho e cũng như làm cho a ý mà e<br>
+;> làm cho vợ cũng như làm cho mình mà e<br>
+;> mà giờ a nghèo quá <br>
+;> nào khá vs ở chung bàn tiếp ít ra phải nghĩ chỗ hiện tại đã e
