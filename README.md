@@ -5,4 +5,8 @@
 ;> nè có nhìu hướng sẽ xảy ra<br>
 ;> hướng 1: nếu a làm ổn định thì có tiền hoặc đủ tiền a mua điện thoại sẵn mình gặp nhau 1 cái<br>
 ;> hướng 2: nếu a thất nghiệp thì nghỉ gặp<br>
-;> hướng 3: nếu a đổi việc ngon lành sớm thì mình gặp nhau thường
+;> hướng 3: nếu a đổi việc ngon lành sớm thì mình gặp nhau thường<br>
+;> ai biết tới đâu hay tới đó thôi e<br>
+;> a giờ cũng nghèo chetme <br>
+;> làm có chén cơm ăn vs chút đỉnh tiền để dành thôi e, mà làm chỗ hãm cũng mệt lắm, nó ko có thoải mái giờ giấc<br>
+;> 
