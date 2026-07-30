@@ -27,4 +27,5 @@
 ;> mà giờ a nghèo quá <br>
 ;> nào khá vs ở chung bàn tiếp ít ra phải nghĩ chỗ hiện tại đã e<br>
 ;> thường thì a thấy làm cho mấy người trẻ như e á ngta chú trọng hiệu suất hơn là làm đúng giờ mà làm chậm hỏi gì cũng chưa xong<br>
-;> tại con nhỏ bạn a cũng làm cho ông cỡ cỡ tuổi e mà dạng như ngta mới khởi nghiệp làm remote ko à, nó làm cũng hơn 1 năm ròi e
+;> tại con nhỏ bạn a cũng làm cho ông cỡ cỡ tuổi e mà dạng như ngta mới khởi nghiệp làm remote ko à, nó làm cũng hơn 1 năm ròi e<br>
+;> nó mắc làm giờ nào làm à,cũng ko có nhìu việc để làm
