@@ -19,4 +19,6 @@
 ;> cty này lương thấp mà gò bó ý e, giống làm công nhân trong khu công nghiệp ý e<br>
 ;> ngày chấm công 4 lần mới chịu ý e =)))<br>
 ;> láo làm chó <br>
-;> 1 chuyện lương thấp là ko muốn làm lâu dài ròi e, đừng nói chi à bonus thêm chuyện khác
+;> 1 chuyện lương thấp là ko muốn làm lâu dài ròi e, đừng nói chi à bonus thêm chuyện khác<br>
+;> mịa e nghĩ xem tháng làm nhiu đó ròi sao có gia đình nuôi ai đc<br>
+;> sống 1 cuộc đời nhịn ăn nhịn mặc co ro cắc rắc kì kèo từng đồng từng bạc kiết lị kẹo kéo, suy nghĩ đắn đo về tiền bạc
