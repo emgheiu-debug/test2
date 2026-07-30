@@ -12,4 +12,7 @@
 ;> làm phải đúng giờ đúng giấc nó mới chịu làm chậm cũng đc<br>
 ;> kiểu ko lệch 1 phút ý e, có quy định phạt tiền nữa nên a ko muốn làm lâu dài ở đây<br>
 ;> vs lại vấn đề vệ sinh cty cũng khá là tế nhị<br>
-;> a thấy cty này ko đc cái gì hết, phúc lợi thì chẳng có, ko có làm remote
+;> a thấy cty này ko đc cái gì hết, phúc lợi thì chẳng có, ko có làm remote<br>
+;> mà a thấy lạ là vẫn có người chịu đc làm vài năm hay thật<br>
+;> tiền bạc thì cũng bèo nhèo, phúc lợi thì chẳng có, môi trường lại ko thoải mái toàn camera chạy bằng cơm<br>
+;> cỡ nào năm sau a phải nghỉ
