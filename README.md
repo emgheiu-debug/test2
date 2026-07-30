@@ -18,4 +18,5 @@
 ;> cỡ nào năm sau a phải nghỉ<br>
 ;> cty này lương thấp mà gò bó ý e, giống làm công nhân trong khu công nghiệp ý e<br>
 ;> ngày chấm công 4 lần mới chịu ý e =)))<br>
-;> láo làm chó 
+;> láo làm chó <br>
+;> 1 chuyện lương thấp là ko muốn làm lâu dài ròi e, đừng nói chi à bonus thêm chuyện khác
