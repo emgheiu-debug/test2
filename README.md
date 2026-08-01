@@ -11,4 +11,5 @@
 ;> e nungf tốt nhất là ko ngủ chung a, mới hẹn hò gặp nhau mặt mà e<br>
 ;> tự dưng mấy năm ko gặp cái ngủ chung 1 lần làm tình lun là ko đc<br>
 ;> a tắm đã e, xíu nhắn nhe vợ<br>
-;> a iu tắm rửa skinecare ròi e
+;> a iu tắm rửa skinecare ròi e<br>
+;> ngủ chung a mà ko nungf chịu hem
