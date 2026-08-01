@@ -2,4 +2,5 @@
 ;> cơm nước gì chưa vợ iu<br>
 ;> ước mún năm nay của a là nghỉ chỗ này làm chỗ mới =)))<br>
 ;> nửa làm vợ ngủ chung a nha e<br>
-;> mai chắc a tập gym đi ăn ốc
+;> mai chắc a tập gym đi ăn ốc<BR>
+;> a ốm xíu ròi mập lại ròi e
