@@ -15,4 +15,5 @@
 ;> ngủ chung a mà ko nungf chịu hem<br>
 ;> ý a là mới đi chơi ngủ chung ý e<br>
 ;> còn ở chung thì xả nungfd, molon, bopdu, lamtinh,...<br>
-;> tối ngủ ko bận quần chip nhe e, để z dễ mò
+;> tối ngủ ko bận quần chip nhe e, để z dễ mò<br>
+;> tại a sợ bệnh nên ko bulon thôi e
