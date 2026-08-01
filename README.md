@@ -17,4 +17,6 @@
 ;> còn ở chung thì xả nungfd, molon, bopdu, lamtinh,...<br>
 ;> tối ngủ ko bận quần chip nhe e, để z dễ mò<br>
 ;> tại a sợ bệnh nên ko bulon thôi e<br>
-;> e ngủ vs a mà cởi truồng là a chịu ko nổi cũng phải lamtinh vs e thôi
+;> e ngủ vs a mà cởi truồng là a chịu ko nổi cũng phải lamtinh vs e thôi<br>
+;> ngủ ngon nhe vợ iu<br>
+;> chắc đợt mua đt a mua thêm con gà chỗ ở tân bình có gà nướng ngon lắm e
