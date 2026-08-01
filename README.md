@@ -6,4 +6,5 @@
 ;> a ốm xíu ròi mập lại ròi e<br>
 ;> a chắc hôm nào đi cạo vôi tại ngủ quên hơi nhìu e<br>
 ;> để a suy nghĩ lại mai có ăn ốc ko, tại hơi nghèo<br>
-;> mấy nay có nungf hem e
+;> mấy nay có nungf hem e<br>
+;> a hay nungf mà gặp ngủ chung a ko làm gì sao e chịu nổi =)))
