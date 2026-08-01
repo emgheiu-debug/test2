@@ -19,4 +19,5 @@
 ;> tại a sợ bệnh nên ko bulon thôi e<br>
 ;> e ngủ vs a mà cởi truồng là a chịu ko nổi cũng phải lamtinh vs e thôi<br>
 ;> ngủ ngon nhe vợ iu<br>
-;> chắc đợt mua đt a mua thêm con gà chỗ ở tân bình có gà nướng ngon lắm e
+;> chắc đợt mua đt a mua thêm con gà chỗ ở tân bình có gà nướng ngon lắm e<br>
+;> để đủ tiền đã a mua, mua góp ghê lắm e a sợ nợ xấu, tại ko đo lường đc sẽ mất việc khi nào
