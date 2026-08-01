@@ -12,4 +12,6 @@
 ;> tự dưng mấy năm ko gặp cái ngủ chung 1 lần làm tình lun là ko đc<br>
 ;> a tắm đã e, xíu nhắn nhe vợ<br>
 ;> a iu tắm rửa skinecare ròi e<br>
-;> ngủ chung a mà ko nungf chịu hem
+;> ngủ chung a mà ko nungf chịu hem<br>
+;> ý a là mới đi chơi ngủ chung ý e<br>
+;> còn ở chung thì xả nungfd, molon, bopdu, lamtinh,...
