@@ -9,4 +9,5 @@
 ;> mấy nay có nungf hem e<br>
 ;> a hay nungf mà gặp ngủ chung a ko làm gì sao e chịu nổi =)))<br>
 ;> e nungf tốt nhất là ko ngủ chung a, mới hẹn hò gặp nhau mặt mà e<br>
-;> tự dưng mấy năm ko gặp cái ngủ chung 1 lần làm tình lun là ko đc
+;> tự dưng mấy năm ko gặp cái ngủ chung 1 lần làm tình lun là ko đc<br>
+;> a tắm đã e, xíu nhắn nhe vợ
