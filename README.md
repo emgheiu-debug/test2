@@ -8,4 +8,4 @@
 ;> cỡ hơn 2 tháng nữa a mua đt chữa lành<br>
 ;> quan trọng vẫn là thu nhập hằng tháng e<br>
 ;> a skinecare tắm rửa xong ròi e<br>
-;> 
+;> nghèo quá a ít ăn nên chắc ốm lại ròi e
