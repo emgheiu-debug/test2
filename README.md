@@ -12,4 +12,7 @@
 ;> a chưa đổi việc đc là còn nghèo nha e, cứ mặc định z đi<br>
 ;> chỗ nào ko tồi tệ e, mà tồi tệ tiền nhìu tiền ít<br>
 ;> còn trẻ làm lương thấp thì dễ coi chứ lớn nhìu thứ phải chi có gia đình lương thấp ko đc<br>
-;> a thương e nên mới chọn nghỉ làm đó
+;> a thương e nên mới chọn nghỉ làm đó<br>
+;> ngày a ngủ tầm 6 tiếng có khi 5 tiếng mấy thôi e<br>
+;> thành ra 1 ngày bùn ngủ quài hay ngủ quên là z<br>
+;>
