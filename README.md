@@ -7,4 +7,5 @@
 ;> cơm nước gì chưa e<br>
 ;> cỡ hơn 2 tháng nữa a mua đt chữa lành<br>
 ;> quan trọng vẫn là thu nhập hằng tháng e<br>
+;> a skinecare tắm rửa xong ròi e<br>
 ;> 
