@@ -1,4 +1,7 @@
 ;> a nhô e <br>
 ;> chiều a lubu xíu e<br>
 ;> nay a chạy bộ đc 100calo<br>
-;> 1 tuần chạy/1 lần chạy lại hơi đuối e
+;> 1 tuần chạy/1 lần chạy lại hơi đuối e<br>
+;> lâu ko chạy cơ nó ko quen ý e<br>
+;> ví dụ như e tập thể dục mà e bỏ lâu quá e tập lại cái e hơi đuối<br>
+;> cơm nước gì chưa e
