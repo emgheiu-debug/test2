@@ -15,4 +15,5 @@
 ;> a thương e nên mới chọn nghỉ làm đó<br>
 ;> ngày a ngủ tầm 6 tiếng có khi 5 tiếng mấy thôi e<br>
 ;> thành ra 1 ngày bùn ngủ quài hay ngủ quên là z<br>
-;>
+;> nghèo nó bùn lắm e<br>
+;> mua gì cũng phải đợi chờ, đắn đo, suy nghỉ cũng mệt óc chứ đùa đâu e
