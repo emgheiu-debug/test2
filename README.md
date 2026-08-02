@@ -4,4 +4,6 @@
 ;> 1 tuần chạy/1 lần chạy lại hơi đuối e<br>
 ;> lâu ko chạy cơ nó ko quen ý e<br>
 ;> ví dụ như e tập thể dục mà e bỏ lâu quá e tập lại cái e hơi đuối<br>
-;> cơm nước gì chưa e
+;> cơm nước gì chưa e<br>
+;> cỡ hơn 2 tháng nữa a mua đt chữa lành<br>
+;> quan trọng vẫn là thu nhập hằng tháng e
