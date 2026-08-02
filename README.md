@@ -9,4 +9,6 @@
 ;> quan trọng vẫn là thu nhập hằng tháng e<br>
 ;> a skinecare tắm rửa xong ròi e<br>
 ;> nghèo quá a ít ăn nên chắc ốm lại ròi e<br>
-;> a chưa đổi việc đc là còn nghèo nha e, cứ mặc định z đi
+;> a chưa đổi việc đc là còn nghèo nha e, cứ mặc định z đi<br>
+;> chỗ nào ko tồi tệ e, mà tồi tệ tiền nhìu tiền ít<br>
+;> còn trẻ làm lương thấp thì dễ coi chứ lớn nhìu thứ phải chi có gia đình lương thấp ko đc
