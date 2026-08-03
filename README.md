@@ -5,4 +5,5 @@
 ;> tới đâu hay tới đó e<br>
 ;> nghèo quá cũng bùn e, mà bùn quài thì đâu giải quyết đc vấn đề gì e<br>
 ;> cho a ngủ chung chịu hem, nào đi chơi đi e<br>
-;> ngủ chung ôm ấp thôi e
+;> ngủ chung ôm ấp thôi e<br>
+;> ngủ chung cho quen hơi nữa ngủ chung đỡ bỡ ngỡ e
