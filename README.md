@@ -5,4 +5,6 @@
 ;> nảy a iu có ngủ cỡ nửa tiếng ròi e, giờ đi tắm<br>
 ;> đợi có lương mua chai sửa rửa mặt, kem đánh răng,...nửa e<br>
 ;> ngta làm 1 tháng ăn vài tháng chứ mình nghèo tháng nào đủ tháng đó à e, nhìu khi hụt nữa<br>
-;> hẹn e hơn 2 tháng nhe e
+;> hẹn e hơn 2 tháng nhe e<br>
+;> tầm đó đó e, là theo kế hoạch<br>
+;> ước gì 2 đứa mình ngủ chung, tối làm về có nhau
