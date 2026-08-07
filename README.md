@@ -15,4 +15,6 @@
 ;> nghe hem e<br>
 ;> nghèo quá bùn e, ko nghĩ tới thì thôi chứ nghĩ tới thì bùn<br>
 ;> làm vợ a đi nửa a cho làm tình, ôm áp, a massage dú cho e, nấu ăn, làm việc nhà cho,...e nghe gì có khúc làm tình là khoái =)))<br>
-;> a nấu ăn vs làm việc nhà tùy hứng lắm e, siêng thì a làm à =))
+;> a nấu ăn vs làm việc nhà tùy hứng lắm e, siêng thì a làm à =))<br>
+;> e có sở thích ngủ chung xong chọt tay vô quần áo a hem =)))<br>
+;> a làm chắc dễ coi hơn e, e đã răm ròi
