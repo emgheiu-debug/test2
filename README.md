@@ -26,4 +26,5 @@
 ;> e nungf z thôi chứ e làm tình, thudam cái e hết nungdf à<br>
 ;> a đi tắm đã a bùn ngủ quá<br>
 ;> nào nungfd mình làm tình nhìu nhìu nhe e<br>
-;> iu mấy năm mà chưa thấy cọng lông mu nhau như nào
+;> iu mấy năm mà chưa thấy cọng lông mu nhau như nào<br>
+;> khuya ròi ngủ nhe vợ iu, a bùn ngủ lắm ròi
