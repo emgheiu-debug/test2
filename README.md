@@ -8,4 +8,6 @@
 ;> tại nó dễ ý e, mà lâu ko làm thì nêm nó hên xui lắm e<br>
 ;> vợ a coi phong thủy tử vi 2 mình ráp lại làm ăn có phất hem e<br>
 ;> có khá hem e<br>
-;> thìn heo ráp lại sao e
+;> thìn heo ráp lại sao e<br>
+;> a mà làm lương cao là ngày nào a cũng thức tới 1h 2h giờ đêm chứ sao e, có tiền ngủ nhiều lãng phí tuổi trẻ chứ sao e<br>
+;> còn nghèo ngủ cho hết ngày để đến ngày lãnh lương, ngày nghỉ =)))
