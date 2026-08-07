@@ -7,4 +7,5 @@
 ;> a thì biết làm món xào vs chiên<br>
 ;> tại nó dễ ý e, mà lâu ko làm thì nêm nó hên xui lắm e<br>
 ;> vợ a coi phong thủy tử vi 2 mình ráp lại làm ăn có phất hem e<br>
-;> có khá hem e
+;> có khá hem e<br>
+;> thìn heo ráp lại sao e
