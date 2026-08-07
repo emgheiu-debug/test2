@@ -25,4 +25,5 @@
 ;> ráng iu tới khúc cởi truồng nha e<br>
 ;> e nungf z thôi chứ e làm tình, thudam cái e hết nungdf à<br>
 ;> a đi tắm đã a bùn ngủ quá<br>
-;> nào nungfd mình làm tình nhìu nhìu nhe e
+;> nào nungfd mình làm tình nhìu nhìu nhe e<br>
+;> iu mấy năm mà chưa thấy cọng lông mu nhau như nào
