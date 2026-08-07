@@ -17,4 +17,6 @@
 ;> làm vợ a đi nửa a cho làm tình, ôm áp, a massage dú cho e, nấu ăn, làm việc nhà cho,...e nghe gì có khúc làm tình là khoái =)))<br>
 ;> a nấu ăn vs làm việc nhà tùy hứng lắm e, siêng thì a làm à =))<br>
 ;> e có sở thích ngủ chung xong chọt tay vô quần áo a hem =)))<br>
-;> a làm chắc dễ coi hơn e, e đã răm ròi
+;> a làm chắc dễ coi hơn e, e đã răm ròi<br>
+;> quen lâu thì thấy nhau trần truồng cũng bth thôi e<br>
+;> nửa a hôn môi ròi a liếm láp từ cổ tới mulon e =)), nghĩ thôi đã thấy nungf ròi e
