@@ -19,4 +19,6 @@
 ;> e có sở thích ngủ chung xong chọt tay vô quần áo a hem =)))<br>
 ;> a làm chắc dễ coi hơn e, e đã răm ròi<br>
 ;> quen lâu thì thấy nhau trần truồng cũng bth thôi e<br>
-;> nửa a hôn môi ròi a liếm láp từ cổ tới mulon e =)), nghĩ thôi đã thấy nungf ròi e
+;> nửa a hôn môi ròi a liếm láp từ cổ tới mulon e =)), nghĩ thôi đã thấy nungf ròi e<br>
+;> liếm chỗ cần liếm thôi e, bulon mà ko bệnh gì là a cũng bú lun ròi<br>
+;> bulon dễ bệnh tình dục lắm e
