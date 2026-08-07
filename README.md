@@ -22,4 +22,6 @@
 ;> nửa a hôn môi ròi a liếm láp từ cổ tới mulon e =)), nghĩ thôi đã thấy nungf ròi e<br>
 ;> liếm chỗ cần liếm thôi e, bulon mà ko bệnh gì là a cũng bú lun ròi<br>
 ;> bulon dễ bệnh tình dục lắm e<br>
-;> ráng iu tới khúc cởi truồng nha e
+;> ráng iu tới khúc cởi truồng nha e<br>
+;> e nungf z thôi chứ e làm tình, thudam cái e hết nungdf à<br>
+;> a đi tắm đã a bùn ngủ quá
