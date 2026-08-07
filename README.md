@@ -21,4 +21,5 @@
 ;> quen lâu thì thấy nhau trần truồng cũng bth thôi e<br>
 ;> nửa a hôn môi ròi a liếm láp từ cổ tới mulon e =)), nghĩ thôi đã thấy nungf ròi e<br>
 ;> liếm chỗ cần liếm thôi e, bulon mà ko bệnh gì là a cũng bú lun ròi<br>
-;> bulon dễ bệnh tình dục lắm e
+;> bulon dễ bệnh tình dục lắm e<br>
+;> ráng iu tới khúc cởi truồng nha e
