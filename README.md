@@ -1,3 +1,6 @@
 ;> a nhô e <br>
 ;> vợ răm của a hôm nay làm gì đó<br>
-;> e thích hôn môi hả 
+;> e thích hôn môi hả <br>
+;> a éo đánh răng để vợ khỏi hôn =)))<br>
+;> nói chơi thôi e, mấy nay a gọn bớt ròi tại ít ăn cơm đi, ăn rau thịt nhìu<br>
+;> mà cảm giác nó ít đói hơn so vs ăn cơm e, ăn cơm nhìu đói quài lun
