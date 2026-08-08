@@ -7,4 +7,5 @@
 ;> a tắm rửa đã để ngủ quên, giờ a bùn ngủ ròi<br>
 ;> a tắm rửa skinecare ròi e<br>
 ;> mai a chạy bộ, a cũng gầy gầy lại miếng ròi chưa cân lại nữa e<br>
-;> bùn ngủ quá vợ ơi
+;> bùn ngủ quá vợ ơi<br>
+;> ngủ ngon vợ mai nhắn tiếp nhe e
