@@ -4,4 +4,5 @@
 ;> a éo đánh răng để vợ khỏi hôn =)))<br>
 ;> nói chơi thôi e, mấy nay a gọn bớt ròi tại ít ăn cơm đi, ăn rau thịt nhìu<br>
 ;> mà cảm giác nó ít đói hơn so vs ăn cơm e, ăn cơm nhìu đói quài lun<br>
-;> a tắm rửa đã để ngủ quên, giờ a bùn ngủ ròi
+;> a tắm rửa đã để ngủ quên, giờ a bùn ngủ ròi<br>
+;> a tắm rửa skinecare ròi e
