@@ -5,4 +5,5 @@
 ;> chạy bộ về thấy hơi nhức nhức giò e<br>
 ;> vợ a nay ngày nghĩ có đi đâu hem e<br>
 ;> ko biết khi nào a hết nghèo<br>
-;> a thì làm có ăn sống lây lất qua ngày thôi e
+;> a thì làm có ăn sống lây lất qua ngày thôi e<br>
+;> làm vợ a thì e đc làm tình, đc a chăm chịu hem e
