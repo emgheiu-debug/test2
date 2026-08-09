@@ -13,4 +13,5 @@
 ;> nghèo quá bùn e<br>
 ;> tại e biết sao chủ nhật nhìu thời gian rảnh hơn thành ra nghĩ nhìu bùn thôi e<br>
 ;> ngày thường cũng bùn mà ít nghĩ tới hơn<br>
-;> nay a ngủ nhìu ròi giờ ko bùn ngủ nữa e
+;> nay a ngủ nhìu ròi giờ ko bùn ngủ nữa e<br>
+;> a sắp ngủ ròi e, vợ a bùn ngủ chưa e
