@@ -14,4 +14,9 @@
 ;> tại e biết sao chủ nhật nhìu thời gian rảnh hơn thành ra nghĩ nhìu bùn thôi e<br>
 ;> ngày thường cũng bùn mà ít nghĩ tới hơn<br>
 ;> nay a ngủ nhìu ròi giờ ko bùn ngủ nữa e<br>
-;> a sắp ngủ ròi e, vợ a bùn ngủ chưa e
+;> a sắp ngủ ròi e, vợ a bùn ngủ chưa e<br>
+;> bth giờ này a ngủ ròi, ít có thời gian nghĩ nhìu<br>
+;> sắp tháng 7 âm lịch ròi e<br>
+;> loay hoay lại hết năm<br>
+;> nào có dịp gặp nhau đi chơi riêng thì mình ngủ chung e<br>
+;>
