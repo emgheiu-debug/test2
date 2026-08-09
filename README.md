@@ -7,4 +7,4 @@
 ;> ko biết khi nào a hết nghèo<br>
 ;> a thì làm có ăn sống lây lất qua ngày thôi e<br>
 ;> làm vợ a thì e đc làm tình, đc a chăm chịu hem e<br>
-;> 
+;> sao a nghĩ tới a nghèo a bùn quá ta
