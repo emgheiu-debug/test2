@@ -10,4 +10,5 @@
 ;> sao a nghĩ tới a nghèo a bùn quá ta<br>
 ;> chắc tầm tháng 10 a mua đt<br>
 ;> a ko trả góp tại vì đang có nhu cầu đổi việc e<br>
-;> nghèo quá bùn e
+;> nghèo quá bùn e<br>
+;> tại e biết sao chủ nhật nhìu thời gian rảnh hơn thành ra nghĩ nhìu bùn thôi e
