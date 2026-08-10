@@ -1,3 +1,4 @@
 ;> a nhô e <br>
 ;> tắm rửa, rửa bím gì chưa e<br>
-;> qua chạy nay thấy nhức giò quá e
+;> qua chạy nay thấy nhức giò quá e<br>
+;> nửa kiếm dịp ngủ chung đi e
