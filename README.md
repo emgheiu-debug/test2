@@ -12,4 +12,5 @@
 ;> còn vui tinh thần thoải mái thì nấu thôi e<br>
 ;> a iu bùn ngủ quá e<br>
 ;> ăn tiệm nhìu khi cũng dơ lắm e<br>
-;> a tính bất chợt nào siêng vs vui thì a mới nấu ăn à e
+;> a tính bất chợt nào siêng vs vui thì a mới nấu ăn à e<br>
+;> ngủ đi vợ, mai nhắn
