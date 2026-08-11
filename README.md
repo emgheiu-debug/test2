@@ -9,4 +9,5 @@
 ;> mấy nay a hơi bùn nhẹ nên ít nhắn e thôi<br>
 ;> nhìu khi a cũng lười nấu ăn lắm<br>
 ;> mệt hay bận rộn, bùn thì lười lắm e<br>
-;> còn vui tinh thần thoải mái thì nấu thôi e
+;> còn vui tinh thần thoải mái thì nấu thôi e<br>
+;> a iu bùn ngủ quá e
