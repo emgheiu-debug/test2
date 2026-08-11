@@ -4,4 +4,7 @@
 ;> giờ nghèo quá bùn e<br>
 ;> e nửa ngủ chung a chịu hem, nay a tắm rửa sớm đi<br>
 ;> có làm gì đâu mà hem tắm rửa sớm e<br>
-;> a bùn ngủ ròi e, mấy nay hem biết tăng giảm cân ra sao nữa r, tại hong có cân
+;> a bùn ngủ ròi e, mấy nay hem biết tăng giảm cân ra sao nữa r, tại hong có cân<br>
+;> vợ a học nấu nướng gì chưa e<br>
+;> mấy nay a hơi bùn nhẹ nên ít nhắn e thôi<br>
+;> nhìu khi a cũng lười nấu ăn lắm
