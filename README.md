@@ -7,4 +7,5 @@
 ;> đời xoay quanh chữ tiền thôi e<br>
 ;> a biết a iu giả dụ z đó e<br>
 ;> tại a mượn mẹ a nhưng ko biết đủ tiền ko<br>
-;> tới đâu tới e, thì a ko mua đt a ghé nhỏ bạn chơi
+;> tới đâu tới e, thì a ko mua đt a ghé nhỏ bạn chơi<br>
+;> vợ a nửa ngủ chung a nhen, a biết lau nhà, rửa chén, phơi đồ, nấu ăn cơ bản,..., giặt thì có mấy giặt ròi e
