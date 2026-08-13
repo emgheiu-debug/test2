@@ -16,4 +16,5 @@
 ;> e làm món gì cho a ăn, a ưa ăn bò né , canh, gỏi, đồ chiên, nướng,...<br>
 ;> a ít ăn tinh bột giờ a ốm lại gòi e<br>
 ;> nữa cho a bóp dú làm tình đồ nhen e =)))<br>
-;> khỏi xin e cũng cho, éo làm gì e mới bùn thôi
+;> khỏi xin e cũng cho, éo làm gì e mới bùn thôi<br>
+;> ngủ chung mà ko làm gì e bức rứt trong người
