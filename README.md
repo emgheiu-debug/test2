@@ -10,4 +10,5 @@
 ;> tới đâu tới e, thì a ko mua đt a ghé nhỏ bạn chơi<br>
 ;> vợ a nửa ngủ chung a nhen, a biết lau nhà, rửa chén, phơi đồ, nấu ăn cơ bản,..., giặt thì có mấy giặt ròi e<br>
 ;> nào mình đi hẹn hò vs nhau e, ít nhất là khi a nghĩ công việc này<br>
-;> a nghĩ z
+;> a nghĩ z<br>
+;> a vệ sinh cá nhân đã
