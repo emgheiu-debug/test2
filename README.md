@@ -11,4 +11,5 @@
 ;> vợ a nửa ngủ chung a nhen, a biết lau nhà, rửa chén, phơi đồ, nấu ăn cơ bản,..., giặt thì có mấy giặt ròi e<br>
 ;> nào mình đi hẹn hò vs nhau e, ít nhất là khi a nghĩ công việc này<br>
 ;> a nghĩ z<br>
-;> a vệ sinh cá nhân đã
+;> a vệ sinh cá nhân đã<br>
+;> tối mà e ở chung thấy a chưa tắm rửa cơm nước đánh răng mà ngủ là kêu a dậy nhe hem e
