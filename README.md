@@ -14,4 +14,6 @@
 ;> a vệ sinh cá nhân đã<br>
 ;> tối mà e ở chung thấy a chưa tắm rửa cơm nước đánh răng mà ngủ là kêu a dậy nhe hem e<br>
 ;> e làm món gì cho a ăn, a ưa ăn bò né , canh, gỏi, đồ chiên, nướng,...<br>
-;> a ít ăn tinh bột giờ a ốm lại gòi e
+;> a ít ăn tinh bột giờ a ốm lại gòi e<br>
+;> nữa cho a bóp dú làm tình đồ nhen e =)))<br>
+;> khỏi xin e cũng cho, éo làm gì e mới bùn thôi
