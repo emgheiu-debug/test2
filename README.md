@@ -17,4 +17,7 @@
 ;> a ít ăn tinh bột giờ a ốm lại gòi e<br>
 ;> nữa cho a bóp dú làm tình đồ nhen e =)))<br>
 ;> khỏi xin e cũng cho, éo làm gì e mới bùn thôi<br>
-;> ngủ chung mà ko làm gì e bức rứt trong người
+;> ngủ chung mà ko làm gì e bức rứt trong người<br>
+;> a hơi bị ngon đó, mỗi tội hiện tại hơi nghèo thôi e<br>
+;> ngủ chung là cho ôm ấp rờ mó thoải mái e<br>
+;> thích hem, mà khuya ròi ngủ đi e, ngủ ngon vợ iu
