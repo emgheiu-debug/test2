@@ -1,8 +1,3 @@
 ;> a nhô e <br>
-;> cơm nước gì chưa e<br>
-;> sao a nghĩ bây giờ nghèo a bùn quá e<br>
-;> có tiền a mới vui đc<br>
-;> e có a iu sống vì tiền<br>
-;> ở chung vs e chắc a tưởng tượng mình đi làm xong, tối về ăn cơm chung ngủ chung thỉnh thoảng làm tình, z cái hết ngày<br>
-;> ko phải a ít nhắn a giận gì e đâu, a đang stress chuyện ở ngoài thôi<br>
-;> đang stress đừng làm phiền a
+;> tại a lu xu bu quá a ít nhắn thôi e<br>
+;> tắm rửa, rửa bím gì chưa e
