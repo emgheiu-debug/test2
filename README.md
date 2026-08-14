@@ -4,4 +4,5 @@
 ;> a iu e bùn ngủ tối ngày<br>
 ;> a mong tới khúc có tiền thoải mái tiền bạc<br>
 ;> ước cuộc đời thoải mái tiền bạc để làm nhìu thứ ko cần phải nghĩ đến tiền<br>
-;> a tắm rửa skinecare xíu a nhắn
+;> a tắm rửa skinecare xíu a nhắn<br>
+;> e có nuôi bé mèo xám phải hem, nay nhiu tuổi rồi e
