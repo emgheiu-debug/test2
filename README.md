@@ -5,4 +5,5 @@
 ;> a mong tới khúc có tiền thoải mái tiền bạc<br>
 ;> ước cuộc đời thoải mái tiền bạc để làm nhìu thứ ko cần phải nghĩ đến tiền<br>
 ;> a tắm rửa skinecare xíu a nhắn<br>
-;> e có nuôi bé mèo xám phải hem, nay nhiu tuổi rồi e
+;> e có nuôi bé mèo xám phải hem, nay nhiu tuổi rồi e<br>
+;> a thì a thích nuôi mèo hơn chó mà lười hốt cớt, e nuôi thì a nựng ké
