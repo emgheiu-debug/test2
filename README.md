@@ -5,4 +5,5 @@
 ;> nay a đốt đc 100calo, ráng 1 tuần chạy 2 lần mà lười quá e<br>
 ;> cơm nước gì chưa e<br>
 ;> a chưa ăn cơm nữa<br>
-;> giờ a nghèo tới đâu hay tới đó z e
+;> giờ a nghèo tới đâu hay tới đó z e<br>
+;> thu nhập thấp thì phải đổi việc thôi e, a làm quan trọng a đc gì thôi, đôi bên có lợi tiền nó vẫn hơn e à
