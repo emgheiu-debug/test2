@@ -9,4 +9,5 @@
 ;> thu nhập thấp thì phải đổi việc thôi e, a làm quan trọng a đc gì thôi, đôi bên có lợi tiền nó vẫn hơn e à<br>
 ;> nghèo quá a ko gặp e đâu<br>
 ;> thỉnh thoảng than z để e biết bồ e còn nghèo<br>
-;> chứ để e tưởng bồ giàu cũng kì, có sao nói z thôi e
+;> chứ để e tưởng bồ giàu cũng kì, có sao nói z thôi e<br>
+;> a tắm rửa xíu nha, tí a nhắn
