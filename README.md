@@ -1,13 +1,2 @@
 ;> a nhô e <br>
-;> tắm rửa bím gì chưa e<br>
-;> mau hết ngày hết tháng hen e<br>
-;> a iu e bùn ngủ tối ngày<br>
-;> a mong tới khúc có tiền thoải mái tiền bạc<br>
-;> ước cuộc đời thoải mái tiền bạc để làm nhìu thứ ko cần phải nghĩ đến tiền<br>
-;> a tắm rửa skinecare xíu a nhắn<br>
-;> e có nuôi bé mèo xám phải hem, nay nhiu tuổi rồi e<br>
-;> a thì a thích nuôi mèo hơn chó mà lười hốt cớt, e nuôi thì a nựng ké<br>
-;> tháng e nuôi bé mèo đó nhiu tiền e<br>
-;> hốt con chó mèo về chắc làm ko dám nghỉ e, nghỉ lấy gì nuôi<br>
-;> giống như mấy ng mà họ có con z, làm ko dám nghỉ<br>
-;> a iu ngủ quên
+;> tối qua a ngủ quên e
