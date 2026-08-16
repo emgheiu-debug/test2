@@ -11,4 +11,5 @@
 ;> thỉnh thoảng than z để e biết bồ e còn nghèo<br>
 ;> chứ để e tưởng bồ giàu cũng kì, có sao nói z thôi e<br>
 ;> a tắm rửa xíu nha, tí a nhắn<br>
-;> chắc mốt phải nhắn sớm ròi e, để ngủ sớm chứ bùn ngủ quá
+;> chắc mốt phải nhắn sớm ròi e, để ngủ sớm chứ bùn ngủ quá<br>
+;> nghèo phải ngủ cho hết ngày chứ e
