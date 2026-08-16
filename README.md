@@ -4,4 +4,5 @@
 ;> chiều chiều a chạy bộ, chiều chiều nhắn nhe e<br>
 ;> nay a đốt đc 100calo, ráng 1 tuần chạy 2 lần mà lười quá e<br>
 ;> cơm nước gì chưa e<br>
-;> a chưa ăn cơm nữa
+;> a chưa ăn cơm nữa<br>
+;> giờ a nghèo tới đâu hay tới đó z e
