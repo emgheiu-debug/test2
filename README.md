@@ -10,4 +10,6 @@
 ;> nhìu khi năm nay a ko đổi đc cty khác nữa<br>
 ;> a ko có quan trọng thưởng tết bằng thu nhập hằng tháng đâu e<br>
 ;> nữa có bầu a cắt móng tay chân cho<br>
-;> sao a thấy có đứa nó bị ảo tưởng hay sao á e, nó tưởng nó nói gì là mình nghe mình tin z e, chịu
+;> sao a thấy có đứa nó bị ảo tưởng hay sao á e, nó tưởng nó nói gì là mình nghe mình tin z e, chịu<br>
+;> vợ a học nấu ăn dần dần, để nấu cho a ăn<br>
+;> a cũng nấu mà tùy hứng lắm
