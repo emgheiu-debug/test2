@@ -9,4 +9,5 @@
 ;> nếu mà a làm cty này cả đời thì nghèo 1 đời<br>
 ;> nhìu khi năm nay a ko đổi đc cty khác nữa<br>
 ;> a ko có quan trọng thưởng tết bằng thu nhập hằng tháng đâu e<br>
-;> nữa có bầu a cắt móng tay chân cho
+;> nữa có bầu a cắt móng tay chân cho<br>
+;> sao a thấy có đứa nó bị ảo tưởng hay sao á e, nó tưởng nó nói gì là mình nghe mình tin z e, chịu
