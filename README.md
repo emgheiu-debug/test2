@@ -8,4 +8,5 @@
 ;> khi nào a có tiền đó là 1 ẩn số, hiện tại hơn nửa năm 2026 vẫn nghèo<br>
 ;> nếu mà a làm cty này cả đời thì nghèo 1 đời<br>
 ;> nhìu khi năm nay a ko đổi đc cty khác nữa<br>
-;> a ko có quan trọng thưởng tết bằng thu nhập hằng tháng đâu e
+;> a ko có quan trọng thưởng tết bằng thu nhập hằng tháng đâu e<br>
+;> nữa có bầu a cắt móng tay chân cho
