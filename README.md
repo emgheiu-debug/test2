@@ -5,4 +5,5 @@
 ;> đi làm về ngủ éo làm đc qq gì hết e<br>
 ;> a đi làm tháng có chén cơm ăn thôi e, cũng nghèo<br>
 ;> ai kêu e ghệ nghèo chi<br>
-;> khi nào a có tiền đó là 1 ẩn số, hiện tại hơn nửa năm 2026 vẫn nghèo
+;> khi nào a có tiền đó là 1 ẩn số, hiện tại hơn nửa năm 2026 vẫn nghèo<br>
+;> nếu mà a làm cty này cả đời thì nghèo 1 đời
