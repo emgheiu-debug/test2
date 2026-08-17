@@ -6,4 +6,6 @@
 ;> a đi làm tháng có chén cơm ăn thôi e, cũng nghèo<br>
 ;> ai kêu e ghệ nghèo chi<br>
 ;> khi nào a có tiền đó là 1 ẩn số, hiện tại hơn nửa năm 2026 vẫn nghèo<br>
-;> nếu mà a làm cty này cả đời thì nghèo 1 đời
+;> nếu mà a làm cty này cả đời thì nghèo 1 đời<br>
+;> nhìu khi năm nay a ko đổi đc cty khác nữa<br>
+;> a ko có quan trọng thưởng tết bằng thu nhập hằng tháng đâu e
