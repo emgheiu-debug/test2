@@ -4,4 +4,5 @@
 ;> mé a ăn cơm uống miếng thuốc xong bùn ngủ vãi<br>
 ;> đi làm về ngủ éo làm đc qq gì hết e<br>
 ;> a đi làm tháng có chén cơm ăn thôi e, cũng nghèo<br>
-;> ai kêu e ghệ nghèo chi
+;> ai kêu e ghệ nghèo chi<br>
+;> khi nào a có tiền đó là 1 ẩn số, hiện tại hơn nửa năm 2026 vẫn nghèo
