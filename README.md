@@ -12,4 +12,7 @@
 ;> nữa có bầu a cắt móng tay chân cho<br>
 ;> sao a thấy có đứa nó bị ảo tưởng hay sao á e, nó tưởng nó nói gì là mình nghe mình tin z e, chịu<br>
 ;> vợ a học nấu ăn dần dần, để nấu cho a ăn<br>
-;> a cũng nấu mà tùy hứng lắm
+;> a cũng nấu mà tùy hứng lắm<br>
+;> tùy cơ ứng biến thôi vợ<br>
+;> ngủ chung a dều đều lun, đến ngày đến tháng vẫn cứ đều đều<br>
+;> khuya ròi e ngủ đi e, ngủ ngon e
