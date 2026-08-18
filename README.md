@@ -5,4 +5,5 @@
 ;> nó cũng đéo biết tính a ròi, a ko có dễ tin người đặc biệt là ng đã có ấn tượng xấu, a thù dai lắm e<br>
 ;> có mấy đứa ngu dữ lắm lun e trên mạng nó nói gì cũng nghĩ ngta tin vs nghe nó ???<br>
 ;> cacao sữa uống đang ngon e<br>
-;> mà uống thì chắc sẽ ngứa mũi e, chị bán thuốc hay gần chỗ a có bầu nghĩ đẻ ròi e, uống chỗ khác bùn ngủ gần chet vs ko hay bằng
+;> mà uống thì chắc sẽ ngứa mũi e, chị bán thuốc hay gần chỗ a có bầu nghĩ đẻ ròi e, uống chỗ khác bùn ngủ gần chet vs ko hay bằng<br>
+;> tin bùn là có thể cả năm nay a ko đổi đc việc
