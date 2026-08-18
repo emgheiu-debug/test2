@@ -2,4 +2,5 @@
 ;> ngủ chưa e, a ngủ quên<br>
 ;> sáng chắc ly cacao sữa vs hợp cơm thôi e<br>
 ;> con yến giò heo spam tiktok đại loại là nó mún a thất nghiệp ko có cơm ăn hễ có việc làm là z e<br>
-;> nó cũng đéo biết tính a ròi, a ko có dễ tin người đặc biệt là ng đã có ấn tượng xấu, a thù dai lắm e
+;> nó cũng đéo biết tính a ròi, a ko có dễ tin người đặc biệt là ng đã có ấn tượng xấu, a thù dai lắm e<br>
+;> có mấy đứa ngu dữ lắm lun e trên mạng nó nói gì cũng nghĩ ngta tin vs nghe nó ???
