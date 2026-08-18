@@ -6,4 +6,4 @@
 ;> có mấy đứa ngu dữ lắm lun e trên mạng nó nói gì cũng nghĩ ngta tin vs nghe nó ???<br>
 ;> cacao sữa uống đang ngon e<br>
 ;> mà uống thì chắc sẽ ngứa mũi e, chị bán thuốc hay gần chỗ a có bầu nghĩ đẻ ròi e, uống chỗ khác bùn ngủ gần chet vs ko hay bằng<br>
-;> tin bùn là có thể cả năm nay a ko đổi đc việc
+;> tin bùn là có thể cả năm nay a ko đổi đc việc, ý là nghèo cả năm nữa đó e
