@@ -15,4 +15,6 @@
 ;> nhìu khi đi làm về đúng giờ cũng bắt lỗi<br>
 ;> ai chứ a để bụng lắm<br>
 ;> vs camera bằng cơm nhìu ý e, đứa này dòm để ý màn hình mình làm gì xong nhắn vs cấp trên<br>
-;> a ghét ai soi mói z lắm
+;> a ghét ai soi mói z lắm<br>
+;> a chứ ai đối xử tệ vs a là a nhớ nhìu hơn là lúc đối xử tốt<br>
+;> lúc nào mình cũng nhớ ngta đối xử tệ vs mình hết e
