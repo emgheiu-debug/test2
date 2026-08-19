@@ -13,4 +13,6 @@
 ;> a thì a có việc mới a cảm thấy hợp vs a lương tốt là a nghĩ liền á e<br>
 ;> đi làm phải cắn răng nhẫn nhịn thì quá là mệt e<br>
 ;> nhìu khi đi làm về đúng giờ cũng bắt lỗi<br>
-;> ai chứ a để bụng lắm
+;> ai chứ a để bụng lắm<br>
+;> vs camera bằng cơm nhìu ý e, đứa này dòm để ý màn hình mình làm gì xong nhắn vs cấp trên<br>
+;> a ghét ai soi mói z lắm
