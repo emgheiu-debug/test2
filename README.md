@@ -4,4 +4,5 @@
 ;> hỏng lẽ giờ a bớt ăn lại để dành nhìu nhìu hơn, mượn tiền mua đt thì hơi rủi ro, vs lại a ko định làm công việc này lâu dài vì lương thấp<br>
 ;> vs nó hơi gò bó quá ko hợp vs a<br>
 ;> nằm a hay ngủ quên lắm e<br>
-;> vợ a biết làm món gì e
+;> vợ a biết làm món gì e<br>
+;> e thấy a làm chỗ nào mà nghèo mà a mún làm lun là a hết thương e ròi đó, còn mún nghĩ là mới thương e
