@@ -5,4 +5,5 @@
 ;> vs nó hơi gò bó quá ko hợp vs a<br>
 ;> nằm a hay ngủ quên lắm e<br>
 ;> vợ a biết làm món gì e<br>
-;> e thấy a làm chỗ nào mà nghèo mà a mún làm lun là a hết thương e ròi đó, còn mún nghĩ là mới thương e
+;> e thấy a làm chỗ nào mà nghèo mà a mún làm lun là a hết thương e ròi đó, còn mún nghĩ là mới thương e<br>
+;> a tắm rửa xíu a nhắn nhe e
