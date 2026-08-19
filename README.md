@@ -18,4 +18,6 @@
 ;> a ghét ai soi mói z lắm<br>
 ;> a chứ ai đối xử tệ vs a là a nhớ nhìu hơn là lúc đối xử tốt<br>
 ;> lúc nào mình cũng nhớ ngta đối xử tệ vs mình hết e<br>
-;> a iu bùn ngủ quá e
+;> a iu bùn ngủ quá e<br>
+;> mong muốn của a là có nhìu tiền có nhà riêng vài miếng đất tích lũy, vài căn nhà, có con thì lo cho con đủ đầy học trường này trường kia<br>
+;> mong mún của a chắc ai cũng mún 
