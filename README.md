@@ -10,4 +10,6 @@
 ;> ko biết năm sau nhìu tiền kiểu gì, ko biết bà thầy bói nói đúng ko, bà đó già lắm ròi, coi cho mấy người làm chủ dưới khu vực a<br>
 ;> giờ nghèo mà năm sau nhìu tiền là bà đó bói siu hay lun e<br>
 ;> để coi có đúng ko đã e<br>
-;> a thì a có việc mới a cảm thấy hợp vs a lương tốt là a nghĩ liền á e
+;> a thì a có việc mới a cảm thấy hợp vs a lương tốt là a nghĩ liền á e<br>
+;> đi làm phải cắn răng nhẫn nhịn thì quá là mệt e<br>
+;> nhìu khi đi làm về đúng giờ cũng bắt lỗi
