@@ -6,4 +6,5 @@
 ;> nằm a hay ngủ quên lắm e<br>
 ;> vợ a biết làm món gì e<br>
 ;> e thấy a làm chỗ nào mà nghèo mà a mún làm lun là a hết thương e ròi đó, còn mún nghĩ là mới thương e<br>
-;> a tắm rửa xíu a nhắn nhe e
+;> a tắm rửa xíu a nhắn nhe e<br>
+;> ko biết năm sau nhìu tiền kiểu gì, ko biết bà thầy bói nói đúng ko, bà đó già lắm ròi, coi cho mấy người làm chủ dưới khu vực a
