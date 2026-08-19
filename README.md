@@ -20,4 +20,5 @@
 ;> lúc nào mình cũng nhớ ngta đối xử tệ vs mình hết e<br>
 ;> a iu bùn ngủ quá e<br>
 ;> mong muốn của a là có nhìu tiền có nhà riêng vài miếng đất tích lũy, vài căn nhà, có con thì lo cho con đủ đầy học trường này trường kia<br>
-;> mong mún của a chắc ai cũng mún 
+;> mong mún của a chắc ai cũng mún <br>
+;> thôi ngủ nha e, a bùn ngủ quá
