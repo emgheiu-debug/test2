@@ -3,4 +3,5 @@
 ;> đợi a xíu e<br>
 ;> a chạy mún rã cái tay z e<br>
 ;> a iu mún bệnh ròi e<br>
-;> a bị cảm đau mình mẩy ròi e
+;> a bị cảm đau mình mẩy ròi e<br>
+;> mé ngủ nữa đêm bị sốt nhức đầu e
