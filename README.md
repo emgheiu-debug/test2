@@ -10,4 +10,4 @@
 ;> làm ngày có nhiu đâu e, cứ nghĩ là đi làm cho qua ngày z thôi e<br>
 ;> a đi chùa van dái đổi việc quài chứ gì e =)))<br>
 ;> xin vài ko đc quãi chứ sao e<br>
-;> 
+;> ngủ e, khuya ròi bùn ngủ ròi e, ngủ ngon vợ iu
