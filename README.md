@@ -5,4 +5,5 @@
 ;> uống thuốc riếc cái miệng nhạt te à e<br>
 ;> uống thuốc cũng bớt bớt ròi e, chắc hết bệnh ròi để mai nữa coi hết hẳn hay chưa e<br>
 ;> giờ a chỉ ước tìm đc việc khác a nghỉ chỗ này liền e =)))<br>
-;> năm nay a chỉ ước nhiu đó
+;> năm nay a chỉ ước nhiu đó<br>
+;> bữa thứ 7 a bệnh uống 1 liều thấy bớt nên a đi làm đó, tại đang cày mua đt mà e, nếu ko hơi hơi mệt bệnh là nghỉ à 
