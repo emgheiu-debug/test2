@@ -7,4 +7,5 @@
 ;> bóp dú cái coi e<br>
 ;> a lu bu xíu a nhắn nhe e<br>
 ;> e chắc muốn làm vợ a lắm để đc ngủ chung làm tình =))<br>
-;> a lạ gì e
+;> a lạ gì e<br>
+;> a bùn ngủ quá vợ
