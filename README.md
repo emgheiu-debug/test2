@@ -1,7 +1,2 @@
 ;> a nhô e <br>
-;> cơm nước tắm rửa chưa e<br>
-;> iu xa chịu khó nhe e<br>
-;> a bệnh hết bệnh cỡ hơn 2 tuần có chạy bộ gì đâu e, nay a cũng gầy nữa<br>
-;> nửa a làm sườn chiên cho e ăn tại a biết làm món đó<br>
-;> a định học làm xàlách trộn dầu giấm nữa<br>
-;> e nấu canh đi, a nấu xào chiên trộn
+;> cơm nước rửa bím gì chưa e
