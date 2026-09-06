@@ -3,4 +3,5 @@
 ;> chắc tại nghèo ko tiền nên chán thôi e<br>
 ;> e quen a để làm tình thôi chứ gì<br>
 ;> nhìn vợ a răm<br>
-;> tối tối nhắn nhe e, a lu bu xíu
+;> tối tối nhắn nhe e, a lu bu xíu<br>
+;> cơm nước gì chưa e, a mới chạy bộ về cũng 100calo
