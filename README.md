@@ -6,4 +6,5 @@
 ;> tối tối nhắn nhe e, a lu bu xíu<br>
 ;> cơm nước gì chưa e, a mới chạy bộ về cũng 100calo<br>
 ;> a giảm mỡ thôi e, ngồi nhìu dễ bệnh lắm<br>
-;> để a đi tắm đã chứ bùn ngủ quá e
+;> để a đi tắm đã chứ bùn ngủ quá e<br>
+;> giờ nghèo tới đâu hay tới đó z e
