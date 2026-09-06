@@ -11,3 +11,4 @@
 ;> a thì quan điểm của a đi làm ai múa lân múa lửa gì kệ ngta ko phải việc của mình, mình chỉ cần biết tháng đút túi nhiu đó lo cuộc sống của mình là oke e<br>
 ;> nói z chứ nghỉ cái là cắt đứt hết à, ai làm gì kệ<br>
 ;> thời buổi giờ tiền mới quan trọng e
+;> giờ đồng nghiệp chơi thân cỡ nào khi mà nghỉ cuộc sống ko liên quan gì nhau hết thì tự động cũng cắt đứt liên lạc à e, có thể thời gian đầu còn hỏi thăm qua lại đi cà phê chứ nghỉ 1 thời gian như người xa lạ à e
