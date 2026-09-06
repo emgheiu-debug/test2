@@ -4,4 +4,5 @@
 ;> e quen a để làm tình thôi chứ gì<br>
 ;> nhìn vợ a răm<br>
 ;> tối tối nhắn nhe e, a lu bu xíu<br>
-;> cơm nước gì chưa e, a mới chạy bộ về cũng 100calo
+;> cơm nước gì chưa e, a mới chạy bộ về cũng 100calo<br>
+;> a giảm mỡ thôi e, ngồi nhìu dễ bệnh lắm
