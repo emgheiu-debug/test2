@@ -14,4 +14,5 @@
 ;> bả vay chỗ cao xong cho vay lại bị giựt thế là thành con nợ, ko biết sao mà tin tưởng ngta cho ngta mượn tiền ròi chắc chắn sẽ trả lại tiền cho mình hong hỉu nữa<br>
 ;> thì e cho mượn tiền thì xác xuất là có giựt, có trả, trả chậm gì đó chứ<br>
 ;> đâu chỉ có mỗi xác xuất là trả 100% đâu e<br>
-;> a là con cho mượn tiền thì sẽ trả mà nợ dai ý e hỉu ko, nhìu khi tết mới trả, ăn lòn
+;> a là con cho mượn tiền thì sẽ trả mà nợ dai ý e hỉu ko, nhìu khi tết mới trả, ăn lòn<br>
+;> mua đt ở  cellphones thì nó mắc hơn chỗ khác chút mà nó có chính sách trả góp tốt
