@@ -6,4 +6,9 @@
 ;> bả làm nợ thôi chứ ko làm gì ra hồn cả<br>
 ;> đòi tiền thì bùn vui<br>
 ;> nói chung thì số a tự lo thôi chứ cha mẹ có lo gì nhìu e<br>
-;> cho mượn 1 lần tởn ròi ko có lần 2 đâu e
+;> cho mượn 1 lần tởn ròi ko có lần 2 đâu e<br>
+;> gần nhà a có bà bả bị ngta lừa đưa con đi úc xuất khẩu lao động thi ngoại ngữ IELTS lừa cũng loanh quanh 500 củ<br>
+;> luôn thg rễ thì chắc hơn 1 tỏi, giờ ở nhà chứ có đi đâu<br>
+;> thì mẹ a đúc đầu cho bả mượn, chồng bả cờ bạc tùm lum nữa dính lun<br>
+;> nói chung thì mẹ a cả cuộc đời trắng tay nợ nần vì tin người<br>
+;>
