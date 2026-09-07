@@ -12,5 +12,6 @@
 ;> thì mẹ a đúc đầu cho bả mượn, chồng bả cờ bạc tùm lum nữa dính lun<br>
 ;> nói chung thì mẹ a cả cuộc đời trắng tay nợ nần vì tin người<br>
 ;> bả vay chỗ cao xong cho vay lại bị giựt thế là thành con nợ, ko biết sao mà tin tưởng ngta cho ngta mượn tiền ròi chắc chắn sẽ trả lại tiền cho mình hong hỉu nữa<br>
-;> thì e cho mượn tiền thì xác xuất là có giựt có trả trả chậm gì đó chứ<br>
-;> đâu chỉ có mỗi xác xuất là trả 100% đâu e
+;> thì e cho mượn tiền thì xác xuất là có giựt, có trả, trả chậm gì đó chứ<br>
+;> đâu chỉ có mỗi xác xuất là trả 100% đâu e<br>
+;> 
