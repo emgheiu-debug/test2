@@ -16,4 +16,6 @@
 ;> đâu chỉ có mỗi xác xuất là trả 100% đâu e<br>
 ;> a là con cho mượn tiền thì sẽ trả mà nợ dai ý e hỉu ko, nhìu khi tết mới trả, ăn lòn<br>
 ;> mua đt ở  cellphones thì nó mắc hơn chỗ khác chút mà nó có chính sách trả góp tốt<br>
-;> mà khuya ròi ngủ đc e, nào gặp đc a nhắn, ko gặp đc cũng vì chữ tiền thôi e
+;> mà khuya ròi ngủ đc e, nào gặp đc a nhắn, ko gặp đc cũng vì chữ tiền thôi e<br>
+;> tháng sau gặp đc ko a báo sau, ngủ ngon đi e<br>
+;> suy nghĩ chi mệt óc, lo làm kiếm tiền đi e
