@@ -5,4 +5,5 @@
 ;> ai biết tới đó tính, tại mẹ a mượn tiền a mà bả làm gì hết mịa ròi<br>
 ;> bả làm nợ thôi chứ ko làm gì ra hồn cả<br>
 ;> đòi tiền thì bùn vui<br>
-;> nói chung thì số a tự lo thôi chứ cha mẹ có lo gì nhìu e
+;> nói chung thì số a tự lo thôi chứ cha mẹ có lo gì nhìu e<br>
+;> cho mượn 1 lần tởn ròi ko có lần 2 đâu e
