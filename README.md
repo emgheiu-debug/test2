@@ -1,5 +1,4 @@
 ;> a nhô e <br>
-;> hẹn e tháng sau nhe e<br>
-;> a tắm rửa xíu nhắn nhe e<br>
-;> a bùn ngủ quá vợ iu<br>
-;> ở chung nhà là mình nằm chill chill ôm nhau thôi e, dù ko nói gì
+;> cơm nước chưa vợ iu<br>
+;> a định mua góp đt trong tháng này lun e<br>
+;> kệ mịa đi e, tới đâu tới
