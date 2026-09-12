@@ -15,4 +15,5 @@
 ;> mổi tháng a góp 2.5 triệu<br>
 ;> tức là giờ mẹ a nợ a nhiu đó tiền + làm 3 tháng nửa làm đủ sốt tiền mua đứt đt<br>
 ;> a thấy mua đt mới cũng bth<br>
-;> hình khoe ngực của e đâu ròi e
+;> hình khoe ngực của e đâu ròi e<br>
+;> trên fb ý e
