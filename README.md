@@ -17,4 +17,7 @@
 ;> a thấy mua đt mới cũng bth<br>
 ;> hình khoe ngực của e đâu ròi e<br>
 ;> trên fb ý e<br>
-;> a mua trên cellphones ý e, may mà nay a mua vừa kịp iphone 17 pro chưa lên giá
+;> a mua trên cellphones ý e, may mà nay a mua vừa kịp iphone 17 pro chưa lên giá<br>
+;> a mua nay cái ngta nói ko mua bữa nay là 7h đặt iphone mới chính sách góp nó khác ròi tăng 1.5 củ<br>
+;> làm lật đật lấy tiền mua góp, éo biết có lên giá iphone pro, promax ko, hay nói láo để mình mua liền nó có hoa hồng<br>
+;> iphone 17 lên giá đắt lắm e, tăng 4-5 củ lận 
