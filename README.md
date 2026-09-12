@@ -28,4 +28,6 @@
 <img width="328" height="119" alt="image" src="https://github.com/user-attachments/assets/a4cbd82d-761a-48f8-91a7-250e2d397349" /><br>
 ;> mà nay ngta đặt hàng mua iphone 18 nè e<br>
 <img width="159" height="136" alt="image" src="https://github.com/user-attachments/assets/f25fe417-1ddd-4fa7-9d8b-80a86cd616ff" /><br>
-;> điện thoại cũng cỡ con future ròi e
+;> điện thoại cũng cỡ con future ròi e<br>
+;> ko a coi giá gốc còn bán lẻ giá khác e, a định để dành mua con future, AB, SH mode,...<br>
+;> chắc năm sau mua e
