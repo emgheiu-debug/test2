@@ -24,4 +24,6 @@
 ;> a mua ở cellphones ngta hô cái cuối cùng =))), sau 7h tăng giá bán các thứ, ai biết xạolon hay thiệc e<br>
 ;> có cái màu cam 25-26 củ hàng lướt a ko mua, a ko thích màu cam<br>
 ;> tại ram linh kiện này kia đang mắc sợ bị lên giá ý e<br>
-;> nên a góp lun
+;> nên a góp lun<br>
+<img width="328" height="119" alt="image" src="https://github.com/user-attachments/assets/a4cbd82d-761a-48f8-91a7-250e2d397349" /><br>
+;> mà nay ngta đặt hàng mua iphone 18 nè e
