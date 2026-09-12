@@ -1,7 +1,3 @@
 ;> a nhô e <br>
-;> cơm nước chưa vợ iu<br>
-;> a định mua góp đt trong tháng này lun e<br>
-;> kệ mịa đi e, tới đâu tới<br>
-;> thì tháng sau mình vẫn gặp nhau bth e<br>
-;> khuya ròi ngủ đi e, lu bu cũng hết 1 ngày<br>
-;> a cũng bùn ngủ ròi vợ iu, ngủ ngon e
+;> a mới mua góp iphone về e<br>
+;> thì làm tầm 3 tháng là mua đứt ròi mà a cho mẹ mượn
