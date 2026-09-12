@@ -6,4 +6,5 @@
 ;> ko thì góp tiếp e =)))<br>
 ;> mua góp riết ko dám đổi việc nghèo miết<br>
 ;> xài iphone nãy giờ quen thấy nó ngon e<br>
-;> tháng sau đc thì gặp e
+;> tháng sau đc thì gặp e<br>
+;> ngủ đi vợ iu
