@@ -21,4 +21,5 @@
 ;> a mua nay cái ngta nói ko mua bữa nay là 7h đặt iphone mới chính sách góp nó khác ròi tăng 1.5 củ<br>
 ;> làm lật đật lấy tiền mua góp, éo biết có lên giá iphone pro, promax ko, hay nói láo để mình mua liền nó có hoa hồng<br>
 ;> iphone 17 lên giá đắt lắm e, tăng 4-5 củ lận<br>
-;> a mua ở cellphones ngta hô cái cuối cùng =))), sau 7h tăng giá bán các thứ, ai biết xạolon hay thiệc e
+;> a mua ở cellphones ngta hô cái cuối cùng =))), sau 7h tăng giá bán các thứ, ai biết xạolon hay thiệc e<br>
+;> có cái màu cam 25-26 củ hàng lướt a ko mua, ko thích màu cam
