@@ -26,4 +26,6 @@
 ;> tại ram linh kiện này kia đang mắc sợ bị lên giá ý e<br>
 ;> nên a góp lun<br>
 <img width="328" height="119" alt="image" src="https://github.com/user-attachments/assets/a4cbd82d-761a-48f8-91a7-250e2d397349" /><br>
-;> mà nay ngta đặt hàng mua iphone 18 nè e
+;> mà nay ngta đặt hàng mua iphone 18 nè e<br>
+<img width="159" height="136" alt="image" src="https://github.com/user-attachments/assets/f25fe417-1ddd-4fa7-9d8b-80a86cd616ff" /><br>
+;> điện thoại cũng cỡ con future ròi e
