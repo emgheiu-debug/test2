@@ -10,4 +10,6 @@
 ;> xong đổi đc, ốp vô mới biết do lòi cam ko ốp đc<br>
 ;> nào giờ nghèo có xài đâu biết e, cứ nghĩ là ốp thì mua về ốp sẽ vừa<br>
 ;> z là hôm qua a bị lừa mua trong hôm đó, ko là sang hôm sau lên giá do đặt hàng iphone 18, thấy có lên mịa gì đâu<br>
-;> làm a tối phải chạy đi chạy lại
+;> làm a tối phải chạy đi chạy lại<br>
+;> nay chạy đc 3.4 km e<br>
+;> 
