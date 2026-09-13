@@ -7,4 +7,5 @@
 ;> a thấy iphone chỗ đó bán cũng tầm loanh quanh 15 củ à e, mua về phong bạc cũng đc<br>
 ;> còn mỗi cái ốp cam phải lấy lun e, ốp vô cũng đẹp<br>
 ;> nay a đi chạy bộ, ban đầu ốp ko vừa a éo hỉu sao nó ko vừa lun, đi đổi éo biết giải thích vs tiệm đó sao lun e<br>
-;> xong đổi đc, ốp vô mới biết do lòi cam ko ốp đc
+;> xong đổi đc, ốp vô mới biết do lòi cam ko ốp đc<br>
+;> nào giờ nghèo có xài đâu biết e, cứ nghĩ là ốp thì mua về ốp sẽ vừa
