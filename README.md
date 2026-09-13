@@ -10,4 +10,5 @@
 ;> còn ban đầu có tiền sẵn thì đỡ bị ghét hơn, kiểu như là m đang thấp hơn t mà giờ m hơn t, t ghét z thôi<br>
 ;> cty nào mà làm để biết lương là ăn lòn, nó so sánh lương ròi đi làm giấu nghề gây khó dễ ko chỉ việc...<br>
 ;> đời mà e<br>
-;> a nhá máy e cái nhen
+;> a nhá máy e cái nhen<br>
+;> nào hẹn hò e, tháng sau a đi chơi vs bạn a kệ e
