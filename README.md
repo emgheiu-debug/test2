@@ -8,5 +8,5 @@
 ;> nhìu đưa chưa có đt xịn xài mình chưa dủ tiền góp mà đem vô nó ganh tị đâm chọt gây khó dễ làm mình bị thôi việc sao e<br>
 ;> tốt nhất là góp xong thì đem vô e,, ban đầu mình nghèo mà sau này mình hơn nó là bị ghét dữ lắm e<br>
 ;> còn ban đầu có tiền sẵn thì đỡ bị ghét hơn, kiểu như là m đang thấp hơn t mà giờ m hơn t, t ghét z thôi<br>
-;> cty nào mà làm để biết lương là ăn lòn, nó so sánh lương ròi đi làm giấu nghề gây khó dễ ko chỉ việc, dấu nghề...<br>
+;> cty nào mà làm để biết lương là ăn lòn, nó so sánh lương ròi đi làm giấu nghề gây khó dễ ko chỉ việc...<br>
 ;> đời mà e
