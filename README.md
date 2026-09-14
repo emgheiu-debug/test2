@@ -5,4 +5,5 @@
 ;> a có ghệ răm quá<br>
 ;> a nghèo nên hay ngủ nhìu<br>
 ;> cỡ tháng sau mình gặp nhau nhe e<br>
-;> mới giờ a bùn ngủ quá e
+;> mới giờ a bùn ngủ quá e<br>
+;> xíu a nhắn nhe e, bận xíu
