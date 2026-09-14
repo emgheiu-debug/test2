@@ -4,4 +4,5 @@
 ;> vợ a có hay coi phim heo hem<br>
 ;> a có ghệ răm quá<br>
 ;> a nghèo nên hay ngủ nhìu<br>
-;> cỡ tháng sau mình gặp nhau nhe e
+;> cỡ tháng sau mình gặp nhau nhe e<br>
+;> mới giờ a bùn ngủ quá e
