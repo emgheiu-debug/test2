@@ -8,4 +8,7 @@
 ;> mới giờ a bùn ngủ quá e<br>
 ;> xíu a nhắn nhe e, bận xíu<br>
 ;> hôm qua a ngủ quên, a chỉ xài iphone cơ bản thôi e nên 256Gb chắc đủ, đt cũ a cũng 256GB, mua 512GB ngán tiền quá<br>
-;> a lên mạng đặt 2 3 cái áo mặc mà quên
+;> a lên mạng đặt 2 3 cái áo mặc mà quên<br>
+;> lương thấp nhưng có kỉ niệm e<br>
+;> áo a cũ vs cũng mục dần ròi<br>
+;>
