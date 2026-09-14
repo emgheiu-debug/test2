@@ -6,4 +6,5 @@
 ;> a nghèo nên hay ngủ nhìu<br>
 ;> cỡ tháng sau mình gặp nhau nhe e<br>
 ;> mới giờ a bùn ngủ quá e<br>
-;> xíu a nhắn nhe e, bận xíu
+;> xíu a nhắn nhe e, bận xíu<br>
+;> hôm qua a ngủ quên, a chỉ xài iphone cơ bản thôi e nên 256Gb chắc đủ, đt cũ a cũng 256GB, mua 512GB ngán tiền quá
