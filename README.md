@@ -11,4 +11,6 @@
 ;> a xài con samsung từ năm 3 thì tầm 5 năm a đổi đt mới, chắc xài con iphone này tầm 3-4 năm a đổi, cũng tùy<br>
 ;> do nó bị hỡ keo xong đi mưa sọc màn dần dần lun e, nhìn ngứa mắt<br>
 ;> iphone giờ xài 11 chắc gì ngon e<br>
-;> sài đc cái nó sang bắt trend
+;> sài đc cái nó sang bắt trend<br>
+;> con lòn già lên mạng lảm nhảm quài chắc nó tiêu cực lắm<br>
+;> kệ nó thôi e
