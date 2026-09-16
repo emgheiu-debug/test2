@@ -7,4 +7,5 @@
 ;> a mới mua 2 cái áo cũng rẻ mà cũng ổn e có 500k/2 cái lun phí ship<br>
 ;> giờ rác ko à e, ko có gì coi cả<br>
 ;> xíu nhắn nhe e<br>
-;> ui mình cứ đi làm đều đều có lương, nào có việc tốt hơn thì cân nhắc đổi thôi e
+;> ui mình cứ đi làm đều đều có lương, nào có việc tốt hơn thì cân nhắc đổi thôi e<br>
+;> a xài con samsung từ năm 3 thì tầm 5 năm a đổi đt mới, chắc xài con iphone này tầm 3-4 năm a đổi, cũng tùy
