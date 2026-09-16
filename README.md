@@ -13,4 +13,6 @@
 ;> iphone giờ xài 11 chắc gì ngon e<br>
 ;> sài đc cái nó sang bắt trend<br>
 ;> con lòn già lên mạng lảm nhảm quài chắc nó tiêu cực lắm<br>
-;> kệ nó thôi e
+;> kệ nó thôi e, nó ganh tị á<br>
+;> thời buổi giờ quan trọng tiền bạc thôi e, có gia đình, con cái thì thu nhập phãi tăng<br>
+;> lương thấp nuôi con chật vật lắm
