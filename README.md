@@ -17,4 +17,5 @@
 ;> thời buổi giờ quan trọng tiền bạc thôi e, có gia đình, con cái thì thu nhập phãi tăng<br>
 ;> lương thấp nuôi con chật vật lắm<br>
 ;> a sạc tầm 15phút lên pin hơn 40%, a hy vọng mau hết ngày hết tháng<br>
-;> mới giờ mắt a muốn sụp ròi e, bùn ngủ quá
+;> mới giờ mắt a muốn sụp ròi e, bùn ngủ quá<br>
+;> a nghi làm cty này đến năm sau quá
