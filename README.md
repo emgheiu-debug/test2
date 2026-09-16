@@ -15,4 +15,5 @@
 ;> con lòn già lên mạng lảm nhảm quài chắc nó tiêu cực lắm<br>
 ;> kệ nó thôi e, nó ganh tị á<br>
 ;> thời buổi giờ quan trọng tiền bạc thôi e, có gia đình, con cái thì thu nhập phãi tăng<br>
-;> lương thấp nuôi con chật vật lắm
+;> lương thấp nuôi con chật vật lắm<br>
+;> a sạc tầm 15phút lên pin hơn 40%
