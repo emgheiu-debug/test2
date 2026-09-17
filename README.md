@@ -8,4 +8,5 @@
 ;> lương chỗ hiện tại thấp so vs mức sống, cỡ nào a cũng phải nghỉ, nghỉ sớm hay muộn thôi e<br>
 ;> mua thêm con mấy rửa mặt + sạc dự phòng thì cũng loanh quanh 5 củ nữa e<br>
 ;> mấy rửa mặt vài trăm xài ngon ko e<br>
-;> mua mấy ít triệu chắc phải kiểm hàng a mới mua đc e
+;> mua mấy ít triệu chắc phải kiểm hàng a mới mua đc e<br>
+;> có shop mall mà mắc quá e
