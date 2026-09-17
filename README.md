@@ -10,4 +10,5 @@
 ;> mấy rửa mặt vài trăm xài ngon ko e<br>
 ;> mua mấy ít triệu chắc phải kiểm hàng a mới mua đc e<br>
 ;> có shop mall mà mắc quá e<br>
-;> khỏi sợ fake mà mắc quá, chắc tính từ giờ tới tháng thứ 5 a mới mua đc, tới tết mịa lun
+;> khỏi sợ fake mà mắc quá, chắc tính từ giờ tới tháng thứ 5 a mới mua đc, tới tết mịa lun<br>
+;> shop khác chênh 400k nhưng lo hàng fake, hoy mà giờ có tiền đâu mua e
