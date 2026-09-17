@@ -14,4 +14,5 @@
 ;> shop khác chênh 400k nhưng lo hàng fake, hoy mà giờ có tiền đâu mua e<br>
 ;> tính ra thì gần tới tết âm lịch a mới mua đc máy đó<br>
 ;> a nghèo mà thích sài sang =)))<br>
-;>
+;> thôi kệ mịa tới đâu tới e, mệt đầu<br>
+;> ngủ ngon e
