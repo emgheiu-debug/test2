@@ -4,4 +4,5 @@
 ;> xài ngon á e, tháng thứ 4 thì a mua pin dự phòng + máy rửa mặt<br>
 ;> tan làm chưa e<br>
 ;> xài chắc 3-4 năm nữa vẫn ngon e, xong đổi máy mới<br>
-;> hẹn e tháng sau nhe e
+;> hẹn e tháng sau nhe e<br>
+;> a đi ngày chủ nhật á e, ngày nào thì có lương đã e
