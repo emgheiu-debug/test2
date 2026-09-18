@@ -5,4 +5,5 @@
 ;> tan làm chưa e<br>
 ;> xài chắc 3-4 năm nữa vẫn ngon e, xong đổi máy mới<br>
 ;> hẹn e tháng sau nhe e<br>
-;> a đi ngày chủ nhật á e, ngày nào thì có lương đã e
+;> a đi ngày chủ nhật á e, ngày nào thì có lương đã e<br>
+;> năm sau thì đổi con xe tùy tài chính e, a cũng ko đam mê xe đâu
