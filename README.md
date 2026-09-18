@@ -11,4 +11,7 @@
 ;> hong ai lo cho mình thì mình tự lo cho mình thôi e, nhìu đứa á, ra trường làm lương thấp cha mẹ còn hỗ trợ hằng tháng, ít nhất là vài tháng đầu, còn mua xe cho đi làm<br>
 ;> còn a phải tự lo hết, có tiền thì mình tự lo mình thôi e<br>
 ;> mua đt còn hỗ trợ cho thêm nhiu tiền mua, còn a cũng phải tự lo<br>
-;>
+;> mẹ a có tiền gom đưa ngta mượn ngta ko trả ý e, trả lếch<br>
+;> bị giựt cũng có<br>
+;> a thì a ko có gen đó ròi e<br>
+;> 
