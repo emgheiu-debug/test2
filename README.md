@@ -15,4 +15,6 @@
 ;> bị giựt cũng có<br>
 ;> a thì a ko có gen đó ròi e<br>
 ;> vợ a dạo này kinh doanh ổn hem, lễ có bánh trung thu cho nhân viên hem<br>
-;> a bùn ngủ quá xíu a ngủ
+;> a bùn ngủ quá xíu a ngủ<br>
+;> thôi a iu ngủ nhe e, mở mắt hết lên ròi<br>
+;> ngủ ngon e
