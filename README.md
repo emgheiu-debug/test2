@@ -8,4 +8,5 @@
 ;> a đi ngày chủ nhật á e, ngày nào thì có lương đã e<br>
 ;> năm sau thì đổi con xe tùy tài chính e, a cũng ko đam mê xe đâu<br>
 ;> bèo lắm cũng future e<br>
-;> 
+;> hong ai lo cho mình thì mình tự lo cho mình thôi e, nhìu đứa á, ra trường làm lương thấp cha mẹ còn hỗ trợ hằng tháng, ít nhất là vài tháng đầu, còn mua xe cho đi làm<br>
+;> còn a phải tự lo hết, có tiền thì mình tự lo mình thôi e
