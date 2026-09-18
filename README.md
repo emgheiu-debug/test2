@@ -1,18 +1,2 @@
 ;> a nhô e <br>
-;> nay a nghỉ 1 ngày đi khám sức khỏe<br>
-;> mua có cái đt iphone mà con lòn già nó ganh tị lảm nhảm =)))<br>
-;> làm lương thấp như a thì ít ăn xài mới có dư e<br>
-;> e nửa làm vợ a nhe<br>
-;> nghe cái phái liền<br>
-;> e chắc dị ứng nghe câu "chia tay", hay "mày tao" =))<br>
-;> lương chỗ hiện tại thấp so vs mức sống, cỡ nào a cũng phải nghỉ, nghỉ sớm hay muộn thôi e<br>
-;> mua thêm con mấy rửa mặt + sạc dự phòng thì cũng loanh quanh 5 củ nữa e<br>
-;> mấy rửa mặt vài trăm xài ngon ko e<br>
-;> mua mấy ít triệu chắc phải kiểm hàng a mới mua đc e<br>
-;> có shop mall mà mắc quá e<br>
-;> khỏi sợ fake mà mắc quá, chắc tính từ giờ tới tháng thứ 5 a mới mua đc, tới tết mịa lun<br>
-;> shop khác chênh 400k nhưng lo hàng fake, hoy mà giờ có tiền đâu mua e<br>
-;> tính ra thì gần tới tết âm lịch a mới mua đc máy đó<br>
-;> a nghèo mà thích sài sang =)))<br>
-;> thôi kệ mịa tới đâu tới e, mệt đầu<br>
-;> ngủ ngon e
+;> 
