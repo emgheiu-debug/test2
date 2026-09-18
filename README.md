@@ -14,4 +14,5 @@
 ;> mẹ a có tiền gom đưa ngta mượn ngta ko trả ý e, trả lếch<br>
 ;> bị giựt cũng có<br>
 ;> a thì a ko có gen đó ròi e<br>
-;> vợ a dạo này kinh doanh ổn hem, lễ có bánh trung thu cho nhân viên hem
+;> vợ a dạo này kinh doanh ổn hem, lễ có bánh trung thu cho nhân viên hem<br>
+;> a bùn ngủ quá xíu a ngủ
