@@ -7,4 +7,5 @@
 ;> chắc tháng sau mua máy rửa mặt e<br>
 ;> thành ra để dành 4 tháng mới đủ tiền trả đứt con đt<br>
 ;> ráng nhẫn nhịn ai làm gì kệ, quan điểm a z, đi làm ai làm gì kệ miễn ko đụng tới mình là đc quan trọng mỗi tháng đút túi nhiu tiền e =)))<br>
-;> làm ở đây đc cái gì, dư nhiu tiền
+;> làm ở đây đc cái gì, dư nhiu tiền<br>
+;> chắc gần tết mình gặp nhau nữa, tới lúc đó là a dư ra tiền đủ để góp xong con đt ,sẵn a mua đồ lun
