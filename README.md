@@ -5,4 +5,6 @@
 ;> đó là nghèo ổn định e<br>
 ;> hong biết năm sau có khá ko chứ giờ nghèo khổ quá e<br>
 ;> chắc tháng sau mua máy rửa mặt e<br>
-;> thành ra để dành 4 tháng mới đủ tiền trả đứt con đt
+;> thành ra để dành 4 tháng mới đủ tiền trả đứt con đt<br>
+;> ráng nhẫn nhịn ai làm gì kệ, quan điểm a z, đi làm ai làm gì kệ miễn ko đụng tới mình là đc quan trọng mỗi tháng đút túi nhiu tiền e =)))<br>
+;> làm ở đây đc cái gì, dư nhiu tiền
