@@ -13,4 +13,5 @@
 ;> mún té re lun<br>
 ;> đau bụng ẻ vài lần hết chứ gì e<br>
 ;> e có hay đọc xàm xàm trên mạng ròi ảo tưởng mình ở vị trí đó ko, chứ a ko<br>
-;> a thấy bánh trung thu khiết minh ngon e mua ăn thử coi hợp vị e hong
+;> a thấy bánh trung thu khiết minh ngon e mua ăn thử coi hợp vị e hong<br>
+;> thì dự tính a z đó cứ theo kế hoạch mà triển e
