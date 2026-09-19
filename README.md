@@ -11,4 +11,6 @@
 ;> chắc gần tết mình gặp nhau nữa, tới lúc đó là a dư ra tiền đủ để góp xong con đt ,sẵn a mua đồ lun<br>
 ;> hôm qua a ăn tré trộn xong bữa nay thỉnh thoảng đau bụng râm râm hoài lun e<br>
 ;> mún té re lun<br>
-;> đau bụng ẻ vài lần hết chứ gì e
+;> đau bụng ẻ vài lần hết chứ gì e<br>
+;> e có hay đọc xàm xàm trên mạng ròi ảo tưởng mình ở vị trí đó ko, chứ a ko<br>
+;> 
