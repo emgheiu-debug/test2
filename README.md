@@ -14,4 +14,4 @@
 ;> a xài 2 cái đt 1 cái cũ để định vị đỡ sợ 1 cướp giật e<br>
 ;> chốt lại là tháng sau vs gần tết a đi chơi vs bạn sẵn ké mình gặp nhau<br>
 ;> a cũng thiu thiu bùn ngủ ròi e<br>
-;> a ngủ nhe e
+;> a ngủ nhe e, nằm cái a ưa bùn ngủ lắm
