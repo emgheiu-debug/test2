@@ -11,4 +11,5 @@
 ;> thỉnh thoảng a tiêu cực z thôi chứ tới đâu hay tới đó e, người có số mà e<br>
 ;> xíu a cơm nước tắm rửa a iu nhắn nhe e<br>
 ;> hồi chiều a có ngủ ròi nên giờ đỡ bùn ngủ e<br>
-;> a xài 2 cái đt 1 cái cũ để định vị đỡ sợ 1 cướp giật e
+;> a xài 2 cái đt 1 cái cũ để định vị đỡ sợ 1 cướp giật e<br>
+;> chốt lại là tháng sau vs gần tết a đi chơi vs bạn sẵn ké mình gặp nhau
