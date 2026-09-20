@@ -18,4 +18,7 @@
 ;> a chuẩn bị skinecare đi nủ ròi e<br>
 ;> mai chủ nhật a ko lu bu gì a nhắn cho nhe e<br>
 ;> mấy nay vợ a có nungf hem e<br>
-;> vợ a răm dễ gì ko nungfd
+;> vợ a răm dễ gì ko nungfd<br>
+;> tầm 12h là a ngủ ròi e<br>
+;> tại sáng đi làm sớm, để còn góp con đt =)))<br>
+;> từ đây tới tết là dư sức ròi e, mua tí đồ lặt vặt nữa, kệ mịa nghèo có tiền vẫn hơn là ko có cắc nào
