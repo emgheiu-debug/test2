@@ -9,4 +9,6 @@
 ;> a mới chạy bộ về nè e<br>
 ;> đều đều ít nhất 1 tuần 1 lần e<br>
 ;> thỉnh thoảng a tiêu cực z thôi chứ tới đâu hay tới đó e, người có số mà e<br>
-;> xíu a cơm nước tắm rửa a iu nhắn nhe e
+;> xíu a cơm nước tắm rửa a iu nhắn nhe e<br>
+;> hồi chiều a có ngủ ròi nên giờ đỡ bùn ngủ e<br>
+;> a xài 2 cái đt 1 cái cũ để định vị đỡ sợ 1 cướp giật e
