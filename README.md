@@ -16,4 +16,5 @@
 ;> a thấy bánh trung thu khiết minh ngon e mua ăn thử coi hợp vị e hong<br>
 ;> thì dự tính a z đó cứ theo kế hoạch mà triển e<br>
 ;> a chuẩn bị skinecare đi nủ ròi e<br>
-;> mai chủ nhật a ko lu bu gì a nhắn cho nhe e
+;> mai chủ nhật a ko lu bu gì a nhắn cho nhe e<br>
+;> mấy nay vợ a có nungf hem e
