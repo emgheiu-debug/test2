@@ -7,4 +7,5 @@
 ;> năm này ko đc thì năm khác, năm khác nữa<br>
 ;> lương chỗ làm a thấp vs ko có phúc lợi gì mấy, hơi khó dụ giờ giấc<br>
 ;> a mới chạy bộ về nè e<br>
-;> đều đều ít nhất 1 tuần 1 lần e
+;> đều đều ít nhất 1 tuần 1 lần e<br>
+;> thỉnh thoảng a tiêu cực z thôi chứ tới đâu hay tới đó e, người có số mà e
