@@ -17,4 +17,5 @@
 ;> thì dự tính a z đó cứ theo kế hoạch mà triển e<br>
 ;> a chuẩn bị skinecare đi nủ ròi e<br>
 ;> mai chủ nhật a ko lu bu gì a nhắn cho nhe e<br>
-;> mấy nay vợ a có nungf hem e
+;> mấy nay vợ a có nungf hem e<br>
+;> vợ a răm dễ gì ko nungfd
