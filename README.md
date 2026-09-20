@@ -5,4 +5,5 @@
 ;> a chuẩn bị đi tập thể dục<br>
 ;> a là a đổi bằng đc cty mới thôi e<br>
 ;> năm này ko đc thì năm khác, năm khác nữa<br>
-;> lương chỗ làm a thấp vs ko có phúc lợi gì mấy, hơi khó dụ giờ giấc
+;> lương chỗ làm a thấp vs ko có phúc lợi gì mấy, hơi khó dụ giờ giấc<br>
+;> a mới chạy bộ về nè e
