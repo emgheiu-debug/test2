@@ -7,4 +7,6 @@
 ;> a làm chỗ này quài là mốt a chia tay e thiệc đó đéo có tiền đâu mua nhà mua xe, lương nằm ngang đó e<br>
 ;> a cũng nhịn ăn nhịn mặc lắm đó chứ ko đùa đâu, tại cái đt nó mún hư ròi<br>
 ;> làm vài năm lương cũng z à e, a biết bảng lương người cũ<br>
-;> a thấy chỗ hiện tại của a nó khá là nghèo cân đo đông đếm từng tờ giấy A4, cái bàn cho nhân viên ngồi lun á, từng bữa tiệc lun á, tiệc thì kêu đồ a lưng lưng ăn về đói chetme, a làm a ngồi cái bàn rất là bèo nhèo, còn đòi mua bàn mới thì bắt nhân viên bù phân nữa
+;> a thấy chỗ hiện tại của a nó khá là nghèo cân đo đông đếm từng tờ giấy A4, cái bàn cho nhân viên ngồi lun á, từng bữa tiệc lun á, tiệc thì kêu đồ a lưng lưng ăn về đói chetme, a làm a ngồi cái bàn rất là bèo nhèo, còn đòi mua bàn mới thì bắt nhân viên bù phân nữa<br>
+;> ui nó tính từng đồng bạc lẻ vài trăm vài chục<br>
+;> láo e làm chó
