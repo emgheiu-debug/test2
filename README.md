@@ -23,4 +23,5 @@
 ;> bây giờ đồ mặc chừng nào rách mục hết cứu mới bỏ, bịch mủ về giặt lại dùng, đồ thì mua đồ si đa ko mua đồ mới<br>
 ;> ăn cơm là phải ăn tiệm cho tiết kiệm 1 bữa 50k thôi, trứng chiên làm tới<br>
 =))) mé kể nghe mà a thấy sợ<br>
-;> chuyện của a làm kệ mịa a đi
+;> chuyện của a làm kệ mịa a đi<br>
+;> vợ a coi tiktok AnBeee đi mắc cười lắm
