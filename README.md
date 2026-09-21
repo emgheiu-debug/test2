@@ -24,4 +24,6 @@
 ;> ăn cơm là phải ăn tiệm cho tiết kiệm 1 bữa 50k thôi, trứng chiên làm tới<br>
 =))) mé kể nghe mà a thấy sợ<br>
 ;> chuyện của a làm kệ mịa a đi<br>
-;> vợ a coi tiktok AnBeee đi mắc cười lắm
+;> vợ a coi tiktok AnBeee đi mắc cười lắm<br>
+;> e coi thắc mắc cười hem, chứ a coi 2-3 tập thấy cuốn vãi coi nhìu thì xàm , coi nào view cao á e<br>
+;> a ngủ trước nha
