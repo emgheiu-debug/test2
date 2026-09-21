@@ -11,4 +11,5 @@
 ;> ui nó tính từng đồng bạc lẻ vài trăm vài chục<br>
 ;> láo e làm chó<br>
 ;> e thấy đó dễ gì nó trả lương cao cho mình e, làm có ăn thôi<br>
-;> tờ giấy A4 mực in cũng tính hô xài hao các thứ
+;> tờ giấy A4 mực in cũng tính hô xài hao các thứ<br>
+;> éo biết có thưởng tết hay ko chứ nói chi là lương nhìu lương ít e
