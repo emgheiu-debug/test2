@@ -22,4 +22,5 @@
 ;> a mà làm ở đó lâu chắc a học tính trùm sò ở đó đem về nhà =))), bth a nghèo a đã keo ròi<br>
 ;> bây giờ đồ mặc chừng nào rách mục hết cứu mới bỏ, bịch mủ về giặt lại dùng, đồ thì mua đồ si đa ko mua đồ mới<br>
 ;> ăn cơm là phải ăn tiệm cho tiết kiệm 1 bữa 50k thôi, trứng chiên làm tới<br>
-=))) mé kể e nghe mà a thấy sợ
+=))) mé kể nghe mà a thấy sợ<br>
+;> chuyện của a làm kệ mịa a đi
