@@ -16,4 +16,6 @@
 ;> có đợt ha ,nợ lương nhân viên 2-3 tháng nhân viên cũ á<br>
 ;> a có khi nợ gần 2 tháng <br>
 ;> có cl nó trả lương cao,thời buổi giờ kiếm cty giàu mà bu e ôi<br>
-;> mà vào đc hay ko là chuyện khác
+;> mà vào đc hay ko là chuyện khác e<br>
+;> khổ lắm<br>
+;> đời chủ yếu khổ vì tiền
