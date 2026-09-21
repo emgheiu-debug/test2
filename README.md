@@ -10,4 +10,5 @@
 ;> a thấy chỗ hiện tại của a nó khá là nghèo cân đo đông đếm từng tờ giấy A4, cái bàn cho nhân viên ngồi lun á, từng bữa tiệc lun á, tiệc thì kêu đồ a lưng lưng ăn về đói chetme, a làm a ngồi cái bàn rất là bèo nhèo, còn đòi mua bàn mới thì bắt nhân viên bù phân nữa<br>
 ;> ui nó tính từng đồng bạc lẻ vài trăm vài chục<br>
 ;> láo e làm chó<br>
-;> e thấy đó dễ gì nó trả lương cao cho mình e, làm có ăn thôi
+;> e thấy đó dễ gì nó trả lương cao cho mình e, làm có ăn thôi<br>
+;> tờ giấy A4 mực in cũng tính hô xài hao các thứ
