@@ -18,4 +18,5 @@
 ;> có cl nó trả lương cao,thời buổi giờ kiếm cty giàu mà bu e ôi<br>
 ;> mà vào đc hay ko là chuyện khác e<br>
 ;> khổ lắm<br>
-;> đời chủ yếu khổ vì tiền
+;> đời chủ yếu khổ vì tiền<br>
+;> a mà làm ở đó lâu chắc a học tính trùm sò ở đó đem về nhà =))), bth a nghèo a đã keo ròi
