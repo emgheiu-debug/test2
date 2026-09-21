@@ -4,4 +4,6 @@
 ;> yếu tố lương là yếu tố quyết định để a mún gắn bó lâu dài vs doanh nghiệp nha e<br>
 ;> lương phúc lợi đãi ngộ<br>
 ;> e thì biết cái éo gì việc a để a tính<br>
-;> a làm chỗ này quài là mốt a chia tay e thiệc đó đéo có tiền đâu mua nhà mua xe, lương nằm ngang đó e
+;> a làm chỗ này quài là mốt a chia tay e thiệc đó đéo có tiền đâu mua nhà mua xe, lương nằm ngang đó e<br>
+;> a cũng nhịn ăn nhịn mặc lắm đó chứ ko đùa đâu, tại cái đt nó mún hư ròi<br>
+;> làm vài năm lương cũng z à e, a biết bảng lương người cũ
