@@ -12,4 +12,8 @@
 ;> láo e làm chó<br>
 ;> e thấy đó dễ gì nó trả lương cao cho mình e, làm có ăn thôi<br>
 ;> tờ giấy A4 mực in cũng tính hô xài hao các thứ<br>
-;> éo biết có thưởng tết hay ko chứ nói chi là lương nhìu lương ít e
+;> éo biết có thưởng tết hay ko chứ nói chi là lương nhìu lương ít e<br>
+;> có đợt ha ,nợ lương nhân viên 2-3 tháng nhân viên cũ á<br>
+;> a có khi nợ gần 2 tháng <br>
+;> có cl nó trả lương cao,thời buổi giờ kiếm cty giàu mà bu e ôi<br>
+;> mà vào đc hay ko là chuyện khác
