@@ -1,1 +1,3 @@
-;> a iu ngủ quên e, đói quá ăn ổ bánh mì cái ngủ lun
+;> a nhô ghệ iu<br>
+;> a mới nhận giấy khám sức khỏe bị thiếu máu, chắc a ăn cơm xong uống nước trà đá cái nó bị z <br>
+;> để ăn lại e
