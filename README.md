@@ -9,4 +9,4 @@
 ;> a ăn cơm là a uống nước lọc sau 2 tiếng a mới uống trà<br>
 ;> cỡ tháng sau nha e<br>
 ;> gặp nhau ý e<br>
-;>
+;> nhắn con nhỏ bạn đi ăn buffet mà nó éo rep ta
