@@ -7,4 +7,6 @@
 ;> chắc tại vừa ăn vừa uống trà tắc, trà sữa nó khó hấp thu ý e<br>
 ;> có trà ở trỏng ý e, chứ a vẫn ăn thịt cá hằng ngày mà<br>
 ;> a ăn cơm là a uống nước lọc sau 2 tiếng a mới uống trà<br>
-;> cỡ tháng sau nha e
+;> cỡ tháng sau nha e<br>
+;> gặp nhau ý e<br>
+;>
