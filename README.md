@@ -4,4 +4,4 @@
 ;> mới giờ a iu bùn ngủ quá e<br>
 ;> dạo này web cờ bạc spam nhìu hen e<br>
 ;> nhà nước ra thuế má các thứ mà ko dẹp đc mấy web cờ bạc e<br>
-;>
+;> sống phải có kế hoạch e, chắc gần tết a mới có nhu cầu mua nữa
