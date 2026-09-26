@@ -9,4 +9,6 @@
 ;> nay con chuột a hư hết 1 nút ròi chắc tại nhấn nhìu quá nó hư ý e, mốt đem đi sửa lun a cho địa chỉ e<br>
 ;> tưởng bền lắm ai dè cũng ko bền<br>
 ;> a giờ ko đặt đồ nữa để dành chỉ mua cái máy rửa mặt nữa, tết mua quần áo nữa là hết<br>
-;> nay a mới mua sạc dự phòng xài cũng oke, tại iphone tụt pin nhanh quá e, xài nó chai còn tụt hơn
+;> nay a mới mua sạc dự phòng xài cũng oke, tại iphone tụt pin nhanh quá e, xài nó chai còn tụt hơn<br>
+;> có chỗ chuyên sửa phụ kiện ở sài gòn như tai nghe, chuột, bàn phím chứ e<br>
+;> đợt a nghĩ mấy món đó hư mà hết bảo hành chỉ đem dục ai dè còn vớt đc
