@@ -1,10 +1,10 @@
 ;> a nhô e<br>
-;> nghĩ lại kiếp nghèo mà a bùn quá e<br>
-;> từ giờ tới tết còn 4-5 tháng nữa ráng làm đủ tiền góp cái đt, vs mua tí đồ lặt vặt thôi e<br>
-;> mới giờ a iu bùn ngủ quá e<br>
-;> dạo này web cờ bạc spam nhìu hen e<br>
-;> nhà nước ra thuế má các thứ mà ko dẹp đc mấy web cờ bạc e<br>
-;> sống phải có kế hoạch e, chắc gần tết a mới có nhu cầu mua nữa<br>
-;> a mới giờ bùn ngủ quá e, tại sáng phải dậy sớm nên giờ bùn ngủ e<br>
-;> a bùn ngủ mún híp con mắt lại gòi e<br>
-;> ngủ ngon nhe e
+;> cơm nước gì chưa e<br>
+;> a mới mua củ sạc giá hời<br>
+;> hời đc 100k =)))<br>
+;> mua ốp xài ko đc -50k <br>
+;> tùy shop mà hời đc 350k nữa<br>
+;> cellphones bán phụ kiện này kia hay điều chỉnh giá quá hen e<br>
+;> a thấy có cái củ sạc mà 1-2 ngày đổi giá 1 lần cũ mới cập nhật liên tục<br>
+;> nay con chuột a hư hết 1 nút ròi chắc tại nhấn nhìu quá nó hư ý e, mốt đem đi sửa lun a cho địa chỉ e<br>
+;> 
