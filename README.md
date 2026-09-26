@@ -7,4 +7,5 @@
 ;> như con iphone z e giữ giá lâu lắm mới rớt giá xuống thấp<br>
 ;> con chuột của a hồi chiều nó hư giờ nó xài bth ròi e vl thật<br>
 ;> chắc là a nhấn nhanh quá nó lỗi thôi e, chuột ngày xưa mua hơn 2 củ giờ vẫn bán hơn 2 cũ e<br>
-;> để xài 1 thời gian coi nó có bị nữa ko e
+;> để xài 1 thời gian coi nó có bị nữa ko e<br>
+;> a giờ bùn ngủ quá a ngủ xíu
