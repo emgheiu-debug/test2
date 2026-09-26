@@ -22,4 +22,9 @@
 ;> làm công nhân đóng bảo hiểm 19 năm gì đó lãnh 1 cục tiền bao hiểm loanh quanh 200 triệu<br>
 ;> thu nhập a thấp thì a tiết kiệm để có mua này mua kia cho bằng ngta thôi e<br>
 ;> nào có tiền thì xài tiền kiểu khác =)))<br>
-;> mình nghèo tính theo nghèo đi e
+;> mình nghèo tính theo nghèo đi e<br>
+;> làm công nhân lương hơn 5 củ mà chạy SH hơn 100 củ kinh chưa e<br>
+;> chắc cũng kha khá tiền đổ xăng nếu mà chạy a thường <br>
+;> xe SH cũng là 1 tài sản đó e, ko phải tiêu sản đâu<br>
+;> chạy vừa sang vừa giữ giá vừa lại đem đi cầm đc<br>
+;> như con iphone z e giữ giá lâu lắm mới rớt giá xuống thấp<br>
