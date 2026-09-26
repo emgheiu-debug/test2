@@ -28,3 +28,4 @@
 ;> xe SH cũng là 1 tài sản đó e, ko phải tiêu sản đâu<br>
 ;> chạy vừa sang vừa giữ giá vừa lại đem đi cầm đc<br>
 ;> như con iphone z e giữ giá lâu lắm mới rớt giá xuống thấp<br>
+;> con chuột của a hồi chiều nó hư giờ nó xài bth ròi e vl thật
