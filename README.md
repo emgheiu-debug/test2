@@ -16,7 +16,10 @@
 ;> ghê chưa, tại thg con trai ko chịu đi học nên cho làm công nhân<br>
 ;> ở dưới miền tây á, con ko chịu học thì cha mẹ cũng ko ép, nó làm cái khác cũng đc<br>
 ;> làm công nhân thì lương nó là lương tối thiểu vùng chưa đc 5 triệu nữa + phụ phí khác vài trăm nữa, là hơn 5 triệu <br>
-;> hằng năm lên lương 3%x lương tối thiểu vùng ko đc 200k nữa e<br>
+;> hằng năm lên lương 3% x lương tối thiểu vùng ko đc 200k nữa e<br>
 ;> nhìu cty còn ko lên đc 3% nữa e<br>
 ;> lương văn phòng thì cũng như công nhân z e, nhưng mà làm ko bị ngta mắng chửi vs đãi ngộ riêng thôi, tại có đợt con nhỏ e họ a đi làm ở đó mà<br>
-;> làm công nhân đóng bảo hiểm 19 năm gì đó lãnh 1 cục tiền bao hiểm loanh quanh 200 triệu
+;> làm công nhân đóng bảo hiểm 19 năm gì đó lãnh 1 cục tiền bao hiểm loanh quanh 200 triệu<br>
+;> thu nhập a thấp thì a tiết kiệm để có mua này mua kia cho bằng ngta thôi e<br>
+;> nào có tiền thì xài tiền kiểu khác =)))<br>
+;> mình nghèo tính theo nghèo đi e
