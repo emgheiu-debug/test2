@@ -15,4 +15,7 @@
 ;> ở dưới a ha 2 vợ chồng làm co ro cắc rắc ko ăn xài chỉ đi làm ăn cơm nhà mà mua chiếc SH 117 triệu cho thg con trai làm công nhân<br>
 ;> ghê chưa, tại thg con trai ko chịu đi học nên cho làm công nhân<br>
 ;> ở dưới miền tây á, con ko chịu học thì cha mẹ cũng ko ép, nó làm cái khác cũng đc<br>
+;> làm công nhân thì lương nó là lương tối thiểu vùng chưa đc 5 triệu nữa + phụ phí khác vài trăm nữa, là hơn 5 triệu <br>
+;> hằng năm lên lương 3%x lương tối thiểu vùng ko đc 200k nữa e<br>
+;> nhìu cty còn ko lên đc 3% nữa e<br>
 ;> 
