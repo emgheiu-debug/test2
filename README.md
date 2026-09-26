@@ -11,4 +11,8 @@
 ;> a giờ ko đặt đồ nữa để dành chỉ mua cái máy rửa mặt nữa, tết mua quần áo nữa là hết<br>
 ;> nay a mới mua sạc dự phòng xài cũng oke, tại iphone tụt pin nhanh quá e, xài nó chai còn tụt hơn<br>
 ;> có chỗ chuyên sửa phụ kiện ở sài gòn như tai nghe, chuột, bàn phím chứ e<br>
-;> đợt a nghĩ mấy món đó hư mà hết bảo hành chỉ đem dục ai dè còn vớt đc
+;> đợt a nghĩ mấy món đó hư mà hết bảo hành chỉ đem dục ai dè còn vớt đc<br>
+;> ở dưới a ha 2 vợ chồng làm co ro cắc rắc ko ăn xài chỉ đi làm ăn cơm nhà mà mua chiếc SH 117 triệu cho thg con trai làm công nhân<br>
+;> ghê chưa, tại thg con trai ko chịu đi học nên cho làm công nhân<br>
+;> ở dưới miền tây á, con ko chịu học thì cha mẹ cũng ko ép, nó làm cái khác cũng đc<br>
+;> 
