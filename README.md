@@ -2,4 +2,6 @@
 ;> a ước mau hết ngày hết tháng tới khúc có tiền, nghèo mà sống dai cũng khổ e<br>
 ;> tí a đi chạy bộ e<br>
 ;> mơi giờ bùn ngủ quá e, mà chưa ngủ<br>
-;> a mới chạy bộ về nè e, cân giảm đc 20g
+;> a mới chạy bộ về nè e, cân giảm đc 20g<br>
+;> xíu a tắm rửa a nhắn nhe e<br>
+;> 
