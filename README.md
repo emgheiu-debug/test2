@@ -18,4 +18,7 @@
 ;> tính bả ẹo làm giá lắm <br>
 ;> ai cưới bả về chắc hơi mệt, quan điểm a thấy z<br>
 ;> e nữa làm vợ a nhe hem<br>
-;> ghệ răm a mấy nay có nungdf hem e, hồi chưa quen là thấy e cũng răm răm ròi
+;> ghệ răm a mấy nay có nungdf hem e, hồi chưa quen là thấy e cũng răm răm ròi<br>
+;> a chắc bữa nào mua hào về ăn để bổ sung sắt máu e<br>
+;> ông bán hàu gần chỗ a nay nghĩ ròi, mua mà chắc chạy hơi xa<br>
+;>
