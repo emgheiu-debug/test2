@@ -12,4 +12,6 @@
 ;> a ít uống nước lọc mà thận a vẫn ổn, chủ yếu thì a uống trà đá, trà lipton, matcha, trà sửa, lâu lâu thì cà phê<br>
 ;> mé bữa a ăn cỡ 2 trái xoài non mà bữa sau a bị té re lâu lâu đau bụng hết 1 ngày, ẻ cái hết à e<br>
 ;> e chắc hong thích ăn chua đâu<br>
-;> càng lớn a càng hong ưa uống trà sửa e, làm như có tuổi nó z
+;> càng lớn a càng hong ưa uống trà sửa e, làm như có tuổi nó z<br>
+;> cũng bớt thích ăn bánh tráng trộn<br>
+;>
