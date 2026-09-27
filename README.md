@@ -6,4 +6,5 @@
 ;> xíu a tắm rửa a nhắn nhe e<br>
 ;> <img width="328" height="175" alt="image" src="https://github.com/user-attachments/assets/9fe28a56-1e89-4ca9-947e-a168c44a4eb2" /><br>
 ;> a hay uống trà sau khi ăn cơm nên là bị thiếu máu + sắt + mỡ<br>
-;> thành ra là giờ a bớt uống trà lại e
+;> thành ra là giờ a bớt uống trà lại e<br>
+;> a đưa con AI vs bác sĩ thì nói y như nhau lun e, AI cũng ổn phếch mà ko phải lúc nào cũng đúng
