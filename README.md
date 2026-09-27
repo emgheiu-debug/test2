@@ -14,4 +14,6 @@
 ;> e chắc hong thích ăn chua đâu<br>
 ;> càng lớn a càng hong ưa uống trà sửa e, làm như có tuổi nó z<br>
 ;> cũng bớt thích ăn bánh tráng trộn<br>
-;>
+;> trong cty e có bà cở tuổi e, bả hô bả tỉnh lắm nên giờ bả chưa có chồng =)))<br>
+;> tính bả ẹo làm giá lắm <br>
+;> ai cưới bả về chắc hơi mệt
