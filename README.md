@@ -4,4 +4,6 @@
 ;> mơi giờ bùn ngủ quá e, mà chưa ngủ<br>
 ;> a mới chạy bộ về nè e, cân giảm đc 20g<br>
 ;> xíu a tắm rửa a nhắn nhe e<br>
-;> 
+;> <img width="328" height="175" alt="image" src="https://github.com/user-attachments/assets/9fe28a56-1e89-4ca9-947e-a168c44a4eb2" /><br>
+;> a hay uống trà sau khi ăn cơm nên là bị thiếu máu + sắt + mỡ<br>
+;> thành ra là giờ a bớt uống trà lại e
