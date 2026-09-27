@@ -16,4 +16,5 @@
 ;> cũng bớt thích ăn bánh tráng trộn<br>
 ;> trong cty e có bà cở tuổi e, bả hô bả tỉnh lắm nên giờ bả chưa có chồng =)))<br>
 ;> tính bả ẹo làm giá lắm <br>
-;> ai cưới bả về chắc hơi mệt
+;> ai cưới bả về chắc hơi mệt, quan điểm a thấy z<br>
+;>
