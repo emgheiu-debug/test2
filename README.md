@@ -4,4 +4,5 @@
 ;> a cơm nước tắm rửa xong ròi e<br>
 ;> máy nay a bớt uống trà ròi, tại a đang bị thiếu máu sắt<br>
 ;> a bùn ngủ quá ghệ iu<br>
-;> nửa làm vợ a nhe hem
+;> nửa làm vợ a nhe hem<br>
+;> ở chung là tối ngủ chung đều đều nhe hem e
