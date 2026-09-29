@@ -5,4 +5,5 @@
 ;> máy nay a bớt uống trà ròi, tại a đang bị thiếu máu sắt<br>
 ;> a bùn ngủ quá ghệ iu<br>
 ;> nửa làm vợ a nhe hem<br>
-;> ở chung là tối ngủ chung đều đều nhe hem e
+;> ở chung là tối ngủ chung đều đều nhe hem e<br>
+;> ngủ ngon e, a off à
