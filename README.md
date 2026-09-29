@@ -1,5 +1,3 @@
 ;> a nhô ghệ iu<br>
-;> a bị cảm uống thuốc vô bùn ngủ quá e<br>
-;> mé a iu ngủ quên<br>
-;> nửa có tiền là a quất đt 512GB xài cho thoải mái<br>
-;> éo có tiền thì thôi e
+;> a rút kinh nghiệm a uống thuốc buổi trưa, cho có bùn ngủ cũng ko ngủ đc tại đang làm giờ oke ròi e<br>
+;> 
