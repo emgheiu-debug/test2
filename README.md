@@ -24,4 +24,6 @@
 ;> mà già ròi a ko thích uống trà sữa mấy nữa<br>
 ;> hồi trẻ 10 đi thì bây giờ còn 6 cỡ z<br>
 ;> cũng ko thích ăn bánh tráng trộn nữa<br>
-;> a thích ăn bánh tráng cuốn trộn nha, nó hơi lạ xíu mà ngon ý e
+;> a thích ăn bánh tráng cuốn trộn nha, nó hơi lạ xíu mà ngon ý e<br>
+;> ngày nào a cũng quất 1 ly matcha hết coi 1 thời gian bệnh viêm mũi của a hết hẳn hem<br>
+;> chứ a uống vô thấy đỡ ngứa mũi hẳn, chỗ khác bán matcha a uống ko thấy đỡ ngứa mũi chắc tùy á e
