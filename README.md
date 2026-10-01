@@ -12,4 +12,8 @@
 ;> nhìn đẹp, nói z chứ a mua ốp sộp pe hơn 100k<br>
 ;> mấy nhỏ chỗ làm a nói matcha hóa chất e uống e bệnh blabla =)))<br>
 ;> ơ nào là "e uống nhìu đường bệnh"<br>
-;> bệnh cl
+;> bệnh cl<br>
+;> nó nói nào là bột matcha hóa chất chắc gì chỗ đó là thật<br>
+;> a giờ mua về phòng uống để nó nói quài phiền, mà mấy nhỏ đó nó cũng hơi già già ròi e<br>
+;> kiểu mấy người già ý e, nào là uống trà sữa toàn hóa chất, nó mua thực phẩm chức năng về uống nữa e<br>
+;>
