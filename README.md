@@ -16,4 +16,8 @@
 ;> nó nói nào là bột matcha hóa chất chắc gì chỗ đó là thật<br>
 ;> a giờ mua về phòng uống để nó nói quài phiền, mà mấy nhỏ đó nó cũng hơi già già ròi e<br>
 ;> kiểu mấy người già ý e, nào là uống trà sữa toàn hóa chất, nó mua thực phẩm chức năng về uống nữa e<br>
-;>
+;> hồi xưa mùa dịch a mua sửa bột thái + trà về nấu trà sữa mà e, hóa chất gì<br>
+;> e lên mạng e đọc tác hại của rượu bia còn nhìu hơn của trà sữa nửa<br>
+;> mà dưới quê a ha, mấy ông mà nhậu nhìu, bệnh chết cả đống<br>
+;> nhậu nhìu quá nó bệnh bao tử, phổi, gan,...nội tạng ý e<br>
+;> chỗ a ngta nhậu bệnh chết nhìu lắm e
