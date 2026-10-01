@@ -20,4 +20,8 @@
 ;> e lên mạng e đọc tác hại của rượu bia còn nhìu hơn của trà sữa nửa<br>
 ;> mà dưới quê a ha, mấy ông mà nhậu nhìu, bệnh chết cả đống<br>
 ;> nhậu nhìu quá nó bệnh bao tử, phổi, gan,...nội tạng ý e<br>
-;> chỗ a ngta nhậu bệnh chết nhìu lắm e
+;> chỗ a ngta nhậu bệnh chết nhìu lắm e<br>
+;> mà già ròi a ko thích uống trà sữa mấy nữa<br>
+;> hồi trẻ 10 đi thì bây giờ còn 6 cỡ z<br>
+;> cũng ko thích ăn bánh tráng trộn nữa<br>
+;> a thích ăn bánh tráng cuốn trộn nha, nó hơi lạ xíu mà ngon ý e
