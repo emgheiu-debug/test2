@@ -10,4 +10,6 @@
 ;> matcha tùy chỗ e, có chỗ a uống dở òm bth<br>
 ;> má iphone có cái ốp 1.6 củ đắt vãi<br>
 ;> nhìn đẹp, nói z chứ a mua ốp sộp pe hơn 100k<br>
-;> 
+;> mấy nhỏ chỗ làm a nói matcha hóa chất e uống e bệnh blabla =)))<br>
+;> ơ nào là "e uống nhìu đường bệnh"<br>
+;> bệnh cl
