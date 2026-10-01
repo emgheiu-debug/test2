@@ -1,4 +1,2 @@
-;> a nhô ghệ iu<br>
-;> chỗ e có mưa to hem<br>
-;> nãy a lu xu bu xíu<br>
-;> a iu ngủ quên
+;> a nhô e<br>
+;> cơm nước gì chưa e, xíu nhắn nhe e
