@@ -7,4 +7,6 @@
 ;> ở chung thì a sẽ sang sẻ việc nhà vs e, như là quét nhà, lau nhà,phơi đồ, phụ bếp, dọn dẹp,...<br>
 ;> ở chung thỉnh thoảng mình làm tình xíu nhe e<br>
 ;> mới giờ mà con mắt a nó lim dim bùn ngủ ròi e<br>
-;> để xíu a nhắn nhe e
+;> để xíu a nhắn nhe e<br>
+;> a thì a đi làm ko thich ai can thiệp vô cuộc sống của mình quá, kiểu đi làm là chỉ kiếm tiền thôi ý e<br>
+;> 
