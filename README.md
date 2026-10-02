@@ -9,4 +9,5 @@
 ;> mới giờ mà con mắt a nó lim dim bùn ngủ ròi e<br>
 ;> để xíu a nhắn nhe e<br>
 ;> a thì a đi làm ko thich ai can thiệp vô cuộc sống của mình quá, kiểu đi làm là chỉ kiếm tiền thôi ý e<br>
-;> tối a vê dú bóp dú e
+;> tối a vê dú bóp dú e<br>
+;> có vợ phải xài chứ e, để ko héo mòn
