@@ -12,4 +12,5 @@
 ;> tối a vê dú bóp dú e<br>
 ;> có vợ phải xài chứ e, để ko héo mòn<br>
 <img width="463" height="327" alt="image" src="https://github.com/user-attachments/assets/7269af6b-64bf-4b3b-a1c9-de7cd2b51c5e" /><img width="218" height="251" alt="image" src="https://github.com/user-attachments/assets/34b75946-141d-4f35-a61d-c167a2357f09" /><br>
-;> balo đó nhìn oke ko e
+;> balo đó nhìn oke ko e<br>
+;> kiểu nó bị đơn giản quá ý e, mà 1 củ lận có xứng đáng hem e
