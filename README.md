@@ -4,4 +4,6 @@
 ;> ba lô to mới đựng vừa e<br>
 ;> chỗ e có hay mưa ngập lụt gì ko e<br>
 ;> mới giờ mà mắt a lim dim bùn ngủ ròi e<br>
-;> e ngoài thích làm tình vs a, đi du lịch còn thích gì nữa hem
+;> e ngoài thích làm tình vs a, đi du lịch còn thích gì nữa hem<br>
+;> a thích nhìu tiền =))), thích sống xa xỉ <br>
+;> móa đi làm mà thấy mệt là nghĩ liền éo phải suy nghĩ e, còn nghèo mà nghỉ thì mất 1 ngày lương =)))
