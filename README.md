@@ -6,4 +6,7 @@
 ;> để cỡ nữa tháng nữa là dài vừa đẹp<br>
 ;> xíu a iu đi chạy bộ<br>
 ;> mà thôi trễ ròi e mai chạy<br>
-;> cơm nước tắm rửa gì đi e xíu a nhắn nhe
+;> cơm nước tắm rửa gì đi e xíu a nhắn nhe<br>
+;> từ nay tới tết a hết mau gì ròi<br>
+;> coi có dư dư miếng tiền mua ít bộ đồ bận e<br>
+;> 
