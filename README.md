@@ -18,4 +18,7 @@
 ;> đi làm vì vài đồng bạc mà sống giả tạo, đạo đức giả<br>
 ;> ụ móa a nghỉ 1 cái he cỏ lúa bằng nhau<br>
 ;> nửa già a thất nghiệp ko ai nhận e nhận a nhe, ban đêm làm chồng ban ngày làm tình ủa nhầm làm nhân viên =)))<br>
-;> mới giờ a iu bùn ngủ quá
+;> mới giờ a iu bùn ngủ quá<br>
+;> a thì tính a kiểu nói chuyện vs ai mà bất đồng quan điểm ý là a bị khó chịu, làm biếng nói chuyện<br>
+;> đi làm thì có ng này ng kia tính mỗi người mỗi khác nhau mà buộc phải giao tiếp cho nên là đi làm ko thấy happy lắm e
+                                                                                                    
