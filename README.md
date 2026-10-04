@@ -4,4 +4,6 @@
 ;> có rảnh a nhắn nhe<br>
 ;> hớt tóc giờ mới về nè e<br>
 ;> để cỡ nữa tháng nữa là dài vừa đẹp<br>
-;> xíu a iu đi chạy bộ
+;> xíu a iu đi chạy bộ<br>
+;> mà thôi trễ ròi e mai chạy<br>
+;>
