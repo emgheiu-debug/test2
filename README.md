@@ -10,4 +10,8 @@
 ;> từ nay tới tết a hết mau gì ròi<br>
 ;> coi có dư dư miếng tiền mua ít bộ đồ bận e<br>
 ;> vô mùa mưa ngại đi chơi vs bạn quá e<br>
-;> để coi coi bớt bớt mưa ko e
+;> để coi coi bớt bớt mưa ko e<br>
+;> e dạo này kinh doanh ổn ko e<br>
+;> ráng ráng mần có tiền để lo cho cuộc sống của mình e<br>
+;> a thì ráng kiếm việc khác nghỉ việc hiện tại =)))<br>
+;>
