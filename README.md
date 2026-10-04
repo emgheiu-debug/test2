@@ -27,4 +27,4 @@
 ;> ko có thân thì đừng can thiệp sâu vào cuộc sống của ng khác quá<br>
 ;> a thích đi làm mà cuộc sống ai nấy sống, ko có thân thì đừng có phiền<br>
 ;> a đi làm thì a cũng ko thích giải thích cuộc sống của mình vs ng khác, ai nghĩ gì nghĩ miễn ko ảnh hưởng túi tiền mình thì đc<br>
-;>
+;> e vợ a thì a chia sẻ nhìu hơn ròi e
