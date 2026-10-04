@@ -20,5 +20,7 @@
 ;> nửa già a thất nghiệp ko ai nhận e nhận a nhe, ban đêm làm chồng ban ngày làm tình ủa nhầm làm nhân viên =)))<br>
 ;> mới giờ a iu bùn ngủ quá<br>
 ;> a thì tính a kiểu nói chuyện vs ai mà bất đồng quan điểm ý là a bị khó chịu, làm biếng nói chuyện<br>
-;> đi làm thì có ng này ng kia tính mỗi người mỗi khác nhau mà buộc phải giao tiếp cho nên là đi làm ko thấy happy lắm e
-                                                                                                    
+;> đi làm thì có ng này ng kia tính mỗi người mỗi khác nhau mà buộc phải giao tiếp cho nên là đi làm ko thấy happy lắm e<br>
+;> đi làm mà nói về công việc ko mà bất đồng quan điểm thì a vẫn bth, mà đụng tới quan điểm sống hay là riêng tư<br>
+;> ví dụ như a hay uống matcha để giảm viêm mũi di mà có đứa ko biết nó nói uống hóa chất, uống đường nhìu bệnh blabla nghiêm trọng hóa vấn đề là a bị khó chịu ko thích<br>
+;> a thấy nó đéo biết gì cả mà nói như đúng ròi theo quan điểm góc nhìn của nó là a ko thích
