@@ -14,4 +14,4 @@
 ;> e dạo này kinh doanh ổn ko e<br>
 ;> ráng ráng mần có tiền để lo cho cuộc sống của mình e<br>
 ;> a thì ráng kiếm việc khác nghỉ việc hiện tại =)))<br>
-;>
+;> a làm chỗ này a ko có phụ giúp kinh tế e đc đâu
