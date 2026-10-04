@@ -16,4 +16,5 @@
 ;> a thì ráng kiếm việc khác nghỉ việc hiện tại =)))<br>
 ;> a làm chỗ này a ko có phụ giúp kinh tế e đc đâu<br>
 ;> đi làm vì vài đồng bạc mà sống giả tạo, đạo đức giả<br>
-;> ụ móa a nghỉ 1 cái he cỏ lúa bằng nhau
+;> ụ móa a nghỉ 1 cái he cỏ lúa bằng nhau<br>
+;> 
