@@ -14,4 +14,6 @@
 ;> e dạo này kinh doanh ổn ko e<br>
 ;> ráng ráng mần có tiền để lo cho cuộc sống của mình e<br>
 ;> a thì ráng kiếm việc khác nghỉ việc hiện tại =)))<br>
-;> a làm chỗ này a ko có phụ giúp kinh tế e đc đâu
+;> a làm chỗ này a ko có phụ giúp kinh tế e đc đâu<br>
+;> đi làm vì vài đồng bạc mà sống giả tạo, đạo đức giả<br>
+;> ụ móa a nghỉ 1 cái he cỏ lúa bằng nhau
