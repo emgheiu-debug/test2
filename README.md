@@ -3,4 +3,5 @@
 ;> chắc hớt lại kiểu mullet<br>
 ;> có rảnh a nhắn nhe<br>
 ;> hớt tóc giờ mới về nè e<br>
-;> để cỡ nữa tháng nữa là dài vừa đẹp
+;> để cỡ nữa tháng nữa là dài vừa đẹp<br>
+;> xíu a iu đi chạy bộ
