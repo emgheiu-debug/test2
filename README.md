@@ -25,4 +25,6 @@
 ;> ví dụ như a hay uống matcha để giảm viêm mũi di mà có đứa ko biết nó nói uống hóa chất, uống đường nhìu bệnh blabla nghiêm trọng hóa vấn đề là a bị khó chịu ko thích<br>
 ;> a thấy nó đéo biết gì cả mà nói như đúng ròi theo quan điểm góc nhìn của nó là a ko thích<br>
 ;> ko có thân thì đừng can thiệp sâu vào cuộc sống của ng khác quá<br>
-;> 
+;> a thích đi làm mà cuộc sống ai nấy sống, ko có thân thì đừng có phiền<br>
+;> a đi làm thì a cũng ko thích giải thích cuộc sống của mình vs ng khác, ai nghĩ gì nghĩ miễn ko ảnh hưởng túi tiền mình thì đc<br>
+;>
