@@ -9,4 +9,5 @@
 ;> cơm nước tắm rửa gì đi e xíu a nhắn nhe<br>
 ;> từ nay tới tết a hết mau gì ròi<br>
 ;> coi có dư dư miếng tiền mua ít bộ đồ bận e<br>
-;> 
+;> vô mùa mưa ngại đi chơi vs bạn quá e<br>
+;> để coi coi bớt bớt mưa ko e
