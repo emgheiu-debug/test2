@@ -13,4 +13,6 @@
 ;> nghèo mà mời đám tiệc phiền lắm e, ko đi thì cũng kì<br>
 ;> 1 tháng mà 3 4 cái đám là chet liền e<br>
 ;> nghĩ lại giờ nghèo bùn quá e<br>
-;> a bùn cả ngày nay
+;> a bùn cả ngày nay<br>
+;> chắc a múa máy hơn 2 3 củ gì thôi<br>
+;>
