@@ -20,4 +20,4 @@
 ;> sợ ngập hư xe tốn tiền sữa đang nghèo e<br>
 ;> ngập nước thì xe cùi xe xịn xe số xe tay ga đều hư thôi e<br>
 ;> xe chạy 1 thời gian cũng thay nhớt bảo dưỡng các thứ bởi z mấy tiệm sửa xe mọc lên như nấm z e<br>
-;> 
+;> xài con đt hiện tại dư giả thì 2-3 năm đổi ko thì 5-6 năm gì đó e nghèo nữa thì nó lag mới đổi
