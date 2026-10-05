@@ -15,4 +15,6 @@
 ;> nghĩ lại giờ nghèo bùn quá e<br>
 ;> a bùn cả ngày nay<br>
 ;> chắc a múa máy hơn 2 3 củ gì thôi<br>
-;> để coi tháng này a xắp xếp đc ngày nào thì đi chơi vs bạn
+;> để coi tháng này a xắp xếp đc ngày nào thì đi chơi vs bạn<br>
+;> sài gòn hầu như ngày nào cũng mưa mà e<br>
+;> sợ ngập hư xe tốn tiền sữa đang nghèo e
