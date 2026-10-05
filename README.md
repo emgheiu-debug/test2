@@ -11,4 +11,6 @@
 ;> xài con máy cũ z<br>
 ;> tháng này a đi đám người quen <br>
 ;> nghèo mà mời đám tiệc phiền lắm e, ko đi thì cũng kì<br>
-;> 1 tháng mà 3 4 cái đám là chet liền e
+;> 1 tháng mà 3 4 cái đám là chet liền e<br>
+;> nghĩ lại giờ nghèo bùn quá e<br>
+;> a bùn cả ngày nay
