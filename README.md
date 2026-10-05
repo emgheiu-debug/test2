@@ -17,4 +17,7 @@
 ;> chắc a múa máy hơn 2 3 củ gì thôi<br>
 ;> để coi tháng này a xắp xếp đc ngày nào thì đi chơi vs bạn<br>
 ;> sài gòn hầu như ngày nào cũng mưa mà e<br>
-;> sợ ngập hư xe tốn tiền sữa đang nghèo e
+;> sợ ngập hư xe tốn tiền sữa đang nghèo e<br>
+;> ngập nước thì xe cùi xe xịn xe số xe tay ga đều hư thôi e<br>
+;> xe chạy 1 thời gian cũng thay nhớt bảo dưỡng các thứ bởi z mấy tiệm sửa xe mọc lên như nấm z e<br>
+;> 
