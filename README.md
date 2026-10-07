@@ -13,4 +13,6 @@
 ;> ko tiền khổ đủ điều hết e<br>
 ;> có tiền là hư đt thì a mua mới, hư xe thì sửa, hết xăng thì đổ ko vấn đề gì<br>
 ;> đt đồ điện tử nên hạn chế mưa nước va đập này kia e, nó hư màn, đt thì nó chỉ để chỉ số kháng nước ở điều kiện như nào thôi e, chứ ko để là chống nước 100% đâu<br>
-;> chữ "kháng nước" vs "chống nước" nó khác nhau nhìu lắm e
+;> chữ "kháng nước" vs "chống nước" nó khác nhau nhìu lắm e<br>
+;> <img width="362" height="158" alt="image" src="https://github.com/user-attachments/assets/2eb090dc-5aec-4d35-bbd2-9205a0ad21a2" /><br>
+;> chỉ số y như con đt cũ của a
