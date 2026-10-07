@@ -1,10 +1,6 @@
-;> a nhô ghệ iu<br>
-;> nay a vừa làm về đi tập mé xe chất đống lun e, phòng tập gym đông khách ý e<br>
-;> bth nó ko đông thế đâu, chắc gần tết giữ dáng để chơi tết<br>
-;> chủ nhật thì a bận đi đám ròi<br>
-;> có thứ 7 đc về sớm a tập nhìu chút thôi e<br>
-;> thời tiết tốt thì 18 tây 23 tây gì đó a ghé con bạn a chơi, mà dạo này xăng hơi mắc xăng E10 chạy lại mau hết hơn nữa, hơi ngán<br>
-;> để coi năm sau coi có khá ko e<br>
-;> quan trọng là thu nhập hằng tháng e<br>
-;> a vẫn thích tiền mình tự kiếm đc hơn là đc cho<br>
-;> mà nghèo đc cho vẫn hơn là ko có cắc nào e
+;> a nhô e<br>
+;> mấy nay a iu ngủ quên nên hem chúc e ngủ ngon đc<br>
+;> a giờ nghèo mua quần sộp pe bận e<br>
+;> mé quần xịn 5-600k a mua bận hơn 1 năm mà nó muốn mục ròi e, mua ở uniqlo chứ đâu e<br>
+;> a mua đồ rẻ tiền mặc để dành mua này kia xài cho nó sướng e<br>
+;> cứ làm dư để dành thôi e, ko đổi đc job nhìu tiền thì mua xe chữa lành e
