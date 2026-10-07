@@ -12,4 +12,5 @@
 ;> quan trọng là thời tiết nha e<br>
 ;> ko tiền khổ đủ điều hết e<br>
 ;> có tiền là hư đt thì a mua mới, hư xe thì sửa, hết xăng thì đổ ko vấn đề gì<br>
-;> đt đồ điện tử nên hạn chế mưa nước va đập này kia e, nó hư màn, đt thì nó chỉ để chỉ số kháng nước ở điều kiện như nào thôi e, chứ ko để là chống nước 100% đâu
+;> đt đồ điện tử nên hạn chế mưa nước va đập này kia e, nó hư màn, đt thì nó chỉ để chỉ số kháng nước ở điều kiện như nào thôi e, chứ ko để là chống nước 100% đâu<br>
+;> chữ "kháng nước" vs "chống nước" nó khác nhau nhìu lắm e
