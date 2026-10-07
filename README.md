@@ -15,4 +15,7 @@
 ;> đt đồ điện tử nên hạn chế mưa nước va đập này kia e, nó hư màn, đt thì nó chỉ để chỉ số kháng nước ở điều kiện như nào thôi e, chứ ko để là chống nước 100% đâu<br>
 ;> chữ "kháng nước" vs "chống nước" nó khác nhau nhìu lắm e<br>
 ;> <img width="362" height="158" alt="image" src="https://github.com/user-attachments/assets/2eb090dc-5aec-4d35-bbd2-9205a0ad21a2" /><br>
-;> chỉ số y như con đt cũ của a
+;> chỉ số y như con đt cũ của a<br>
+<img width="341" height="190" alt="image" src="https://github.com/user-attachments/assets/f7113eb5-3ef4-4085-9cef-53e6405d4361" /><br>
+;> áo mưa mà mặc đi trời mưa lớn quá là mình cũng ướt đó e<br>
+;> ướt ngay chỗ cái cỗ chảy xuống áo
