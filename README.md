@@ -18,4 +18,6 @@
 ;> chỉ số y như con đt cũ của a<br>
 <img width="341" height="190" alt="image" src="https://github.com/user-attachments/assets/f7113eb5-3ef4-4085-9cef-53e6405d4361" /><br>
 ;> áo mưa mà mặc đi trời mưa lớn quá là mình cũng ướt đó e<br>
-;> ướt ngay chỗ cái cỗ chảy xuống áo
+;> ướt ngay chỗ cái cỗ chảy xuống áo<br>
+;> mưa lâm râm thì chắc ko ướt đâu<br>
+;> trên mạng giờ bịp lắm e, coi hoặc lướt qua chứ đừng tin
