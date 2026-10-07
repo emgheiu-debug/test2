@@ -3,4 +3,7 @@
 ;> a giờ nghèo mua quần sộp pe bận e<br>
 ;> mé quần xịn 5-600k a mua bận hơn 1 năm mà nó muốn mục ròi e, mua ở uniqlo chứ đâu e<br>
 ;> a mua đồ rẻ tiền mặc để dành mua này kia xài cho nó sướng e<br>
-;> cứ làm dư để dành thôi e, ko đổi đc job nhìu tiền thì mua xe chữa lành e
+;> cứ làm dư để dành thôi e, ko đổi đc job nhìu tiền thì mua xe chữa lành e<br>
+;> sài gòn còn vô mùa mưa hem e, hết tháng 11 là hết mùa mưa ròi e<br>
+;> để a coi thời tiết sao ròi a ghé bạn a<br>
+;> a thấy quần áo măc tiền vải nó đẹp hơn thôi e chưa chắc gì nó bền bằng đồ rẻ tiền nữa
