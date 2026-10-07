@@ -21,4 +21,5 @@
 ;> ướt ngay chỗ cái cỗ chảy xuống áo<br>
 ;> mưa lâm râm thì chắc ko ướt đâu<br>
 ;> trên mạng giờ bịp lắm e, coi hoặc lướt qua chứ đừng tin<br>
-;> làm vợ a là đi chung xe đc ôm ấp, ở nhà đc ngủ chung phúc lợi có nhiu đó thôi đó e, hết ròi
+;> làm vợ a là đi chung xe đc ôm ấp, ở nhà đc ngủ chung phúc lợi có nhiu đó thôi đó e, hết ròi<br>
+;> mém xíu ngủ quên ròi e
