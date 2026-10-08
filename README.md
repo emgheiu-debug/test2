@@ -16,4 +16,8 @@
 ;> coi 1 -2 tuần gì hết mưa ko e, thời tiết cũng thất thường vãi<br>
 ;> a còn trẻ mà mần 1-2 năm nữa thì củng có như ngta thôi e<br>
 ;> nếu mà biết chi tiêu, gia đình ko mua cho mình thì mình tự mua, thân mình , mình lo<br>
-;> a làm cũng đâu cho nhà a đồng nào đâu
+;> a làm cũng đâu cho nhà a đồng nào đâu<br>
+;> ưu tiên bản thân mình thôi e, dư giả lắm mới cho<br>
+;> nhìu khi a ngộp tiền gia đình cũng đâu giúp đỡ tài chính gì đâu e<br>
+;> cho nhìu thì có khi mình ngộp tiền lại chẳng có<br>
+;> mà thoải mái tiền bạc lắm mới cho
