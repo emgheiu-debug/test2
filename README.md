@@ -7,4 +7,5 @@
 ;> mỗi ngày a uống 1 ly matcha cách bữa cơm, bớt viêm mũi hẳn e<br>
 ;> ko biết mốt bỏ matcha hẳn có bị lại ko, mà a thấy ổn lắm<br>
 ;> bớt bớt đi ghé ha<br>
-;> 
+;> có tiền a đổi con ba lo khác cho nó gọn để đi đường mà a thì ko có đi đường nhìu e<br>
+;> vấn đề là lương đang thấp thôi e
