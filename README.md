@@ -9,4 +9,5 @@
 ;> bớt bớt đi ghé ha<br>
 ;> có tiền a đổi con ba lo khác cho nó gọn để đi đường mà a thì ko có đi đường nhìu e<br>
 ;> vấn đề là lương đang thấp thôi e<br>
-;> cũng éo dư giả mà chạy còng còng ngoài đường để mua balo, mà xăng lại 28k/lit ròi e
+;> cũng éo dư giả mà chạy còng còng ngoài đường để mua balo, mà xăng lại 28k/lit ròi e<br>
+;> mới giờ a bùn ngủ ròi e
