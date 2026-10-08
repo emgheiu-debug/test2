@@ -4,4 +4,5 @@
 ;> da mặt a cũng hơi xấu<br>
 ;> a sức kem sẹo mụn cho mặt đỡ rổ, mới bị sẹo thì sức liền thì nó hiệu quả chứ sẹo để lâu năm nhìu khi nó ko hiệu quả<br>
 ;> để a coi bớt bớt mưa ngập lụt a ghé bạn a chơi nha e<br>
-;> mỗi ngày a uống 1 ly matcha cách bữa cơm, bớt viêm mũi hẳn e
+;> mỗi ngày a uống 1 ly matcha cách bữa cơm, bớt viêm mũi hẳn e<br>
+;> ko biết mốt bỏ matcha hẳn có bị lại ko, mà a thấy ổn lắm
