@@ -15,4 +15,5 @@
 ;> hèn gì a bùn ngủ quài là z đó e<br>
 ;> coi 1 -2 tuần gì hết mưa ko e, thời tiết cũng thất thường vãi<br>
 ;> a còn trẻ mà mần 1-2 năm nữa thì củng có như ngta thôi e<br>
-;> nếu mà biết chi tiêu, gia đình ko mua cho mình thì mình tự mua, thân mình , mình lo
+;> nếu mà biết chi tiêu, gia đình ko mua cho mình thì mình tự mua, thân mình , mình lo<br>
+;> a làm cũng đâu cho nhà a đồng nào đâu
