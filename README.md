@@ -12,4 +12,5 @@
 ;> cũng éo dư giả mà chạy còng còng ngoài đường để mua balo, mà xăng lại 28k/lit ròi e<br>
 ;> mới giờ a bùn ngủ ròi e<br>
 ;> tối éo có gì coi hết e<br>
-;> hèn gì a bùn ngủ quài là z đó e
+;> hèn gì a bùn ngủ quài là z đó e<br>
+;> coi 1 -2 tuần gì hết mưa ko e, thời tiết cũng thất thường vãi
