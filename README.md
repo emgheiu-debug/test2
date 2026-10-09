@@ -6,4 +6,5 @@
 ;> stress 1 lúc hết stress xong thỉnh thoảng nghĩ lại, lại stress tiếp e<br>
 ;> a giờ cỡ nào cũng phải skinecare trước khi ngủ hết e<br>
 ;> e thấy a làm cty nào mà vui vẻ là cty đó nhìu tiền, phúc lợi tốt làm lâu dài<br>
-;>
+;> để trời nắng nắng đi a ghé sài gòn<br>
+;> mới giờ sao a bùn ngủ quá e
