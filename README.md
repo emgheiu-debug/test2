@@ -9,4 +9,5 @@
 ;> để trời nắng nắng đi a ghé sài gòn<br>
 ;> mới giờ sao a bùn ngủ quá e<br>
 ;> a thì a có nhìu tiền mua món mình thích di chơi du lịch này kia a mới happy đc<br>
-;> a ngủ nhe e, mắt mở hết lên ròi
+;> a ngủ nhe e, mắt mở hết lên ròi<br>
+;> ngủ ngon vợ iu
