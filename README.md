@@ -1,23 +1,3 @@
 ;> a nhô e<br>
-;> mé a nằm xong a ngủ quên lun<br>
-;> ngủ quên tiếc 1 lần skinecare e<br>
-;> da mặt a cũng hơi xấu<br>
-;> a sức kem sẹo mụn cho mặt đỡ rổ, mới bị sẹo thì sức liền thì nó hiệu quả chứ sẹo để lâu năm nhìu khi nó ko hiệu quả<br>
-;> để a coi bớt bớt mưa ngập lụt a ghé bạn a chơi nha e<br>
-;> mỗi ngày a uống 1 ly matcha cách bữa cơm, bớt viêm mũi hẳn e<br>
-;> ko biết mốt bỏ matcha hẳn có bị lại ko, mà a thấy ổn lắm<br>
-;> bớt bớt đi ghé ha<br>
-;> có tiền a đổi con ba lo khác cho nó gọn để đi đường mà a thì ko có đi đường nhìu e<br>
-;> vấn đề là lương đang thấp thôi e<br>
-;> cũng éo dư giả mà chạy còng còng ngoài đường để mua balo, mà xăng lại 28k/lit ròi e<br>
-;> mới giờ a bùn ngủ ròi e<br>
-;> tối éo có gì coi hết e<br>
-;> hèn gì a bùn ngủ quài là z đó e<br>
-;> coi 1 -2 tuần gì hết mưa ko e, thời tiết cũng thất thường vãi<br>
-;> a còn trẻ mà mần 1-2 năm nữa thì củng có như ngta thôi e<br>
-;> nếu mà biết chi tiêu, gia đình ko mua cho mình thì mình tự mua, thân mình , mình lo<br>
-;> a làm cũng đâu cho nhà a đồng nào đâu<br>
-;> ưu tiên bản thân mình thôi e, dư giả lắm mới cho<br>
-;> nhìu khi a ngộp tiền gia đình cũng đâu giúp đỡ tài chính gì đâu e<br>
-;> cho nhìu thì có khi mình ngộp tiền lại chẳng có<br>
-;> mà thoải mái tiền bạc lắm mới cho
+;> a làm ở khu vực ven sài gòn chứ ko ở sài gòn đâu e<br>
+;>
