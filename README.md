@@ -4,4 +4,6 @@
 ;> a mún có 1 đứa con gái mặt giống e<br>
 ;> nhìu lúc nghĩ ko tiền nó stress thật <br>
 ;> stress 1 lúc hết stress xong thỉnh thoảng nghĩ lại, lại stress tiếp e<br>
-;> a giờ cỡ nào cũng phải skinecare trước khi ngủ hết e
+;> a giờ cỡ nào cũng phải skinecare trước khi ngủ hết e<br>
+;> e thấy a làm cty nào mà vui vẻ là cty đó nhìu tiền, phúc lợi tốt làm lâu dài<br>
+;>
