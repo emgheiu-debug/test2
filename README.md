@@ -6,4 +6,8 @@
 ;> mai a bận đi đám tiệc ròi e, về sớm có rảnh thì a nhắn nhe vợ iu<br>
 ;> chạy bộ có chỉnh độ dốc ý e, a vẫn chạy số cây như bth ko có bù gì hết mà mỏi giò vãi<br>
 ;> nãy giờ a iu lu xu bu xíu e<br>
-;> sài gòn còn ngập ko e
+;> sài gòn còn ngập ko e<br>
+;> nào bớt ngập đi a ghé <br>
+;> e mún có mấy con<br>
+;> theo a thì tùy vào túi tiền của mình nữa e à<br>
+;>
