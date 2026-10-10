@@ -10,4 +10,5 @@
 ;> nào bớt ngập đi a ghé <br>
 ;> e mún có mấy con<br>
 ;> theo a thì tùy vào túi tiền của mình nữa e à<br>
-;>
+;> chắc ở chung nhà mạnh ai nấy ngủ, khác múi giờ e<br>
+;> a 11-12h ngủ còn e 2-3h ngủ
