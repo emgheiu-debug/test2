@@ -3,4 +3,5 @@
 ;> đi trễ là éo có máy chạy lun<br>
 ;> nay a chạy đúng cái máy chỉnh đc độ nghiệng, mà a thấy chạy nghiêng nó mỏi hơn<br>
 ;> chạy giờ mỏi giò ghê e<br>
-;> mai a bận đi đám tiệc ròi e, về sớm có rảnh thì a nhắn nhe vợ iu
+;> mai a bận đi đám tiệc ròi e, về sớm có rảnh thì a nhắn nhe vợ iu<br>
+;> chạy bộ có chỉnh độ dốc ý e, a vẫn chạy số cây như bth ko có bù gì hết mà mỏi giò vãi
