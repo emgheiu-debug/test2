@@ -8,4 +8,6 @@
 ;> có web hoàn cao hơn nhìu mà hoàn mỗi shoppe mà a mua đồ tiktok mà<br>
 ;> kệ kiếm tí tiền đồ xăng cũng đc e<br>
 ;> mò hủy ròi đặt riết thg tiktok tắt nhận tiền mặt khi mua hàng lun e, bắt chuyển khoản trước vl<br>
-;> tiktok quét kinh thật e
+;> tiktok quét kinh thật e<br>
+;> mò từ 169k xong tự dưng tiktok giảm còn 139k =)))<br>
+;> thời buổi giờ khó kiếm tiền mình ko có kiếm đc nhìu nên cân đo chi tiêu rất mệt óc e
