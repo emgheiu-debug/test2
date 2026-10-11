@@ -14,4 +14,4 @@
 ;> đi ăn mà có món tôm a lột cho e ăn chịu hem<br>
 ;> e nghe bài gái tây gốc việt chưa, hay ý e, a thích nhạc trẻ sôi động như z<br>
 ;> lâu lâu có tiệc a mới uống bia chứ bth quanh năm a chả uống bia nữa<br>
-;>
+;> a đi đám về a lu xu xíu thôi mà e
