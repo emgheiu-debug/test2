@@ -14,4 +14,6 @@
 ;> đi ăn mà có món tôm a lột cho e ăn chịu hem<br>
 ;> e nghe bài gái tây gốc việt chưa, hay ý e, a thích nhạc trẻ sôi động như z<br>
 ;> lâu lâu có tiệc a mới uống bia chứ bth quanh năm a chả uống bia nữa<br>
-;> a đi đám về a lu xu xíu thôi mà e
+;> a đi đám về a lu xu xíu thôi mà e<br>
+;> a gom đồ đi giặt máy giặt, đc thì chắc 1 tuần a chạy bộ 2 lần<br>
+;> a mới đặt mua 2 cái quần để chạy bộ mặc đi làm cũng đc
