@@ -20,4 +20,6 @@
 <img width="150" height="300" alt="image" src="https://github.com/user-attachments/assets/d59b9ae6-7880-42eb-ad01-12a76c815efd" /><br>
 ;> a về a mò cái app này coi sao, nghe nói chuyển tiền thật đó e<br>
 ;> mua nhìu thì xài nó cũng lợi e, mà mua ít thì ko đáng kể<br>
-;> giờ a để dành tiền đi chơi vs bạn vs mua đồ tết nữa, mua ít cái áo quần gì đó
+;> giờ a để dành tiền đi chơi vs bạn vs mua đồ tết nữa, mua ít cái áo quần gì đó<br>
+;> a mới đặt mua cái máy rửa mặt cũng oke e, tại máy cũ nó bị rụng lông do lâu quá cũ quá nên a đổi<br>
+;> 
