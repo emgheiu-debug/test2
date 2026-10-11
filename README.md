@@ -19,4 +19,5 @@
 ;> a mới đặt mua 2 cái quần để chạy bộ mặc đi làm cũng đc<br>
 <img width="150" height="300" alt="image" src="https://github.com/user-attachments/assets/d59b9ae6-7880-42eb-ad01-12a76c815efd" /><br>
 ;> a về a mò cái app này coi sao, nghe nói chuyển tiền thật đó e<br>
-;> mua nhìu thì xài nó cũng lợi e, mà mua ít thì ko đáng kể
+;> mua nhìu thì xài nó cũng lợi e, mà mua ít thì ko đáng kể<br>
+;> giờ a để dành tiền đi chơi vs bạn vs mua đồ tết nữa, mua ít cái áo quần gì đó
