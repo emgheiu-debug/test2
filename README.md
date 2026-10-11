@@ -16,4 +16,6 @@
 ;> lâu lâu có tiệc a mới uống bia chứ bth quanh năm a chả uống bia nữa<br>
 ;> a đi đám về a lu xu xíu thôi mà e<br>
 ;> a gom đồ đi giặt máy giặt, đc thì chắc 1 tuần a chạy bộ 2 lần<br>
-;> a mới đặt mua 2 cái quần để chạy bộ mặc đi làm cũng đc
+;> a mới đặt mua 2 cái quần để chạy bộ mặc đi làm cũng đc<br>
+<img width="150" height="300" alt="image" src="https://github.com/user-attachments/assets/d59b9ae6-7880-42eb-ad01-12a76c815efd" /><br>
+;> a về a mò cái app này coi sao, nghe nói chuyển tiền thật đó e
