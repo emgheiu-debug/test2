@@ -22,4 +22,4 @@
 ;> mua nhìu thì xài nó cũng lợi e, mà mua ít thì ko đáng kể<br>
 ;> giờ a để dành tiền đi chơi vs bạn vs mua đồ tết nữa, mua ít cái áo quần gì đó<br>
 ;> a mới đặt mua cái máy rửa mặt cũng oke e, tại máy cũ nó bị rụng lông do lâu quá cũ quá nên a đổi<br>
-;> 
+;> dạo này a hết ăn tiệm ròi, ăn ngoài quài ngán vs bị chán ý e, vs lười đi nữa
