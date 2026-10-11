@@ -12,4 +12,6 @@
 ;> mò từ 169k xong tự dưng tiktok giảm còn 139k =)))<br>
 ;> thời buổi giờ khó kiếm tiền mình ko có kiếm đc nhìu nên cân đo chi tiêu rất mệt óc e<br>
 ;> đi ăn mà có món tôm a lột cho e ăn chịu hem<br>
-;> e nghe bài gái tây gốc việt chưa, hay ý e, a thích nhạc trẻ sôi động như z
+;> e nghe bài gái tây gốc việt chưa, hay ý e, a thích nhạc trẻ sôi động như z<br>
+;> lâu lâu có tiệc a mới uống bia chứ bth quanh năm a chả uống bia nữa<br>
+;>
