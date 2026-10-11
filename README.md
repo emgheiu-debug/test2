@@ -7,4 +7,5 @@
 ;> mua 270k đc hoàn 10.7k <br>
 ;> có web hoàn cao hơn nhìu mà hoàn mỗi shoppe mà a mua đồ tiktok mà<br>
 ;> kệ kiếm tí tiền đồ xăng cũng đc e<br>
-;> mò hủy ròi đặt riết thg tiktok tắt nhận tiền mặt khi mua hàng lun e, bắt chuyển khoản trước vl
+;> mò hủy ròi đặt riết thg tiktok tắt nhận tiền mặt khi mua hàng lun e, bắt chuyển khoản trước vl<br>
+;> tiktok quét kinh thật e
