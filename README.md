@@ -6,4 +6,5 @@
 ;> chứ bth a hem có nấu<br>
 ;> vợ a cũng học nấu ăn dần đi<br>
 ;> a thích làm mấy món a ưa ăn vs đơn giản thôi, chứ cầu kì quá lại lười<br>
-;> body e ngon hem mà đòi khỏa thân cho a nhìn =)))
+;> body e ngon hem mà đòi khỏa thân cho a nhìn =)))<br>
+;> e là a mới nhắn tin 1 2 tháng là e nungfd gòi
