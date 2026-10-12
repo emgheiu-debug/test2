@@ -4,4 +4,5 @@
 ;> a lu xu bu xíu e, nay a uống trà nên giờ khó ngủ<br>
 ;> a thì lâu lâu mới nấu ăn thôi e<br>
 ;> chứ bth a hem có nấu<br>
-;> vợ a cũng học nấu ăn dần đi
+;> vợ a cũng học nấu ăn dần đi<br>
+;> a thích làm mấy món a ưa ăn vs đơn giản thôi, chứ cầu kì quá lại lười
