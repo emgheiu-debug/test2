@@ -3,4 +3,5 @@
 ;> sài gòn còn ngập ko e<br>
 ;> a lu xu bu xíu e, nay a uống trà nên giờ khó ngủ<br>
 ;> a thì lâu lâu mới nấu ăn thôi e<br>
-;> chứ bth a hem có nấu
+;> chứ bth a hem có nấu<br>
+;> vợ a cũng học nấu ăn dần đi
