@@ -8,4 +8,6 @@
 ;> làm lương thấp như a thì mua đồ góp thôi e<br>
 ;> làm chỗ này vài năm nữa thì a vừa già vừa nghèo<br>
 ;> a đi tắm đã giờ a bùn ngủ quá ròi e<br>
-;> nghèo bùn quá e
+;> nghèo bùn quá e<br>
+;> làm chỗ này quài mốt a vs e ko có gặp nhau đc dẫn đến ctay =)))<br>
+;> 
