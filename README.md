@@ -10,4 +10,4 @@
 ;> a đi tắm đã giờ a bùn ngủ quá ròi e<br>
 ;> nghèo bùn quá e<br>
 ;> làm chỗ này quài mốt a vs e ko có gặp nhau đc dẫn đến ctay =)))<br>
-;> 
+;> a để dành tiền coi bớt bớt mua ghé bạn a chơi
