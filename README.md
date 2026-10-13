@@ -12,4 +12,5 @@
 ;> làm chỗ này quài mốt a vs e ko có gặp nhau đc dẫn đến ctay =)))<br>
 ;> a để dành tiền coi bớt bớt mua ghé bạn a chơi<br>
 ;> a nghĩ làm chỗ này là tình cảm mình vô giai đoạn mới thì sao e<br>
-;> 
+;> khuya ròi ngủ đi e, ngủ ngon e<br>
+;> để a đi chùa van vái coi sao =))), mà thấy éo hiệu quả lắm, hay chưa tới thời điểm 
