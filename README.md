@@ -6,4 +6,5 @@
 ;> mua trước thì mình lựa chỗ rẻ đc<br>
 ;> chỗ rẻ thì a thấy chính sách trả góp 0% nó ko đc tốt<br>
 ;> làm lương thấp như a thì mua đồ góp thôi e<br>
-;> làm chỗ này vài năm nữa thì a vừa già vừa nghèo
+;> làm chỗ này vài năm nữa thì a vừa già vừa nghèo<br>
+;> a đi tắm đã giờ a bùn ngủ quá ròi e
