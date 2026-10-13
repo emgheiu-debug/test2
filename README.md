@@ -5,4 +5,5 @@
 ;> tính ra mất tầm 500k mà mình xài trước vài tháng vs tài chính cũng nhẹ hơn e<br>
 ;> mua trước thì mình lựa chỗ rẻ đc<br>
 ;> chỗ rẻ thì a thấy chính sách trả góp 0% nó ko đc tốt<br>
-;> làm lương thấp như a thì mua đồ góp thôi e
+;> làm lương thấp như a thì mua đồ góp thôi e<br>
+;> làm chỗ này vài năm nữa thì a vừa già vừa nghèo
