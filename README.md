@@ -15,4 +15,5 @@
 ;> nói chung thì iu xa thì chịu khó xíu e<br>
 ;> e nữa làm vợ a, a nắc từ sáng tới chiều, ngày nào cũng nắc hết, tới tháng cũng nắc lun, 1 năm 365 này nắc hết 365 ngày lun<br>
 ;> hôm nào đi du lịch riêng thì nắc nhìu nữa e, đi chơi là phụ nắc là 9<br>
-;> hôm nào có siro dâu cũng nắc lun e
+;> hôm nào có siro dâu cũng nắc lun e<br>
+;> nói z chứ e trần truồng 365 ngày ròi tại gì mặc hồi cũng lột ra à mặc chi e
