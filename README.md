@@ -5,4 +5,5 @@
 ;> giờ a chưa có nhu cầu mua gì hết mua đủ ròi e<br>
 ;> bữa a đặt cái máy rửa mặt tím <img width="278" height="319" alt="image" src="https://github.com/user-attachments/assets/93740a7d-0527-4566-9d73-cc7c85363fd8" /><br>
 ;> mua về xài thay máy cũ e, máy cũ a mua bị rụng lông ròi do lâu quá<br>
-;> xài cho đẹp da e =)))
+;> xài cho đẹp da e =)))<br>
+;> z chứ mặt a cũng mụn à, chắc do cơ địa
