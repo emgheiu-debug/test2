@@ -8,4 +8,6 @@
 ;> xài cho đẹp da e =)))<br>
 ;> z chứ mặt a cũng mụn à, chắc do cơ địa<br>
 ;> có tiền a mua máy có đèn laze xài coi có chống lão hóa ko<br>
-;> a tắm rửa xíu a nhắn nhe e
+;> a tắm rửa xíu a nhắn nhe e<br>
+;> đợi a tháng sau nhe e, coi sài gòn bớt ngập chưa<br>
+;> mé a đổ 50k mà chạy 3 ngày hết mịa xăng bth chạy 5 ngày lận e
