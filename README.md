@@ -3,4 +3,6 @@
 ;> ốp chống ố vàng, éo biết có chống ố vàng thật ko<br>
 ;> nhìu ng, ngta mua 1 cái iphone mà cả chục cái ốp lận e, a z là ít ròi, a có 3 cái tính lun cái mới đặt<br>
 ;> giờ a chưa có nhu cầu mua gì hết mua đủ ròi e<br>
-;>
+;> bữa a đặt cái máy rửa mặt tím <img width="278" height="319" alt="image" src="https://github.com/user-attachments/assets/93740a7d-0527-4566-9d73-cc7c85363fd8" /><br>
+;> mua về xài thay máy cũ e, máy cũ a mua bị rụng lông ròi do lâu quá<br>
+;> xài cho đẹp da e =)))
