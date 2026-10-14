@@ -10,4 +10,5 @@
 ;> có tiền a mua máy có đèn laze xài coi có chống lão hóa ko<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
 ;> đợi a tháng sau nhe e, coi sài gòn bớt ngập chưa<br>
-;> mé a đổ 50k mà chạy 3 ngày hết mịa xăng bth chạy 5 ngày lận e
+;> mé a đổ 50k mà chạy 3 ngày hết mịa xăng bth chạy 5 ngày lận e<br>
+;> ghệ răm a nungfg đều đều lun chứ gì
