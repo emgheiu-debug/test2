@@ -14,4 +14,4 @@
 ;> ghệ răm a nungfg đều đều lun chứ gì<br>
 ;> nói chung thì iu xa thì chịu khó xíu e<br>
 ;> e nữa làm vợ a, a nắc từ sáng tới chiều, ngày nào cũng nắc hết, tới tháng cũng nắc lun, 1 năm 365 này nắc hết 365 ngày lun<br>
-;> 
+;> hôm nào đi du lịch riêng thì nắc nhìu nữa e
