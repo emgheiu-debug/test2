@@ -7,4 +7,5 @@
 ;> mua về xài thay máy cũ e, máy cũ a mua bị rụng lông ròi do lâu quá<br>
 ;> xài cho đẹp da e =)))<br>
 ;> z chứ mặt a cũng mụn à, chắc do cơ địa<br>
-;> có tiền a mua máy có đèn laze xài coi có chống lão hóa ko
+;> có tiền a mua máy có đèn laze xài coi có chống lão hóa ko<br>
+;> a tắm rửa xíu a nhắn nhe e
