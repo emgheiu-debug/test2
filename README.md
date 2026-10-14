@@ -11,4 +11,5 @@
 ;> a tắm rửa xíu a nhắn nhe e<br>
 ;> đợi a tháng sau nhe e, coi sài gòn bớt ngập chưa<br>
 ;> mé a đổ 50k mà chạy 3 ngày hết mịa xăng bth chạy 5 ngày lận e<br>
-;> ghệ răm a nungfg đều đều lun chứ gì
+;> ghệ răm a nungfg đều đều lun chứ gì<br>
+;> nói chung thì iu xa thì chịu khó xíu e
