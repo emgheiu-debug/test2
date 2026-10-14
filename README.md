@@ -16,4 +16,7 @@
 ;> e nữa làm vợ a, a nắc từ sáng tới chiều, ngày nào cũng nắc hết, tới tháng cũng nắc lun, 1 năm 365 này nắc hết 365 ngày lun<br>
 ;> hôm nào đi du lịch riêng thì nắc nhìu nữa e, đi chơi là phụ nắc là 9<br>
 ;> hôm nào có siro dâu cũng nắc lun e<br>
-;> nói z chứ e trần truồng 365 ngày ròi tại gì mặc hồi cũng lột ra à mặc chi e
+;> nói z chứ e trần truồng 365 ngày ròi tại gì mặc hồi cũng lột ra à mặc chi e<br>
+;> nảy giờ nói chơi thôi, chắc e nghe khoái gần chet<br>
+=))) e nghiện mà ngại gì<br>
+;> khuya ròi chồng iu ngủ nhe e, bùn ngủ ròi
