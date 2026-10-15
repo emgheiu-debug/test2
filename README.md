@@ -3,3 +3,4 @@
 ;> mới mua hàng real nè e<br>
 ;> mua về tải app xong kết nối đăng kí bảo hành ròi e<br>
 ;> đc tặng cái túi e<br>
+;> cam iphone 17 pro nó như z đó e
