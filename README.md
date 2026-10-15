@@ -1,22 +1,4 @@
 ;> a nhô e<br>
-;> nay a mới đặt cái ốp 300k<br>
-;> ốp chống ố vàng, éo biết có chống ố vàng thật ko<br>
-;> nhìu ng, ngta mua 1 cái iphone mà cả chục cái ốp lận e, a z là ít ròi, a có 3 cái tính lun cái mới đặt<br>
-;> giờ a chưa có nhu cầu mua gì hết mua đủ ròi e<br>
-;> bữa a đặt cái máy rửa mặt tím <img width="278" height="319" alt="image" src="https://github.com/user-attachments/assets/93740a7d-0527-4566-9d73-cc7c85363fd8" /><br>
-;> mua về xài thay máy cũ e, máy cũ a mua bị rụng lông ròi do lâu quá<br>
-;> xài cho đẹp da e =)))<br>
-;> z chứ mặt a cũng mụn à, chắc do cơ địa<br>
-;> có tiền a mua máy có đèn laze xài coi có chống lão hóa ko<br>
-;> a tắm rửa xíu a nhắn nhe e<br>
-;> đợi a tháng sau nhe e, coi sài gòn bớt ngập chưa<br>
-;> mé a đổ 50k mà chạy 3 ngày hết mịa xăng bth chạy 5 ngày lận e<br>
-;> ghệ răm a nungfg đều đều lun chứ gì<br>
-;> nói chung thì iu xa thì chịu khó xíu e<br>
-;> e nữa làm vợ a, a nắc từ sáng tới chiều, ngày nào cũng nắc hết, tới tháng cũng nắc lun, 1 năm 365 này nắc hết 365 ngày lun<br>
-;> hôm nào đi du lịch riêng thì nắc nhìu nữa e, đi chơi là phụ nắc là 9<br>
-;> hôm nào có siro dâu cũng nắc lun e<br>
-;> nói z chứ e trần truồng 365 ngày ròi tại gì mặc hồi cũng lột ra à mặc chi e<br>
-;> nảy giờ nói chơi thôi, chắc e nghe khoái gần chet<br>
-=))) e nghiện mà ngại gì<br>
-;> khuya ròi chồng iu ngủ nhe e, bùn ngủ ròi
+;> <img width="1671" height="2560" alt="1792071274192_355417292016876579_8312341677704101526_989c259aca6fa1fa4031b1a3ca9c0e25" src="https://github.com/user-attachments/assets/dc02e3e0-7d89-41de-b838-c1f499f60d6b" /><br>
+;> mới mua hàng real nè e<br>
+;> mua về tải app xong kết nối đăng kí bảo hành ròi e
