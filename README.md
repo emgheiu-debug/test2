@@ -3,4 +3,6 @@
 ;> mới mua hàng real nè e<br>
 ;> mua về tải app xong kết nối đăng kí bảo hành ròi e<br>
 ;> đc tặng cái túi e<br>
-;> cam iphone 17 pro nó như z đó e
+;> cam iphone 17 pro nó như z đó e<br>
+;> z nó vừa tiền ròi e, 2 củ<br>
+;> a săn sale mới đc 2 củ đó, chứ tầm 2.4 củ 2.8 củ gì đó
