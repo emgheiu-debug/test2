@@ -7,4 +7,5 @@
 ;> z nó vừa tiền ròi e, 2 củ<br>
 ;> a săn sale mới đc 2 củ đó, chứ tầm 2.4 củ 2.8 củ gì đó<br>
 <img width="1206" height="2622" alt="1792071971652_355417292016876579_8312341677704101526_09da506e6102135ddccc9aaa0e182b5b" src="https://github.com/user-attachments/assets/38ab1401-818b-41e0-896a-7b25be8eef3f" /><br>
-;> a mua sộp pe cũng uy tín e
+;> a mua sộp pe cũng uy tín e<br>
+;> giờ chỉ còn tiền để ăn thôi e, lếch đến cuối tháng đc
