@@ -1,4 +1,3 @@
-;> mấy nay e có nungfg hem vợ<br>
-;> sài gòn còn ngập ko e, để a ghé<br>
-;> z để tháng sau a ghé nhe e<br>
-;> vợ a biết nấu canh gì hem
+;> a nhô e<br>
+;> giờ nghèo nghĩ lại cũng thấy bùn mà ko làm gì khác đc e<br>
+;>
