@@ -6,4 +6,5 @@
 ;> a iu đi tắm để ngủ quên<br>
 ;> chủ nhật thường thì vợ iu a ở nhà làm gì e<br>
 ;> mai a đi chạy bộ nữa<br>
-;> 
+;> hong có gì coi hết e<br>
+;> mai a đi chạy bộ thôi chứ hem đi đâu hết
