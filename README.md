@@ -11,4 +11,5 @@
 ;> thấy spam đồ ăn mà a lười đi xa<br>
 ;> mua hàu vs sò lông nướng ăn cũng vui e<br>
 ;> mà hơi lười<br>
-;> mai a iu hem bận gì thì a nhắn nhe e
+;> mai a iu hem bận gì thì a nhắn nhe e<br>
+;> e làm vợ a thì tối ôm nhau nằm bấm đt chill chill z là đc ròi e
