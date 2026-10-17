@@ -8,4 +8,6 @@
 ;> mai a đi chạy bộ nữa<br>
 ;> hong có gì coi hết e<br>
 ;> mai a đi chạy bộ thôi chứ hem đi đâu hết<br>
-;> thấy spam đồ ăn mà a lười đi xa
+;> thấy spam đồ ăn mà a lười đi xa<br>
+;> mua hàu vs sò lông nướng ăn cũng vui e<br>
+;> mà hơi lười
