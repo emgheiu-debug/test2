@@ -14,4 +14,5 @@
 ;> vật chất quyết định ý thức mà e<br>
 ;> e học làm bò né + dĩa rau trộn là oke<br>
 ;> bữa mua ốp iphone mà ốp vô cũng đẹp đến nổi mà tụi làm chung nó ganh tị lun<br>
-;> nó chỉ nghĩ là mua iphone đời cao thì kiểu gì cũng rớt giá ko có gì mới để an ủi bản thân xong thấy đẹp quá mà ko có nên đâm ra ganh tị
+;> nó chỉ nghĩ là mua iphone đời cao thì kiểu gì cũng rớt giá ko có gì mới để an ủi bản thân xong thấy đẹp quá mà ko có nên đâm ra ganh tị<br>
+;> a mua ốp 300k xong ốp vào hơi cứng + trơn mà nó đẹp e
