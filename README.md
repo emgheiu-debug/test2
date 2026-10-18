@@ -19,4 +19,6 @@
 ;> định mua ốp 350k tại thấy nó đẹp hơn mà ko hủy đơn đc nên lấy ốp hiện tại<br>
 ;> kiểu nó làm họa tiết đẹp hơn thôi e<br>
 <img width="182" height="217" alt="image" src="https://github.com/user-attachments/assets/b6b919e1-bef4-4864-a9ca-963789ebd3b5" /><br>
-;> ốp như này nè e, mà fake thôi
+;> ốp như này nè e, mà fake thôi<br>
+;> real 1.2 củ fake 350k<br>
+;> tay a hơi ra mồ hơi mà sợ hơi trơn
