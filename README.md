@@ -31,4 +31,5 @@
 ;> a iu đi tắm xíu a nhắn<br>
 ;> trưa a ngủ ròi mà giờ bùn ngủ nữa<br>
 ;> ngày nào a cũng skinecare mà mặt vẫn mụn e<br>
-;> bỏ phế chắc mặt rổ lun
+;> bỏ phế chắc mặt rổ lun<br>
+;> ốp trơn quá a tháo ra ròi, cầm mắc công rớt
