@@ -32,4 +32,5 @@
 ;> trưa a ngủ ròi mà giờ bùn ngủ nữa<br>
 ;> ngày nào a cũng skinecare mà mặt vẫn mụn e<br>
 ;> bỏ phế chắc mặt rổ lun<br>
-;> ốp trơn quá a tháo ra ròi, cầm mắc công rớt
+;> ốp trơn quá a tháo ra ròi, cầm mắc công rớt<br>
+;> lâu lâu đổi ốp qua lại thôi e
