@@ -9,4 +9,7 @@
 ;> vợ a học làm bò né đi, a thích ăn bò né á<br>
 ;> đi làm T7 e biết đc cái gì e, là đỡ xài tiền, ở ko hay xài tiền lắm e<br>
 ;> hôm nay a xài tính lun xăng là 120k đi<br>
-;>
+;> nghèo mà e<br>
+;> tại nghèo nên a cũng khá keo =)))<br>
+;> vật chất quyết định ý thức mà e<br>
+;> e học làm bò né + dĩa rau trộn là oke
