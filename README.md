@@ -33,4 +33,5 @@
 ;> ngày nào a cũng skinecare mà mặt vẫn mụn e<br>
 ;> bỏ phế chắc mặt rổ lun<br>
 ;> ốp trơn quá a tháo ra ròi, cầm mắc công rớt<br>
-;> lâu lâu đổi ốp qua lại thôi e
+;> lâu lâu đổi ốp qua lại thôi e<br>
+;> trơn rớt là toang
