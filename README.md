@@ -29,4 +29,6 @@
 ;> xưa đi học thì chia đôi mỗi người 50 50 tại con chung mà e<br>
 ;> có tiền thì tự mình lo mình thôi e làm 10 triệu thì nói làm 6-7 triệu thôi để đỡ bị xin xỏ<br>
 ;> a iu đi tắm xíu a nhắn<br>
-;> trưa a ngủ ròi mà giờ bùn ngủ nữa
+;> trưa a ngủ ròi mà giờ bùn ngủ nữa<br>
+;> ngày nào a cũng skinecare mà mặt vẫn mụn e<br>
+;> bỏ phế chắc mặt rổ lun
