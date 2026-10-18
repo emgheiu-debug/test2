@@ -24,4 +24,7 @@
 ;> tay a hơi ra mồ hơi mà sợ hơi trơn<br>
 ;> cỡ tháng sau coi hết mưa chưa a đi chơi vs bạn, sẵn mua con gà về ăn<br>
 ;> gà nướng pleiku gì ở bình tân tân bình gì ý e<br>
-;> gà ngon
+;> gà ngon<br>
+;> ông bà già a thì già cả ròi ko phụ giúp tài chính gì đc đâu e, chủ yếu là tự thân vận động tự lo<br>
+;> xưa đi học thì chia đôi mỗi người 50 50 tại con chung mà e<br>
+;> có tiền thì tự mình lo mình thôi e làm 10 triệu thì nói làm 6-7 triệu thôi để đỡ bị xin xỏ
