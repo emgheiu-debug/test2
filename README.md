@@ -15,4 +15,6 @@
 ;> e học làm bò né + dĩa rau trộn là oke<br>
 ;> bữa mua ốp iphone mà ốp vô cũng đẹp đến nổi mà tụi làm chung nó ganh tị lun<br>
 ;> nó chỉ nghĩ là mua iphone đời cao thì kiểu gì cũng rớt giá ko có gì mới để an ủi bản thân xong thấy đẹp quá mà ko có nên đâm ra ganh tị<br>
-;> a mua ốp 300k xong ốp vào hơi cứng + trơn mà nó đẹp e
+;> a mua ốp 300k xong ốp vào hơi cứng + trơn mà nó đẹp e<br>
+;> định mua ốp 350k tại thấy nó đẹp hơn mà ko hủy đơn đc nên lấy ốp hiện tại<br>
+;> kiểu nó làm họa tiết đẹp hơn thôi e
