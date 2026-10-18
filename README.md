@@ -28,4 +28,5 @@
 ;> ông bà già a thì già cả ròi ko phụ giúp tài chính gì đc đâu e, chủ yếu là tự thân vận động tự lo<br>
 ;> xưa đi học thì chia đôi mỗi người 50 50 tại con chung mà e<br>
 ;> có tiền thì tự mình lo mình thôi e làm 10 triệu thì nói làm 6-7 triệu thôi để đỡ bị xin xỏ<br>
-;> a iu đi tắm xíu a nhắn
+;> a iu đi tắm xíu a nhắn<br>
+;> trưa a ngủ ròi mà giờ bùn ngủ nữa
