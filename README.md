@@ -21,4 +21,7 @@
 <img width="182" height="217" alt="image" src="https://github.com/user-attachments/assets/b6b919e1-bef4-4864-a9ca-963789ebd3b5" /><br>
 ;> ốp như này nè e, mà fake thôi<br>
 ;> real 1.2 củ fake 350k<br>
-;> tay a hơi ra mồ hơi mà sợ hơi trơn
+;> tay a hơi ra mồ hơi mà sợ hơi trơn<br>
+;> cỡ tháng sau coi hết mưa chưa a đi chơi vs bạn, sẵn mua con gà về ăn<br>
+;> gà nướng pleiku gì ở bình tân tân bình gì ý e<br>
+;> gà ngon
