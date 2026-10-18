@@ -34,4 +34,5 @@
 ;> bỏ phế chắc mặt rổ lun<br>
 ;> ốp trơn quá a tháo ra ròi, cầm mắc công rớt<br>
 ;> lâu lâu đổi ốp qua lại thôi e<br>
-;> trơn rớt là toang
+;> trơn rớt là toang<br>
+;> mua 1 cái đt mà nhìu cái ốp, nhìu ng như z trong đó có a =)))
