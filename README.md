@@ -17,4 +17,6 @@
 ;> nó chỉ nghĩ là mua iphone đời cao thì kiểu gì cũng rớt giá ko có gì mới để an ủi bản thân xong thấy đẹp quá mà ko có nên đâm ra ganh tị<br>
 ;> a mua ốp 300k xong ốp vào hơi cứng + trơn mà nó đẹp e<br>
 ;> định mua ốp 350k tại thấy nó đẹp hơn mà ko hủy đơn đc nên lấy ốp hiện tại<br>
-;> kiểu nó làm họa tiết đẹp hơn thôi e
+;> kiểu nó làm họa tiết đẹp hơn thôi e<br>
+<img width="182" height="217" alt="image" src="https://github.com/user-attachments/assets/b6b919e1-bef4-4864-a9ca-963789ebd3b5" /><br>
+;> ốp như này nè e, mà fake thôi
