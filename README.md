@@ -1,3 +1,5 @@
 ;> a nhô e<br>
-;> nãy giờ a iu lu bu xíu<br>
-;> mấy bữa nay a mún bệnh ròi e
+;> a uống thuốc vô giờ bùn ngủ quá e<br>
+;> a cảm mấy bữa nay ròi e<br>
+;> uống thuốc vô giờ bùn ngủ quá nè e<br>
+;> 20/10 vui vẻ nhe e, hẹn tháng sau gặp đc gặp nhe e
