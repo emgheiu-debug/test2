@@ -28,4 +28,6 @@
 ;> sạc dự phòng sài ngon phếch e<br>
 ;> thay cho cục cũ đang hư ở nhà<br>
 ;> cục cũ mẹ mua cho 500k xài từ 2018 tới 2026 mới dục e<br>
-;> a mún có nhìu tiền để xài tích lũy cho bằng ngta, chứ tiền ít xài cân đo đong đếm nhức đầu
+;> a mún có nhìu tiền để xài tích lũy cho bằng ngta, chứ tiền ít xài cân đo đong đếm nhức đầu<br>
+;> vắt cực khô lun e<br>
+;> ốp techwoven iphone 18 thì màu nó lợt hơn iphone 17 hen e
