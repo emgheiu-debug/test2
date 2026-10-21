@@ -12,4 +12,6 @@
 ;> ốp trơn dễ rớt ý e<br>
 ;> để a suy nghĩ coi mua thì vẫn có khả năng<br>
 ;> mua góp thì lỗ 334k mỗi tháng 127k =)))<br>
-;> mua góp để có trước cũng đc e, mà làm biếng nhớ mỗi tháng góp
+;> mua góp để có trước cũng đc e, mà làm biếng nhớ mỗi tháng góp<br>
+;> mỗi tháng bớt ăn chút trích ra 127k<br>
+;> ko tiền mệt đầu ý e
