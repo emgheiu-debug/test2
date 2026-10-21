@@ -15,4 +15,6 @@
 ;> a lubu xíu a nhắn nhe e<br>
 ;> a thấy tiktok rác ko à e<br>
 ;> nể đứa nào ngày nào cũng spam thật e =)))<br>
-;> ngày nào cũng spam mà ko đầu độc đc ai hết vì coi 0.1 giây là ngta lướt =)))
+;> ngày nào cũng spam mà ko đầu độc đc ai hết vì coi 0.1 giây là ngta lướt =)))<br>
+;> khuya ròi ngủ đi vợ iu<br>
+;> mai nhắn e
