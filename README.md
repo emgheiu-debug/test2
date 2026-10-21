@@ -19,4 +19,5 @@
 ;> nghèo mà sài sang e =)))<br>
 ;> tháng sau a định ghé bạn a chơi, ròi đổ nhớ xe<br>
 ;> xe cùi thì vẫn phải thay nhớt chứ e<br>
-;> mua thì vẫn đc mà mấy tháng mua thì nó hợp lý hơn
+;> mua thì vẫn đc mà mấy tháng mua thì nó hợp lý hơn<br>
+;> còn tầm hơn 3 tháng là tết ta ròi e
