@@ -9,4 +9,5 @@
 ;> ốp vải cầm ko bị trơn tay, tại tay a mồ hôi<br>
 ;> xài ốp trong dẻo thì vàng<br>
 ;> mà loại ko vàng thì lại trơn, cầm ít bữa xuống đất<br>
-;> ốp trơn dễ rớt ý e
+;> ốp trơn dễ rớt ý e<br>
+;> để a suy nghĩ coi mua thì vẫn có khả năng
