@@ -12,4 +12,7 @@
 ;> a mún có nhìu tiền để xài tích lũy cho bằng ngta, chứ tiền ít xài cân đo đong đếm nhức đầu<br>
 ;> vắt cực khô lun e<br>
 ;> ốp techwoven iphone 18 thì màu nó lợt hơn iphone 17 hen e<br>
-;> a lubu xíu a nhắn nhe e
+;> a lubu xíu a nhắn nhe e<br>
+;> a thấy tiktok rác ko à e<br>
+;> nể đứa nào ngày nào cũng spam thật e =)))<br>
+;> ngày nào cũng spam mà ko đầu độc đc ai hết vì coi 0.1 giây là ngta lướt =)))
