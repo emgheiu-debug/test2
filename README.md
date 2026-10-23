@@ -5,4 +5,6 @@
 ;> nghèo mà đi làm thì cũng đâu có vui vẻ gì đâu e, như a chẳng hạn<br>
 ;> ngày nào đi làm a cũng nghĩ tới tiền hết e<br>
 ;> nên a ko cảm thấy vui vẻ<br>
-;> tiền nhìu mới vui đc chứ thiếu trước hụt sau sao vui nổi
+;> tiền nhìu mới vui đc chứ thiếu trước hụt sau sao vui nổi<br>
+;> nghèo là éo ảo tưởng đc đâu e<br>
+;> bị hiện tại vả vô mặt mua gì cũng éo có tiền mua
