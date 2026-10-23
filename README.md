@@ -9,4 +9,5 @@
 ;> nghèo là éo ảo tưởng đc đâu e<br>
 ;> bị hiện tại vả vô mặt mua gì cũng éo có tiền mua<br>
 ;> a thích đồ sang mà ko mua đc khó chịu biết mình nghèo liền<BR>
-;> a mà nghèo kiểu này 1-2 năm nữa mình ctay, a nói thật
+;> a mà nghèo kiểu này 1-2 năm nữa mình ctay, a nói thật<br>
+;> a chuẩn bị ngủ ròi e, nghèo nên ngủ sớm cho hết ngày e
