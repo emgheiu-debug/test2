@@ -8,4 +8,5 @@
 ;> tiền nhìu mới vui đc chứ thiếu trước hụt sau sao vui nổi<br>
 ;> nghèo là éo ảo tưởng đc đâu e<br>
 ;> bị hiện tại vả vô mặt mua gì cũng éo có tiền mua<br>
-;> a thích đồ sang mà ko mua đc khó chịu biết mình nghèo liền
+;> a thích đồ sang mà ko mua đc khó chịu biết mình nghèo liền<BR>
+;> a mà nghèo kiểu này 1-2 năm nữa mình ctay, a nói thật
