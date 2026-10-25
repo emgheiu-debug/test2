@@ -1,3 +1,3 @@
 ;> a nhô e<br>
-;> ngày nào a cũng bùn hết vì nghèo <br>
-;> giờ chỉ ước đổi việc lương cao thôi e 
+;> nay a đi chạy bộ ròi e<br>
+;> chiều rảnh thì a iu nhắn
