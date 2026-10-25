@@ -27,4 +27,6 @@
 ;> dưới a, a thấy ngta làm công nhân có dư mua vàng 4x tuổi bán vàng cất nhà ròi e<br>
 ;> kiểu mua lâu năm vs bán ngay thời điểm vàng mắc có lời ý e<br>
 ;> giờ mua vàng cũng hên xui e,mà để dành vài chục năm hay trên 10 năm thì cũng oke<br>
-;> gửi ngân hàng vs mua vàng nào oke hơn e
+;> gửi ngân hàng vs mua vàng nào oke hơn e<br>
+;> e chắc tìm hiểu chuyện làm tình ròi nữa làm tình cho rọt nhe e<br>
+;> khuya ròi ngủ nhe vợ iu, ngủ ngon
