@@ -25,4 +25,6 @@
 ;> vợ a có dư dư mua vàng để dành e<br>
 ;> e mún để dành cỡ chục năm hay vài năm bán kiếm lời e<br>
 ;> dưới a, a thấy ngta làm công nhân có dư mua vàng 4x tuổi bán vàng cất nhà ròi e<br>
-;> kiểu mua lâu năm vs bán ngay thời điểm vàng mắc có lời ý e
+;> kiểu mua lâu năm vs bán ngay thời điểm vàng mắc có lời ý e<br>
+;> giờ mua vàng cũng hên xui e,mà để dành vài chục năm hay trên 10 năm thì cũng oke<br>
+;> gửi ngân hàng vs mua vàng nào oke hơn e
