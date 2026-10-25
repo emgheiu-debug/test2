@@ -6,4 +6,5 @@
 ;> mới chạy bộ về nè e<br>
 ;> chạy ít mà chạy đều đều là đc e<br>
 ;> sài gòn bớt ngập chưa e<br>
-;> 
+;> cơm nước đi e, tối a nhắn<br>
+;> mấy nay a iu ngủ quên quá
