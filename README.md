@@ -19,4 +19,5 @@
 ;> a iu bùn ngủ quá e, xíu nhắn nhe e đi tắm đã<br>
 ;> vợ ở chung a mà thấy a chưa tắm vệ sinh cá nhân thì nhớ kêu a dậy đó<br>
 ;> a để ý thấy chủ doanh nghiệp sao là nhân viên z á e<br>
-;> kiểu như là ng chủ doanh nghiệp tạo môi trường làm việc như thế nào ròi nhân viên làm trong đó lâu cũng ảnh hưởng tư tưởng ko nhìu thì cũng ít
+;> kiểu như là ng chủ doanh nghiệp tạo môi trường làm việc như thế nào ròi nhân viên làm trong đó lâu cũng ảnh hưởng tư tưởng ko nhìu thì cũng ít<br>
+;> a kiểu có tiền mới đầu độc đc a
