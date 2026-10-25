@@ -17,4 +17,6 @@
 ;> a giờ nhiu kg a cũng chưa cân nữa e<br>
 ;> e coi phim heo có lông hay ko lông<br>
 ;> a iu bùn ngủ quá e, xíu nhắn nhe e đi tắm đã<br>
-;> vợ ở chung a mà thấy a chưa tắm vệ sinh cá nhân thì nhớ kêu a dậy đó
+;> vợ ở chung a mà thấy a chưa tắm vệ sinh cá nhân thì nhớ kêu a dậy đó<br>
+;> a để ý thấy chủ doanh nghiệp sao là nhân viên z á e<br>
+;> kiểu như là ng chủ doanh nghiệp tạo môi trường làm việc như thế nào ròi nhân viên làm trong đó lâu cũng ảnh hưởng tư tưởng ko nhìu thì cũng ít
