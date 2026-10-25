@@ -7,4 +7,6 @@
 ;> chạy ít mà chạy đều đều là đc e<br>
 ;> sài gòn bớt ngập chưa e<br>
 ;> cơm nước đi e, tối a nhắn<br>
-;> mấy nay a iu ngủ quên quá
+;> mấy nay a iu ngủ quên quá<br>
+;> mấy nay a ko uống trà sau cử cơm nữa vì a xét nghiệm bị thiếu máu, mỡ, sắt<br>
+;> ghiền quá vẫn uống mà bằng 1/5 ngày nước thôi e
