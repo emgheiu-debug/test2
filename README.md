@@ -20,4 +20,5 @@
 ;> vợ ở chung a mà thấy a chưa tắm vệ sinh cá nhân thì nhớ kêu a dậy đó<br>
 ;> a để ý thấy chủ doanh nghiệp sao là nhân viên z á e<br>
 ;> kiểu như là ng chủ doanh nghiệp tạo môi trường làm việc như thế nào ròi nhân viên làm trong đó lâu cũng ảnh hưởng tư tưởng ko nhìu thì cũng ít<br>
-;> a kiểu có tiền mới đầu độc đc a
+;> a kiểu có tiền mới đầu độc đc a<br>
+;> chăm chồng nữa a cưng đái là rửa bím cho lun
