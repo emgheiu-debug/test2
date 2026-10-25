@@ -16,4 +16,5 @@
 ;> có mấy quán ăn quài nên giờ a ít ăn ngoài lắm e, bị ngán ý<br>
 ;> a giờ nhiu kg a cũng chưa cân nữa e<br>
 ;> e coi phim heo có lông hay ko lông<br>
-;> a iu bùn ngủ quá e, xíu nhắn nhe e đi tắm đã
+;> a iu bùn ngủ quá e, xíu nhắn nhe e đi tắm đã<br>
+;> vợ ở chung a mà thấy a chưa tắm vệ sinh cá nhân thì nhớ kêu a dậy đó
