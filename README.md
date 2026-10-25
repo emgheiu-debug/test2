@@ -4,4 +4,6 @@
 ;> tính a thì thích cái gì là mún phải có liền, nết z<br>
 ;> thành ra mới quan trọng tiền bạc<br>
 ;> mới chạy bộ về nè e<br>
-;> chạy ít mà chạy đều đều là đc e
+;> chạy ít mà chạy đều đều là đc e<br>
+;> sài gòn bớt ngập chưa e<br>
+;> 
