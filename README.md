@@ -15,4 +15,5 @@
 ;> nữa có nungfg cũng kiềm lại nha e, chưa có bước đầu sao có bước cuối e<br>
 ;> có mấy quán ăn quài nên giờ a ít ăn ngoài lắm e, bị ngán ý<br>
 ;> a giờ nhiu kg a cũng chưa cân nữa e<br>
-;> e coi phim heo có lông hay ko lông
+;> e coi phim heo có lông hay ko lông<br>
+;> a iu bùn ngủ quá e
