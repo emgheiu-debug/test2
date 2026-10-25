@@ -12,4 +12,5 @@
 ;> ghiền quá vẫn uống mà bằng 1/5 ngày nước thôi e<br>
 ;> à ko có chủ nhật thôi e<br>
 ;> quen nhắn mấy năm mà chưa đc nắm tay nữa e<br>
-;> nữa có nungfg cũng kiềm lại nha e, chưa có bước đầu sao có bước cuối e
+;> nữa có nungfg cũng kiềm lại nha e, chưa có bước đầu sao có bước cuối e<br>
+;> có mấy quán ăn quài nên giờ a ít ăn ngoài lắm e, bị ngán ý
