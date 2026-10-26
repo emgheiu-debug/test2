@@ -5,4 +5,5 @@
 ;> sài gòn còn mưa hả e<br>
 ;> hết mưa đi e a ghé<br>
 ;> iu gần ở chung nhà đi sinh nhật lễ ko có quà thì cũng đi ăn tối ngoài e<br>
+;> a thì a thích ăn lẩu, đồ nướng, óc,...<br>
 ;>
