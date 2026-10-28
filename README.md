@@ -25,4 +25,4 @@
 ;> lúc đó a tầm hơn 50 tuổi sắp xuống lỗ mịa ròi<br>
 ;> còn ngta thu nhập cao ngta 30-40 tuổi ngta có ròi e<br>
 ;> sự khác biệt giữa thu nhập thấp và cao e<br>
-;> có người, ngta làm cả đời cũng chỉ đủ lo cái ăn, cái mặc trang trải cuộc sống tại vì ngta thu nhập thấp, còn ngta ta dư giả thu nhập hằng tháng cao thì tuổi đời còn trẻ ngta có này có kia gòi e
+;> có người, ngta làm cả đời cũng chỉ đủ lo cái ăn, cái mặc trang trải cuộc sống tại vì ngta thu nhập thấp, còn người ngta ta dư giả thu nhập hằng tháng cao thì tuổi đời còn trẻ ngta có này có kia gòi e<br>
