@@ -17,4 +17,7 @@
 <img width="317" height="89" alt="image" src="https://github.com/user-attachments/assets/df1bc989-0358-4fa2-9cf1-7416ba89648f" /><br>
 ;> đợt a kể e dưới quê a có người làm lương thấp mà vẫn chạy đc ôtô đó e<br>
 ;> ôtô thì gia đình mua sẵn mình chạy chỉ việc giữ xe, chạy đúng luật, đổ xăng thôi<br>
-;> thi bằng lái ôtô thì tầm 23 củ e
+;> thi bằng lái ôtô thì tầm 23 củ e<br>
+;> đợt a về quê a thấy z nhen<br>
+;> chiếc velz cross toyota tầm hơn 550 triệu giấy tờ nữa 650 triệu<br>
+;> a nghe kể z
