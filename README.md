@@ -29,4 +29,4 @@
 ;> bởi z e đừng có thắc mắc sao mà nhìu ng đi làm tới khi già có tuổi họ vẫn chưa có tài sản tích gì, tại vì lương ngta thấp<br>
 ;> nói z thôi chứ đi làm có chén cơm ăn lương thấp thì vẫn cứ làm nào có kèo thôi thì nghỉ làm chỗ khác z thôi e, ai cũng z mà<br>
 ;> nửa già cũng khó nhảy việc, vs ko hối hận vì hồi trẻ đã làm hết mình thôi e<br>
-;> 
+;> chiều a uống cà phê sữa nên giờ chưa bùn ngủ e
