@@ -20,4 +20,6 @@
 ;> thi bằng lái ôtô thì tầm 23 củ e<br>
 ;> đợt a về quê a thấy z nhen<br>
 ;> chiếc velz cross toyota tầm hơn 550 triệu giấy tờ nữa 650 triệu<br>
-;> a nghe kể z
+;> a nghe kể z<br>
+;> mình nghèo thì mình làm 30 năm mới mua đc miếng đất 500 triệu đi<br>
+;> lúc đó a tầm hơn 50 tuổi sắp xuống lỗ mịa ròi
