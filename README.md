@@ -26,4 +26,6 @@
 ;> còn ngta thu nhập cao ngta 30-40 tuổi ngta có ròi e<br>
 ;> sự khác biệt giữa thu nhập thấp và cao e<br>
 ;> có người, ngta làm cả đời cũng chỉ đủ lo cái ăn, cái mặc trang trải cuộc sống tại vì ngta thu nhập thấp, còn người ngta ta dư giả thu nhập hằng tháng cao thì tuổi đời còn trẻ ngta có này có kia gòi e<br>
-;> bởi z e đừng có thắc mắc sao mà nhìu ng đi làm tới khi già có tuổi họ vẫn chưa có tài sản tích gì, tại vì lương ngta thấp
+;> bởi z e đừng có thắc mắc sao mà nhìu ng đi làm tới khi già có tuổi họ vẫn chưa có tài sản tích gì, tại vì lương ngta thấp<br>
+;> nói z thôi chứ đi làm có chén cơm ăn lương thấp thì vẫn cứ làm nào có kèo thôi thì nghỉ làm chỗ khác z thôi e, ai cũng z mà<br>
+;> 
