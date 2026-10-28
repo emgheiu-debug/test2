@@ -36,4 +36,7 @@
 ;> nhà trong trung tâm thì nó ko có ngon đc như z, kiểu chật chội, đường chật hẹp ý e<br>
 ;> chắc cũng tầm 5 tỷ đổ lên e<br>
 ;> e mua đi 2 đứa mình đứng tên =)))<br>
-;> a giờ bán hết tài sản của a là cái đt iphone 17 pro + laptop + xe wave cùi cho 50 củ đi còn nhiu e bù =)))
+;> a giờ bán hết tài sản của a là cái đt iphone 17 pro + laptop + xe wave cùi cho 50 củ đi còn nhiu e bù =)))<br>
+;> nói z thôi chứ e cũng đừng áp lực<br>
+;> thỉnh thoảng a bị chuột rút khi ngủ ta<br>
+;> có khi lâu lắm mới bị chả biết sao nữa e
