@@ -33,4 +33,6 @@
 ;> giờ mún giàu là có nước trúng số viettlot thôi e =))), còn tự ăn thì kiếm chỗ giàu làm, hoặc kinh doanh z thôi e<br>
 ;> a thì a ước có nhà ở sài gòn, nhà mặt đất mà kiểu khu nhà ngta xây giống nhau làm thành 1 khu nhà ý e<br>
 ;> cũng oke, mà nhà kiểu z thì chắc hơi xa trung tâm thành phố<br>
-;> nhà trong trung tâm thì nó ko có ngon đc như z, kiểu chật chội, đường chật hẹp ý e
+;> nhà trong trung tâm thì nó ko có ngon đc như z, kiểu chật chội, đường chật hẹp ý e<br>
+;> chắc cũng tầm 5 tỷ đổ lên e<br>
+;> e mua đi 2 đứa mình đứng tên =)))
