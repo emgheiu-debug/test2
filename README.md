@@ -22,4 +22,6 @@
 ;> chiếc velz cross toyota tầm hơn 550 triệu giấy tờ nữa 650 triệu<br>
 ;> a nghe kể z<br>
 ;> mình nghèo thì mình làm 30 năm mới mua đc miếng đất 500 triệu đi<br>
-;> lúc đó a tầm hơn 50 tuổi sắp xuống lỗ mịa ròi
+;> lúc đó a tầm hơn 50 tuổi sắp xuống lỗ mịa ròi<br>
+;> còn ngta thu nhập cao ngta 30-40 tuổi ngta có ròi e<br>
+;> sự khác biệt giữa thu nhập thấp và cao e
