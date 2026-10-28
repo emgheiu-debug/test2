@@ -9,4 +9,5 @@
 ;> lại 1 năm trôi qua vẫn nghèo như xưa e, nghèo từ lúc ra trường tới giờ e =)))<br>
 ;> ko lẽ a sống trong vài chục năm tới trong nghèo khổ lun sao<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
-;> éo biết bao giờ mới thoát nghèo e
+;> éo biết bao giờ mới thoát nghèo e<br>
+;> e mà lương như a có con nuôi học đại học sài gòn bảo đảm là éo nổi 
