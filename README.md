@@ -7,4 +7,5 @@
 ;> có mấy đứa coi toptop xong bị ảo ý e<br>
 ;> rác nhìu, ai mún đăng gì đăng ko có kiểm chứng<br>
 ;> lại 1 năm trôi qua vẫn nghèo như xưa e, nghèo từ lúc ra trường tới giờ e =)))<br>
-;> ko lẽ a sống trong vài chục năm tới trong nghèo khổ lun sao
+;> ko lẽ a sống trong vài chục năm tới trong nghèo khổ lun sao<br>
+;> a tắm rửa xíu a nhắn nhe e
