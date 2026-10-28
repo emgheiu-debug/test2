@@ -10,4 +10,6 @@
 ;> ko lẽ a sống trong vài chục năm tới trong nghèo khổ lun sao<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
 ;> éo biết bao giờ mới thoát nghèo e<br>
-;> e mà lương như a có con nuôi học đại học sài gòn bảo đảm là éo nổi 
+;> e mà lương như a có con nuôi học đại học sài gòn bảo đảm là éo nổi <br>
+;> a search thấy ôtô chạy 5-6lít xăng/100km thì tiền xăng nuôi ôtô cũng đâu mắc đâu e<br>
+;> chủ yếu chi phí khác, bảo dưỡng, bảo hiểm, phí phạt vượt đèn đỏ cũng loanh quanh 20 củ ròi e
