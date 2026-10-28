@@ -6,4 +6,5 @@
 ;> có dịp e bóp thử đi ròi biết, tại a ít vận động<br>
 ;> e thì tối rảnh e coi phim heo chứ gì<br>
 ;> e là đối vs e ko phim nào mà cuốn hơn phim heo đc<br>
-;> 
+;> coi cũng chừng mực thôi e<br>
+;> khuya ròi ngủ nhe e, a bùn ngủ ròi
