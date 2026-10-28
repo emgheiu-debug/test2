@@ -1,4 +1,4 @@
-;> a nhô e<br>
+<img width="317" height="89" alt="image" src="https://github.com/user-attachments/assets/d323d7fd-a902-4962-8599-5ce3ea5320f6" />;> a nhô e<br>
 ;> lâu hết ngày hết tháng quá e<br>
 ;> sài gòn còn ngập ko e, tháng sau a ghé sài gòn<br>
 ;> triều cường nước dâng phải ko e<br>
@@ -12,4 +12,9 @@
 ;> éo biết bao giờ mới thoát nghèo e<br>
 ;> e mà lương như a có con nuôi học đại học sài gòn bảo đảm là éo nổi <br>
 ;> a search thấy ôtô chạy 5-6lít xăng/100km thì tiền xăng nuôi ôtô cũng đâu mắc đâu e<br>
-;> chủ yếu chi phí khác, bảo dưỡng, bảo hiểm, phí phạt vượt đèn đỏ cũng loanh quanh 20 củ ròi e
+;> chủ yếu chi phí khác, bảo dưỡng, bảo hiểm, phí phạt vượt đèn đỏ cũng loanh quanh 20 củ ròi e<br>
+;> hèn gì nhìu ng, ngta làm lương thấp mà ngta vẫn chạy đc e<br>
+<img width="317" height="89" alt="image" src="https://github.com/user-attachments/assets/df1bc989-0358-4fa2-9cf1-7416ba89648f" /><br>
+;> đợt a kể e dưới quê a có người làm lương thấp mà vẫn chạy đc ôtô đó e<br>
+;> ôtô thì gia đình mua sẵn mình chạy chỉ việc giữ xe, chạy đúng luật, đổ xăng thôi<br>
+;> thi bằng lái ôtô thì tầm 23 củ e
