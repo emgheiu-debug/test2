@@ -8,4 +8,5 @@
 ;> đi làm là vì tiền mà e, chỗ nào thơm thì mình làm z thôi<br>
 ;> nửa ngủ chung cho a bóp dú nhe<br>
 ;> ghệ răm bùn ngủ chưa e<br>
-;> mốt là tập ngủ giờ này nhe hem e, ko là e thức khuya thudam 1 mình
+;> mốt là tập ngủ giờ này nhe hem e, ko là e thức khuya thudam 1 mình<br>
+;> a iu ngủ à, mai nhắn
