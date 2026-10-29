@@ -5,4 +5,5 @@
 ;> mún nhảy việc thì ko nên mua đồ trả góp e<br>
 ;> a thì tính a làm đâu mà thấy mình nghèo là a chắc chắn phải nghỉ à e<br>
 ;> e làm vợ a thì a phụ free cho e cũng đc, e giàu a cũng giàu mà =)))<br>
-;> đi làm là vì tiền mà e, chỗ nào thơm thì mình làm z thôi
+;> đi làm là vì tiền mà e, chỗ nào thơm thì mình làm z thôi<br>
+;> nửa ngủ chung cho a bóp dú nhe
