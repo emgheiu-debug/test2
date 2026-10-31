@@ -16,4 +16,5 @@
 ;> a mua đồ lặt vặt nữa<br>
 <img width="591" height="256" alt="image" src="https://github.com/user-attachments/assets/4f5a65c0-bd20-4b43-8cee-ce64ee52faf6" /><br>
 ;> túi này thì đợt a thấy thg e họ a đeo nhìn bên ngoài cũng đẹp e, mà kiểu a ko thích lắm định mua cái bẵng 1 thời gian quên lun nên ko có mua<br>
-;> tắm rửa xíu a nhắn nhe e
+;> tắm rửa xíu a nhắn nhe e<br>
+;> hôm nào có uống thuốc cảm hay viêm mũi là bắt đầu bùn ngủ nguyên ngày thôi e, chỉ ước mau về nhà để ngủ
