@@ -6,4 +6,7 @@
 ;> vừa ngồi làm thỉnh thoảng mở đt ra săn sale e<br>
 ;> <img width="132" height="291" alt="image" src="https://github.com/user-attachments/assets/df93a74b-d726-4681-80f8-51a748753b5f" /><br>
 ;> túi đẹp chưa e<br>
-;> vừa tiện đủ nhu cầu của a
+;> vừa tiện đủ nhu cầu của a<br>
+<img width="344" height="254" alt="image" src="https://github.com/user-attachments/assets/1d58479e-11f0-4976-a5f7-bd9e92c68f62" /><br>
+;> túi này cũng oke mà nó hơi to e<br>
+;> 
