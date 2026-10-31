@@ -10,4 +10,4 @@
 <img width="344" height="254" alt="image" src="https://github.com/user-attachments/assets/1d58479e-11f0-4976-a5f7-bd9e92c68f62" /><br>
 ;> túi này cũng oke mà nó hơi to e<br>
 ;> gọn a đi đường đựng bóp đt, sạc dự phòng là đc ko cần to quá nó kình rình, đeo túi mà đem đồ nhìu cũng nặng vai<br>
-;>
+;> a bỏ đồ này kia nhìu quá trong túi áo trong, áo khoác a ý, đeo suốt 8 tiếng là kiểu gì hôm sau cũng hơi nhứt vai à e
