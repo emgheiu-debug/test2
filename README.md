@@ -9,4 +9,7 @@
 ;> có tiền phát a làm đủ thứ, a thì ước có nhà tại sài gòn hoặc vùng ven cũng đc, nói chung là ước có tiền có của<br>
 ;> a giờ đánh răng sớm xíu, để ngủy quên<br>
 ;> ngủ quên mà răng dính đồ ăn thừa dễ bị hôi miệng lắm e<br>
-;> mới giờ a iu hơi bùn ngủ ròi e
+;> mới giờ a iu hơi bùn ngủ ròi e<br>
+;> mắt mở hết lên ròi e<br>
+;> thời buổi giờ cái gì cũng tiền hết e<br>
+;>
