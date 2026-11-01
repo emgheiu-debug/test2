@@ -6,4 +6,6 @@
 ;> sài gòn còn ngập ko e<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
 ;> cuộc sống của a thì tạm ổn e, chỉ thiếu tiền thôi<br>
-;> có tiền phát a làm đủ thứ, a thì ước có nhà tại sài gòn hoặc vùng ven cũng đc, nói chung là ước có tiền có của
+;> có tiền phát a làm đủ thứ, a thì ước có nhà tại sài gòn hoặc vùng ven cũng đc, nói chung là ước có tiền có của<br>
+;> a giờ đánh răng sớm xíu, để ngủy quên<br>
+;> ngủ quên mà răng dính đồ ăn thừa dễ bị hôi miệng lắm e
