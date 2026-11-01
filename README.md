@@ -5,4 +5,5 @@
 ;> a thì ko có tiền để mua ròi đó, giờ ko biết đầu tư gì cho an toàn e, ko lẽ gửi ngân hàng<br>
 ;> sài gòn còn ngập ko e<br>
 ;> a tắm rửa xíu a nhắn nhe e<br>
-;> cuộc sống của a thì tạm ổn e, chỉ thiếu tiền thôi
+;> cuộc sống của a thì tạm ổn e, chỉ thiếu tiền thôi<br>
+;> có tiền phát a làm đủ thứ, a thì ước có nhà tại sài gòn hoặc vùng ven cũng đc, nói chung là ước có tiền có của
