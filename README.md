@@ -2,4 +2,6 @@
 ;> cỡ giữa tháng 12 đi e, a mua đồ tết vs bạn a<br>
 ;> tính ra e đợi quài lun, có tiền là giải quyết đc hết mọi vấn đề <br>
 ;> mọi vấn đề đều do tiền mà ra e, giải quyết 90-95% vấn đề e<br>
-;> gần tết ròi e có mua đồ gì hem, hay để sát tết mới mua,cỡ tháng 11 âm gì đó mua đc ròi e
+;> gần tết ròi e có mua đồ gì hem, hay để sát tết mới mua,cỡ tháng 11 âm gì đó mua đc ròi e<br>
+;> tháng sau mua đồ tết cũng còn sớm e<br>
+;> chưa làm đc qq gì mà hết 1 năm ròi e
