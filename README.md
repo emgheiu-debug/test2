@@ -6,4 +6,4 @@
 ;> tháng sau mua đồ tết cũng còn sớm e<br>
 ;> chưa làm đc qq gì mà hết 1 năm ròi e<br>
 ;> hy vọng nay sau đổi job có nhìu tiền thôi e<br>
-;> 
+;> có tiền đi bàn tiếp e, ko có tiền bàn quài cũng ko xong ko có thực hành đc
