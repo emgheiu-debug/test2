@@ -13,4 +13,5 @@
 ;> cũng đủ đồ để dùng ròi e<br>
 ;> vợ a học nấu ăn đc mấy món ròi e<br>
 ;> nửa ở chung thì chiều chiểu tan làm mình ăn cơm nhà, tối ngủ chung thôi e<br>
-;> thỉnh thoảng trải nghiệm quán ăn ngoài cũng oke e
+;> thỉnh thoảng trải nghiệm quán ăn ngoài cũng oke e<br>
+;> a thì cũng thích có vợ chăm lắm
