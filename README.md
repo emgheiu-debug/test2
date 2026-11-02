@@ -10,4 +10,7 @@
 ;> để a tắm rửa xong a nhắn nhe ghệ iu<br>
 ;> a giờ skinecare nữa là ngủ ròi e<br>
 ;> tháng sau chắc a ko mua gì<br>
-;> cũng đủ đồ để dùng ròi e
+;> cũng đủ đồ để dùng ròi e<br>
+;> vợ a học nấu ăn đc mấy món ròi e<br>
+;> nửa ở chung thì chiều chiểu tan làm mình ăn cơm nhà, tối ngủ chung thôi e<br>
+;> thỉnh thoảng trải nghiệm quán ăn ngoài cũng oke e
