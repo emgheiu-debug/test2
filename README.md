@@ -14,4 +14,5 @@
 ;> vợ a học nấu ăn đc mấy món ròi e<br>
 ;> nửa ở chung thì chiều chiểu tan làm mình ăn cơm nhà, tối ngủ chung thôi e<br>
 ;> thỉnh thoảng trải nghiệm quán ăn ngoài cũng oke e<br>
-;> a thì cũng thích có vợ chăm lắm
+;> a thì cũng thích có vợ chăm lắm<br>
+;> ngủ vợ ơi, a bùn ngủ quá
