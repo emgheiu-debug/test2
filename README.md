@@ -8,4 +8,5 @@
 ;> hy vọng nay sau đổi job có nhìu tiền thôi e<br>
 ;> có tiền đi bàn tiếp e, ko có tiền bàn quài cũng ko xong ko có thực hành đc<br>
 ;> để a tắm rửa xong a nhắn nhe ghệ iu<br>
-;> a giờ skinecare nữa là ngủ ròi e
+;> a giờ skinecare nữa là ngủ ròi e<br>
+;> tháng sau chắc a ko mua gì
