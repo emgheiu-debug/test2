@@ -9,4 +9,5 @@
 ;> tết chắc a ko mua đồ, tính a thì kiểu thích hay cần thiết mới mua<br>
 ;> đồ a cũng đủ dùng ròi e<br>
 ;> nửa a thấy chem chép có lông của e, mà thường mấy giờ e ngủ<br>
-;> mà e có mặc bikini đâu e, để lông z cũng đc
+;> mà e có mặc bikini đâu e, để lông z cũng đc<br>
+;> khuya ròi ngủ đi e, chồng iu cũng bùn ngủ ròi
