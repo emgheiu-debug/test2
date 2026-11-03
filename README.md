@@ -8,4 +8,4 @@
 ;> a đặt hàng ship nay nhận mún hết ròi, ko có đặt gì nữa e<br>
 ;> tết chắc a ko mua đồ, tính a thì kiểu thích hay cần thiết mới mua<br>
 ;> đồ a cũng đủ dùng ròi e<br>
-;> nửa a thấy chem chép có lông của e
+;> nửa a thấy chem chép có lông của e, mà thường mấy giờ e ngủ
