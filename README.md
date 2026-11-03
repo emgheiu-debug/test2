@@ -1,2 +1,3 @@
 ;> a nhô e<br>
-;> cơm nước chưa ghệ iu
+;> cơm nước chưa ghệ iu<br>
+;> vợ a học nấu canh đi, a biết làm đồ chiên vs xào thôi e
