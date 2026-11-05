@@ -4,4 +4,6 @@
 ;> a hay bị dị ứng mũi mà lại thích uống nước đá, kiêng cử lắm thì mỗi ngày 1 ly, dạo này a ko uống trà nữa<br>
 ;> vợ a tối mấy giờ ngủ e, ngủ 1 lượt 1 a nè<br>
 ;> a ngủ thì e cũng ngủ lun, sáng ăn sáng chạy bộ<br>
-;> e thích ăn gì để học đc thì a học nấu thử
+;> e thích ăn gì để học đc thì a học nấu thử<br>
+;> a nêm nếm cũng hên xui lắm e<br>
+;> khuya ròi vợ iu ngủ đi, a ngủ à, ngủ ngon e
