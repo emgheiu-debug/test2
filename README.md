@@ -8,3 +8,5 @@
 ;> a mua ốp này hơn 1300k ốp xanh có logo ý e<br>
 <img width="127" height="185" alt="image" src="https://github.com/user-attachments/assets/56cdbcab-7771-435f-8020-11ba8254afaa" /><img width="176" height="231" alt="image" src="https://github.com/user-attachments/assets/e0076765-5986-465f-93e9-ae3a843d2e8e" />
 <br>
+;> a cũng thích 2 màu trên nữa, mà mua 1 cái là đc ròi e<br>
+;> 
