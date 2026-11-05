@@ -5,4 +5,6 @@
 ;> ban đầu a định mua màu sáng hơn ốp iphone 18 pro màu nâu nhạt hay xanh nhạt gì đó, mà nghĩ thôi mà sáng thì nó hơi dơ mà tay a thì hay ra mồ hôi<br>
 ;> khác cái ốp fake đen chủ yếu là chất vải vs cái logo thôi e, cái ốp 160k mà so vs cái ốp 1600k gì e<br>
 ;> săn sale thì giá tốt lắm ở chính hãng apple shop lun nha e, thì hơn 1400k<br>
-;> a mua ốp này hơn 1300k ốp xanh có logo ý e
+;> a mua ốp này hơn 1300k ốp xanh có logo ý e<br>
+<img width="127" height="185" alt="image" src="https://github.com/user-attachments/assets/56cdbcab-7771-435f-8020-11ba8254afaa" /><img width="176" height="231" alt="image" src="https://github.com/user-attachments/assets/e0076765-5986-465f-93e9-ae3a843d2e8e" />
+<br>
