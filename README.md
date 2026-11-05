@@ -10,4 +10,6 @@
 <br>
 ;> a cũng thích 2 màu trên nữa, mà mua 1 cái là đc ròi e<br>
 ;> nhìn ở ngoài ốp xanh dương a mua thì đẹp hơn e<br>
-;> từ giờ tới tết chắc a ko mua gì
+;> từ giờ tới tết chắc a ko mua gì<br>
+;> ốp fake ngta hạn chế dập logo là tại gì chắc thị trường ở việt nam đang khó dụ hàng giả hàng nhái ý e<br>
+;> mà ốp fake có dập logo thì nó ko đều vs đẹp đâu e
