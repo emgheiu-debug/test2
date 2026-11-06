@@ -7,4 +7,5 @@
 ;> số mình tới đâu hay tới đó e<br>
 ;> a thì đi làm như a để dành 1 năm hết ga hết số cũng 30-40 cũ thôi e<br>
 ;> làm 10 năm thì đc 300 trẹo <br>
-;> đó là a tính có dư á nha, chưa tính chi phí phát sinh nữa có thể sẽ thấp hơn 300 triệu
+;> đó là a tính có dư á nha, chưa tính chi phí phát sinh nữa có thể sẽ thấp hơn 300 triệu<br>
+;> nếu mà có gia đình nữa thì chắc chắn là ko có dư lun e
