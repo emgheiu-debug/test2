@@ -9,4 +9,12 @@
 ;> làm 10 năm thì đc 300 trẹo <br>
 ;> đó là a tính có dư á nha, chưa tính chi phí phát sinh nữa có thể sẽ thấp hơn 300 triệu<br>
 ;> nếu mà có gia đình nữa thì chắc chắn là ko có dư lun e<br>
-;> a vs e nuôi 1 đưa con mà a dư như z thì chắc chắn móm, ko có khả năng nuôi lên đại học
+;> a vs e nuôi 1 đưa con mà a dư như z thì chắc chắn móm, ko có khả năng nuôi lên đại học<br>
+;> số a thì ko nhờ cha nhờ mẹ ròi nên tự mình bơi thôi e<br>
+;> nửa a có đủ tiền đi cắt lại mí mắt ko biết có dám cắt ko, tại a sợ đau<br>
+;> a từ 1 mí thành 2 mí lun mà e<br>
+;> bị dính mí ý e, kiểu hơi khó chịu<br>
+;> mới giờ a bùn ngủ quá e<br>
+;> nửa làm có tiền thì a cũng lo a vs, e ở vs a thì lo e, có con thì lo con thôi e<br>
+;> dư giả lắm thì cho ông bà già 1 xíu z thôi<br>
+;> khuya ròi a bùn ngủ quá, thôi a ngủ à
