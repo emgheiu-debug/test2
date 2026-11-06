@@ -6,4 +6,5 @@
 ;> a vệ sinh cá nhân xong ròi nà, đỡ sợ ngủ quên<br>
 ;> số mình tới đâu hay tới đó e<br>
 ;> a thì đi làm như a để dành 1 năm hết ga hết số cũng 30-40 cũ thôi e<br>
-;> làm 10 năm thì đc 300 trẹo 
+;> làm 10 năm thì đc 300 trẹo <br>
+;> đó là a tính có dư á nha, chưa tính chi phí phát sinh nữa có thể sẽ thấp hơn 300 triệu
