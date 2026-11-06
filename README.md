@@ -8,4 +8,5 @@
 ;> a thì đi làm như a để dành 1 năm hết ga hết số cũng 30-40 cũ thôi e<br>
 ;> làm 10 năm thì đc 300 trẹo <br>
 ;> đó là a tính có dư á nha, chưa tính chi phí phát sinh nữa có thể sẽ thấp hơn 300 triệu<br>
-;> nếu mà có gia đình nữa thì chắc chắn là ko có dư lun e
+;> nếu mà có gia đình nữa thì chắc chắn là ko có dư lun e<br>
+;> a vs e nuôi 1 đưa con mà a dư như z thì chắc chắn móm, ko có khả năng nuôi lên đại học
