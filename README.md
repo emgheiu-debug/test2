@@ -12,4 +12,6 @@
 ;> còn tháng 2 có 28 thì ngta đi làm có 20 ngày, (20/22)x5triệu = 4 triệu 5<br>
 ;> a thấy kế toán bên a nó tính z đó e<br>
 ;> chứ ko phải đi làm tối cuối tháng là mặc định auto 5 củ quài<br>
-;> 
+;> để a coi cty nào tốt hơn hẳn thì a nghỉ cty này e<br>
+;> coi cho kỹ đã<br>
+;>
