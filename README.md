@@ -15,4 +15,4 @@
 ;> để a coi cty nào tốt hơn hẳn thì a nghỉ cty này e<br>
 ;> coi cho kỹ đã<br>
 ;> dù gì đi làm thì cũng chỉ kiếm tiền thôi e, có mấy chỗ đi làm đòi đúng giờ đúng giấc văn hóa ko hợp vs mình đồ cũng mệt e<br>
-;>
+;> ngủ đi e, a bùn ngủ quá
