@@ -4,4 +4,6 @@
 ;> nảy giờ a iu lu xu bu xíu, cũng tắm rửa skinecare xong ròi e<br>
 ;> đánh răng đều để mốt đá lưỡi vs vợ chứ<br>
 ;> mới giờ chồng bùn ngủ quá e<br>
-;> tập ngủ chung khung giờ vs a đi, 1 người thức 1 người ngủ nó bùn e
+;> tập ngủ chung khung giờ vs a đi, 1 người thức 1 người ngủ nó bùn e<br>
+;> tháng 11 ngày có ngày 24/11 nghỉ có lương á e<br>
+;> 
