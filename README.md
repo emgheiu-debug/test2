@@ -15,4 +15,7 @@
 ;> a thì quan trọng thu nhập tốt, tiền nhìu thì cái gì cũng có hết thôi e<br>
 ;> có tiền thì mình mua nhà dư giả thì mua con xe ôtô vài trăm triệu thôi e, 500-700 triêu gì đó<br>
 ;> a đổi loại kem khác mặt giờ đỡ mụn hẳn ròi e<br>
-;> iu a nửa làm vợ a là phải tin tưởng a nhe hem, z mới bền đc
+;> iu a nửa làm vợ a là phải tin tưởng a nhe hem, z mới bền đc<br>
+;> có mấy người vô duyên lắm e, hỏi đi làm lương nhiu<br>
+;> hơi bị nhìu ng như z, mình lương thấp gặp hay hỏi lương nhiu nữa<br>
+;> a thì nói đủ ăn thôi
