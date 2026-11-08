@@ -14,4 +14,4 @@
 ;> mà sau này đi làm ngta đánh giá mình qua chiếc xe nữa e, xe cùi thì nghèo xe sang thì có tiền<br>
 ;> a thì quan trọng thu nhập tốt, tiền nhìu thì cái gì cũng có hết thôi e<br>
 ;> có tiền thì mình mua nhà dư giả thì mua con xe ôtô vài trăm triệu thôi e, 500-700 triêu gì đó<br>
-;> 
+;> a đổi loại kem khác mặt giờ đỡ mụn hẳn ròi e
