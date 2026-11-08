@@ -20,4 +20,7 @@
 ;> hơi bị nhìu ng như z, mình lương thấp gặp hay hỏi lương nhiu nữa<br>
 ;> a thì nói đủ ăn thôi<br>
 ;> thì nữa mình làm có tiền sợ bị mượn tiền thì nói mình mua đồ góp ko có tiền<br>
-;> a đi tắm rửa đã xíu a nhắn
+;> a đi tắm rửa đã xíu a nhắn<br>
+;> a mua xe tay ga thì để đi đường dài cho nó khỏe e<br>
+;> xe cùi thì để chạy gần dòng dòng chỗ mình ở thôi e<br>
+;> 
