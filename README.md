@@ -18,4 +18,5 @@
 ;> iu a nửa làm vợ a là phải tin tưởng a nhe hem, z mới bền đc<br>
 ;> có mấy người vô duyên lắm e, hỏi đi làm lương nhiu<br>
 ;> hơi bị nhìu ng như z, mình lương thấp gặp hay hỏi lương nhiu nữa<br>
-;> a thì nói đủ ăn thôi
+;> a thì nói đủ ăn thôi<br>
+;> thì nữa mình làm có tiền sợ bị mượn tiền thì nói mình mua đồ góp ko có tiền
