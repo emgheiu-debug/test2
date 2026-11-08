@@ -9,4 +9,6 @@
 ;> a cũng ko ngoại lệ, sống mà nghèo khổ ko bằng ai ko có vui vẻ gì hết e<br>
 ;> nhìu đứa a ko có quan tâm mà nó làm như mình quan tâm nó lắm z đó e<br>
 ;> thấy cũng ngồ ngộ, a thì chỉ quan tâm tới tiền công ăn chuyện làm thôi e<br>
-;> mấy đứa trên mạng nó lảm nhảm z chứ có lợi lộc gì cho mình đâu e, quan trọng túi tiền mình, kệ nó
+;> mấy đứa trên mạng nó lảm nhảm z chứ có lợi lộc gì cho mình đâu e, quan trọng túi tiền mình, kệ nó<br>
+;> hồi mới ra trường á, a cũng ko quan trọng xe đâu, kiểu như là mình nghĩ xe nào cũng như nhau, cũng là phương tiện đi đến chỗ<br>
+;> mà sau này đi làm ngta đánh giá mình qua chiếc xe nữa e, xe cùi thì nghèo xe sang thì có tiền
