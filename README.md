@@ -6,4 +6,6 @@
 ;> tám vs vợ thêm xíu nữa ngủ<br>
 ;> vợ a thích hoa gì e, nữa e trồng đi a chăm cho, tưới nước + phân npk thôi e<br>
 ;> ko mấy tưới nước thôi e<br>
-;> a thấy hoa hồng, hoa cẩm tú cầu đẹp
+;> a thấy hoa hồng, hoa cẩm tú cầu đẹp<br>
+;> mua cây giống sẵn ròi mình chăm thôi e<br>
+;> a bùn ngủ quá a ngủ trước nhe e, vợ a cũng ngủ sớm nhe e, mai nhắn tiếp, ngủ ngon e
