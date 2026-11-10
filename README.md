@@ -13,4 +13,7 @@
 ;> a đi làm a thấy chớ bộ<br>
 ;> đc hỗ trợ tài chính,ngta chỉ đi làm lo miệng ăn thôi e<br>
 ;> a mua mấy cái tiêu sản cần thiết xong để dành, làm ăn hay mua đất gì đó e<br>
-;> kệ cứ đại đại đi e, ng có số mà, biết đâu ít năm nữa mình khá ròi sao e
+;> kệ cứ đại đại đi e, ng có số mà, biết đâu ít năm nữa mình khá ròi sao e<br>
+;> để a đi tắm đã e, sợ ngũ quên<br>
+;> a thì thích có nhà riêng, đi làm về cơm nước sống chill chill là vui e, a ko thích ở chung vs cha mẹ a<br>
+;> làm có tiền thì tốt nhất là nên ở riêng
