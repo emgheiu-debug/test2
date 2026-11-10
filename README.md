@@ -21,4 +21,7 @@
 ;> nói chung a thấy xài ngon oke<br>
 ;> ngủ chung cho a ôm ấp bợ dú nhen e<br>
 ;> đâu e biết coi chỉ tay ko có dịp coi giùm a<br>
-;> dạo này a ít uống trà ròi e, tay a nhìn hơi gân guốc xíu, chắc có máu lại, đợt a bị thiều máu
+;> dạo này a ít uống trà ròi e, tay a nhìn hơi gân guốc xíu, chắc có máu lại, đợt a bị thiếu máu<br>
+;> a vs e gu âm nhạc khác nhau mà e, gu e kiểu nhạc cho ng hơi có tuổi xíu, mẹ a thì chắc cùng gu âm nhạc vs e<br>
+;> a nói thật chứ ko chê gì e đâu<br>
+;>
