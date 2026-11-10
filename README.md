@@ -13,4 +13,4 @@
 ;> a đi làm a thấy chớ bộ<br>
 ;> đc hỗ trợ tài chính,ngta chỉ đi làm lo miệng ăn thôi e<br>
 ;> a mua mấy cái tiêu sản cần thiết xong để dành, làm ăn hay mua đất gì đó e<br>
-;>
+;> kệ cứ đại đại đi e, ng có số mà, biết đâu ít năm nữa mình khá ròi sao e
