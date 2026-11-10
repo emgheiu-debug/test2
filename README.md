@@ -16,4 +16,6 @@
 ;> kệ cứ đại đại đi e, ng có số mà, biết đâu ít năm nữa mình khá ròi sao e<br>
 ;> để a đi tắm đã e, sợ ngũ quên<br>
 ;> a thì thích có nhà riêng, đi làm về cơm nước sống chill chill là vui e, a ko thích ở chung vs cha mẹ a<br>
-;> làm có tiền thì tốt nhất là nên ở riêng
+;> làm có tiền thì tốt nhất là nên ở riêng<br>
+;> a xài iphone cỡ 2 tháng mà chưa chai % pin nào, bth xài cũng ko nóng tay, sạc cũng ko nóng máy lun e, chỉ hơi ấm ấm à<br>
+;> nói chung a thấy xài ngon oke
