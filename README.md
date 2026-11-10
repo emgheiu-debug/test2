@@ -20,4 +20,5 @@
 ;> a xài iphone cỡ 2 tháng mà chưa chai % pin nào, bth xài cũng ko nóng tay, sạc cũng ko nóng máy lun e, chỉ hơi ấm ấm à<br>
 ;> nói chung a thấy xài ngon oke<br>
 ;> ngủ chung cho a ôm ấp bợ dú nhen e<br>
-;> đâu e biết coi chỉ tay ko có dịp coi giùm a
+;> đâu e biết coi chỉ tay ko có dịp coi giùm a<br>
+;> dạo này a ít uống trà ròi e, tay a nhìn hơi gân guốc xíu, chắc có máu lại, đợt a bị thiều máu
