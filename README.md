@@ -11,4 +11,5 @@
 ;> số a là phải tự lo, ko có nhờ cha nhờ mẹ<br>
 ;> có mấy ng ngta làm lương thấp nhưng mà ngta đc cha mẹ cho nhà, cho ôtô, cho vàng,...<br>
 ;> a đi làm a thấy chớ bộ<br>
-;> đc hỗ trợ tài chính,ngta chỉ đi làm lo miệng ăn thôi e
+;> đc hỗ trợ tài chính,ngta chỉ đi làm lo miệng ăn thôi e<br>
+;> a mua mấy cái tiêu sản cần thiết xong để dành, làm ăn hay mua đất gì đó e
