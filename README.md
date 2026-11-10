@@ -6,4 +6,7 @@
 ;> cỡ tuổi a ngta có bằng lái, có con xe ổn ổn đi làm hết gòi e<br>
 ;> cơ bản là ngta đc ông bà già lo thôi e<br>
 ;> còn a phải tự cày, có tiền thì a húp trọn khỏi cho ai thôi e<br>
-;> nào giờ a chưa cầm tiền cho cha cho mẹ bao giờ, có bao mẹ đi ăn buffet thôi e
+;> nào giờ a chưa cầm tiền cho cha cho mẹ bao giờ, có bao mẹ đi ăn buffet thôi e<br>
+;> ng có cái số thôi e<br>
+;> số a là phải tự lo, ko có nhờ cha nhờ mẹ<br>
+;> 
