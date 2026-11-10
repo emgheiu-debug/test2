@@ -24,4 +24,5 @@
 ;> dạo này a ít uống trà ròi e, tay a nhìn hơi gân guốc xíu, chắc có máu lại, đợt a bị thiếu máu<br>
 ;> a vs e gu âm nhạc khác nhau mà e, gu e kiểu nhạc cho ng hơi có tuổi xíu, mẹ a thì chắc cùng gu âm nhạc vs e<br>
 ;> a nói thật chứ ko chê gì e đâu<br>
-;> a giờ skinecare xong ròi xíu nữa là ngủ
+;> a giờ skinecare xong ròi xíu nữa là ngủ<br>
+;> vợ a cũng ngủ đi, a bùn ngủ ròi a ngủ trước nhe e, ngủ ngon
