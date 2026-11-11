@@ -3,4 +3,5 @@
 ;> xíu a iu nhắn nhe e<br>
 ;> e nữa làm vợ a đi, chứ e có chịu làm vợ ai khác ngoài a đâu<br>
 ;> ngủ chung a riết e nungfd chet lun<br>
-;> ở chung thì có nắc mà nắc ít hay nắc nhìu thôi e
+;> ở chung thì có nắc mà nắc ít hay nắc nhìu thôi e<br>
+;> nhìu khi có hứng thì đc a thưởng cho 1 tuần/5 lần thì sao e
