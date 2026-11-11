@@ -13,4 +13,4 @@
 ;> tối ngủ cái a bôi kem mụn kem sẹo các thứ, tại nghèo chứ có tiền a mua kem a sức 1 buổi tối là nữa tiếng lun e<br>
 ;> mặt a giờ thì cũng bớt mụn ròi e<br>
 ;> a làm chỗ này bùn ngủ thôi chứ làm chỗ khác ko bùn ngủ thì sao e<br>
-;>
+;> tưởng tượng đi làm về ăn cơm chung tối ngủ chung trả bài các thứ e thấy đã hong
