@@ -4,4 +4,6 @@
 ;> e nữa làm vợ a đi, chứ e có chịu làm vợ ai khác ngoài a đâu<br>
 ;> ngủ chung a riết e nungfd chet lun<br>
 ;> ở chung thì có nắc mà nắc ít hay nắc nhìu thôi e<br>
-;> nhìu khi có hứng thì đc a thưởng cho 1 tuần/5 lần thì sao e
+;> nhìu khi có hứng thì đc a thưởng cho 1 tuần/5 lần thì sao e<br>
+;> a sống 1 kiếp ng nhàm chán e à, tính tới thời điểm bây giờ chỉ có ăn ngủ ròi đi làm lặp đi lặp lại, mà ko làm thì móm<br>
+;> mà làm thì cũng chĩ đủ ăn
