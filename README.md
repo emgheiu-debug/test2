@@ -8,4 +8,5 @@
 ;> a sống 1 kiếp ng nhàm chán e à, tính tới thời điểm bây giờ chỉ có ăn ngủ ròi đi làm lặp đi lặp lại, mà ko làm thì móm<br>
 ;> mà làm thì cũng chĩ đủ ăn<br>
 ;> a đi tắm đã ròi xíu a nhắn nhe e<br>
-;> a thì a mún nhìu tiền sung túc, tuần nghỉ 2 ngày
+;> a thì a mún nhìu tiền sung túc, tuần nghỉ 2 ngày<br>
+;> mới giờ a bùn ngủ quá e
