@@ -6,4 +6,6 @@
 ;> ở chung thì có nắc mà nắc ít hay nắc nhìu thôi e<br>
 ;> nhìu khi có hứng thì đc a thưởng cho 1 tuần/5 lần thì sao e<br>
 ;> a sống 1 kiếp ng nhàm chán e à, tính tới thời điểm bây giờ chỉ có ăn ngủ ròi đi làm lặp đi lặp lại, mà ko làm thì móm<br>
-;> mà làm thì cũng chĩ đủ ăn
+;> mà làm thì cũng chĩ đủ ăn<br>
+;> a đi tắm đã ròi xíu a nhắn nhe e<br>
+;> a thì a mún nhìu tiền sung túc, tuần nghỉ 2 ngày
