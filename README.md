@@ -11,4 +11,6 @@
 ;> a thì a mún nhìu tiền sung túc, tuần nghỉ 2 ngày<br>
 ;> mới giờ a bùn ngủ quá e<br>
 ;> tối ngủ cái a bôi kem mụn kem sẹo các thứ, tại nghèo chứ có tiền a mua kem a sức 1 buổi tối là nữa tiếng lun e<br>
-;> mặt a giờ thì cũng bớt mụn ròi e
+;> mặt a giờ thì cũng bớt mụn ròi e<br>
+;> a làm chỗ này bùn ngủ thôi chứ làm chỗ khác ko bùn ngủ thì sao e<br>
+;>
