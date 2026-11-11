@@ -9,4 +9,5 @@
 ;> mà làm thì cũng chĩ đủ ăn<br>
 ;> a đi tắm đã ròi xíu a nhắn nhe e<br>
 ;> a thì a mún nhìu tiền sung túc, tuần nghỉ 2 ngày<br>
-;> mới giờ a bùn ngủ quá e
+;> mới giờ a bùn ngủ quá e<br>
+;> tối ngủ cái a bôi kem mụn kem sẹo các thứ, tại nghèo chứ có tiền a mua kem a sức 1 buổi tối là nữa tiếng lun e
