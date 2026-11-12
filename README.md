@@ -10,4 +10,5 @@
 ;> áo khoác đó thì chắc cũng cũng khá lâu mới có hàng ý e<br>
 ;> loanh quanh nửa năm gì đó nó mới có hàng e<br>
 ;> chỗ nào tốt hơn thì a vẫn phải nghĩ chỗ hiện tại chứ e, a làm vì tiền mà<br>
-;> e làm cty khác thì e làm vợ a thì a phụ e free cũng đc e
+;> e làm cty khác thì e làm vợ a thì a phụ e free cũng đc e<br>
+;> a giờ skinecare xong ròi chuẩn bị ngủ e
