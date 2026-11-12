@@ -11,4 +11,6 @@
 ;> loanh quanh nửa năm gì đó nó mới có hàng e<br>
 ;> chỗ nào tốt hơn thì a vẫn phải nghĩ chỗ hiện tại chứ e, a làm vì tiền mà<br>
 ;> e làm cty khác thì e làm vợ a thì a phụ e free cũng đc e<br>
-;> a giờ skinecare xong ròi chuẩn bị ngủ e
+;> a giờ skinecare xong ròi chuẩn bị ngủ e<br>
+;> skinecare cơ bản thôi e, ko có tiền để mà mua nhìu loại để mà tối sức kem mỹ phẩm hết nửa tiếng đồng hồ đâu e<br>
+;> a sức chừng 1 phút là xong tại nghèo mà e
