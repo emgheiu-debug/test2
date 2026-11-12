@@ -6,4 +6,6 @@
 ;> mà ko mua cũng đc e<br>
 ;> cũng tùy thôi e<br>
 ;> mắc quá thì cũng khê<br>
-;> giờ nghèo quá e ko biết khi nào mới khá đây
+;> giờ nghèo quá e ko biết khi nào mới khá đây<br>
+;> áo khoác đó thì chắc cũng cũng khá lâu mới có hàng ý e<br>
+;> loanh quanh nửa năm gì đó nó mới có hàng e
