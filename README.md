@@ -5,4 +5,5 @@
 ;> nghèo mà có kỷ niệm e<br>
 ;> a bùn ngủ quá e<br>
 ;> a đi tắm xíu a nhắn nhe vợ iu<br>
-;> vợ có thích ăn buffet thịt nướng hải sản gì hem e
+;> vợ có thích ăn buffet thịt nướng hải sản gì hem e<br>
+;> a chưa tiêm hpv nữa e, mốt có nắc thì đợi a tiêm hoặc hạn chế nắc lại
