@@ -6,4 +6,6 @@
 ;> a bùn ngủ quá e<br>
 ;> a đi tắm xíu a nhắn nhe vợ iu<br>
 ;> vợ có thích ăn buffet thịt nướng hải sản gì hem e<br>
-;> a chưa tiêm hpv nữa e, mốt có nắc thì đợi a tiêm hoặc hạn chế nắc lại
+;> a chưa tiêm hpv nữa e, mốt có nắc thì đợi a tiêm hoặc hạn chế nắc lại<br>
+;> bởi z giờ có nhìu tiền là cái gì a chưa làm là a làm hết<br>
+;> thu nhập a thấp thì phải đợi có tiền đã mới làm
