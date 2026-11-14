@@ -9,4 +9,6 @@
 ;> éo phải mà đi làm cày xong gửi về cho ông bà già đâu e<br>
 ;> nào giờ a cũng đâu phụ đóng tiền điện nước hay mua đồ ăn hay mua bảo hiểm xã hội gì cho ông bà già đâu e, có qua thì có lại thôi<br>
 ;> mẹ a nay thì cũng 60 ròi tuổi con dê mà chưa có mua bảo hiểm xã hội bao giờ<br>
-;> ko phải là bả có tiền mà bả làm bả cho ngta mượn hoặc vay xong bị giựt, hoặc là thấy ngta khổ mượn tiền giùm cái ngta giựt xong lãnh nợ
+;> ko phải là bả có tiền mà bả làm bả cho ngta mượn hoặc vay xong bị giựt, hoặc là thấy ngta khổ mượn tiền giùm cái ngta giựt xong lãnh nợ<br>
+;> nói chung là cuộc đời bã thì làm nợ thì nhìu á e, kiểu bị tin người á e, ai nói gì cũng tin, nghĩ xã hội ai cũng tốt<br>
+;> a đâu có tính như z đâu e
