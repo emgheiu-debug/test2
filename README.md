@@ -7,4 +7,6 @@
 ;> lương thì thấp mà thích làm sếp<br>
 ;> nói chung thì a có nhìu tiền hay ít tiền thì a vẫn lo cuộc sống của a thôi e<br>
 ;> éo phải mà đi làm cày xong gửi về cho ông bà già đâu e<br>
-;> nào giờ a cũng đâu phụ đóng tiền điện nước hay mua đồ ăn hay mua bảo hiểm xã hội gì cho ông bà già đâu e, có qua thì có lại thôi
+;> nào giờ a cũng đâu phụ đóng tiền điện nước hay mua đồ ăn hay mua bảo hiểm xã hội gì cho ông bà già đâu e, có qua thì có lại thôi<br>
+;> mẹ a nay thì cũng 60 ròi tuổi con dê mà chưa có mua bảo hiểm xã hội bao giờ<br>
+;> ko phải là bả có tiền mà bả làm bả cho ngta mượn hoặc vay xong bị giựt, hoặc là thấy ngta khổ mượn tiền giùm cái ngta giựt xong lãnh nợ
