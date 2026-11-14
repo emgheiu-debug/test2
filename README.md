@@ -14,4 +14,5 @@
 ;> a đâu có tính như z đâu e<br>
 ;> có ng ngta thiếu mẹ a cỡ 200 triệu mà ngta ko có khả năng trả mỗi tháng trả có 1 triệu mà đòi còn lếch lên lếch xuống<br>
 ;> đòi tới xuống lỗ luôn cũng ko hết vs đồng tiền bị mất giá do lạm phát nữa e<br>
-;> e là ở chung a là phải lo cho a ko là cũng giống như a đối xử vs mẹ a thôi
+;> e là ở chung a là phải lo cho a ko là cũng giống như a đối xử vs mẹ a thôi<br>
+;> a giờ ngủ à e, ngủ ngon nhe e
