@@ -11,4 +11,6 @@
 ;> mẹ a nay thì cũng 60 ròi tuổi con dê mà chưa có mua bảo hiểm xã hội bao giờ<br>
 ;> ko phải là bả có tiền mà bả làm bả cho ngta mượn hoặc vay xong bị giựt, hoặc là thấy ngta khổ mượn tiền giùm cái ngta giựt xong lãnh nợ<br>
 ;> nói chung là cuộc đời bã thì làm nợ thì nhìu á e, kiểu bị tin người á e, ai nói gì cũng tin, nghĩ xã hội ai cũng tốt<br>
-;> a đâu có tính như z đâu e
+;> a đâu có tính như z đâu e<br>
+;> có ng ngta thiếu mẹ a cỡ 200 triệu mà ngta ko có khả năng trả mỗi tháng trả có 1 triệu mà đòi còn lếch lên lếch xuống<br>
+;> đòi tới xuống lỗ luôn cũng ko hết vs đồng tiền bị mất giá do lạm phát nữa e
