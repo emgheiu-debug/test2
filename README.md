@@ -5,4 +5,5 @@
 ;> chắc mỗi tháng trích ra ít trăm gì đó để thi thôi e<br>
 ;> có mấy đứa làm lương thấp mà còn bị ảo danh nữa e<br>
 ;> lương thì thấp mà thích làm sếp<br>
-;>
+;> nói chung thì a có nhìu tiền hay ít tiền thì a vẫn lo cuộc sống của a thôi e<br>
+;> éo phải mà đi làm cày xong gửi về cho ông bà già đâu e<br>
