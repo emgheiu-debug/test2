@@ -7,3 +7,4 @@
 ;> lương thì thấp mà thích làm sếp<br>
 ;> nói chung thì a có nhìu tiền hay ít tiền thì a vẫn lo cuộc sống của a thôi e<br>
 ;> éo phải mà đi làm cày xong gửi về cho ông bà già đâu e<br>
+;> nào giờ a cũng đâu phụ đóng tiền điện nước hay mua đồ ăn hay mua bảo hiểm xã hội gì cho ông bà già đâu e, có qua thì có lại thôi
