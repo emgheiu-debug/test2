@@ -16,4 +16,7 @@
 ;> hôm nào a về quê nhắn e địa chỉ quán hightland ở quê để mình gặp nhau 1 cái đc ko ta<br>
 ;> chủ nhật a hơi buông thả 1 chút chứ ngày thường đi làm về uống 1 ly matcha cho đỡ ngứa mũi, xong 2 tiếng sau ăn tối ròi tắm rửa ngủ thôi e<br>
 ;> nếu mà e đi xa như z để gặp a thì hơi mệt cho e, quán hightland ở tân an, long an cũ á e<br>
-;> tại chạy chắc cũng 50km á e thậm chí hơn
+;> tại chạy chắc cũng 50km á e thậm chí hơn<br>
+;> bệnh của a thì xịt mũi hay uống thuốc gì 1 thời ngắn lại y như cũ thôi e<bt>
+;> nên uống matcha cho đỡ ngứa mũi thôi e, tùy chỗ ko phải chỗ nào uống cũng đỡ ngứa mũi<br>
+;>
