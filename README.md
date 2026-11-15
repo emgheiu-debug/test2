@@ -7,4 +7,5 @@
 ;> bây giờ a cho e thời hạn là từ bây giờ đến năm sau mà ko đi chơi chung là coi như ctay<br>
 ;> tới mùng 7 tháng 10 âm lịch năm sau ko đi chơi chung là a ctay e<br>
 ;> từ giờ tới năm sau mà ko đi chơi vs a là ctay, a quen con khác<br>
-;> mình tính ra ko phải người yêu thật gì của nhau đâu e
+;> mình tính ra ko phải người yêu thật gì của nhau đâu e<br>
+;> đúng ra là bạn tán gẫu chat online thôi e
