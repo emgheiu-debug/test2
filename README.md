@@ -19,4 +19,7 @@
 ;> tại chạy chắc cũng 50km á e thậm chí hơn<br>
 ;> bệnh của a thì xịt mũi hay uống thuốc gì 1 thời ngắn lại y như cũ thôi e<bt>
 ;> nên uống matcha cho đỡ ngứa mũi thôi e, tùy chỗ ko phải chỗ nào uống cũng đỡ ngứa mũi<br>
-;>
+;> xa quá ko có tiện cho mình thành ra là a mún đổi cty khác làm, 1 phần là để cải thiện thu nhập, đổi cho gần để tiện 2 mình gặp nhau<br>
+;> kiếm đc cty làm remote gần như fulltime thì càng tốt thôi e<br>
+;> khuya ròi e ngủ đi, a ngủ trước à, cty a làm khó khăn vụ đi trễ lắm e, nên a cũng ko thích lắm<br>
+;> ngủ sớm ko là mai dậy muộn e
