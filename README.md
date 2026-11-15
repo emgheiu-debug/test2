@@ -8,4 +8,5 @@
 ;> tới mùng 7 tháng 10 âm lịch năm sau ko đi chơi chung là a ctay e<br>
 ;> từ giờ tới năm sau mà ko đi chơi vs a là ctay, a quen con khác<br>
 ;> mình tính ra ko phải người yêu thật gì của nhau đâu e<br>
-;> đúng ra là bạn tán gẫu chat online thôi e
+;> đúng ra là bạn tán gẫu chat online thôi e<br>
+;> hay e mún quen mà mỗi năm gặp nhau 1 lần thôi
