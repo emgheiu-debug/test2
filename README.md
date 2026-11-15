@@ -11,4 +11,6 @@
 ;> đúng ra là bạn tán gẫu chat online thôi e<br>
 ;> hay e mún quen mà mỗi năm gặp nhau 1 lần thôi<br>
 ;> năm 2026 gặp 1 lần ròi 2027 gặp 1 lần thôi nhen, như vong z<br>
-;> a ko có ở sài gòn đâu lâu lâu a mới ghé, cũng ngại đi xa nữa, hơi có tuổi nên a hướng nội thích ở phòng hơn
+;> a ko có ở sài gòn đâu lâu lâu a mới ghé, cũng ngại đi xa nữa, hơi có tuổi nên a hướng nội thích ở phòng hơn<br>
+;> nay a uống trà + sáng ngủ nướng nên giờ này còn thức á ko là ngủ ròi<br>
+;> hôm nào a về quê nhắn e địa chỉ quán hightland ở quê để mình gặp nhau 1 cái đc ko ta
