@@ -13,4 +13,5 @@
 ;> năm 2026 gặp 1 lần ròi 2027 gặp 1 lần thôi nhen, như vong z<br>
 ;> a ko có ở sài gòn đâu lâu lâu a mới ghé, cũng ngại đi xa nữa, hơi có tuổi nên a hướng nội thích ở phòng hơn<br>
 ;> nay a uống trà + sáng ngủ nướng nên giờ này còn thức á ko là ngủ ròi<br>
-;> hôm nào a về quê nhắn e địa chỉ quán hightland ở quê để mình gặp nhau 1 cái đc ko ta
+;> hôm nào a về quê nhắn e địa chỉ quán hightland ở quê để mình gặp nhau 1 cái đc ko ta<br>
+;> chủ nhật a hơi buông thả 1 chút chứ ngày thường đi làm về uống 1 ly matcha cho đỡ ngứa mũi, xong 2 tiếng sau ăn tối ròi tắm rửa ngủ thôi e
