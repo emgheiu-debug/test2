@@ -6,4 +6,7 @@
 ;> a mập lên hay sao á, nhìn mặt a hơi bự<br>
 ;> <img width="1920" height="2560" alt="1794837387831_355417292016876579_8312341677704101526_9f5ba4a939d588b25d9dd134a417f48e" src="https://github.com/user-attachments/assets/1010ab43-6ebf-4438-bd16-c9d7da3712d9" /><br>
 ;> hồi mơi a mua ly này 65k mắc vãi<br>
-;> mà ăn cũng đc à, cơ bản là trái cây như xoài ngâm xí muội thì cái vị nó cũng ko khác gì mấy e
+;> mà ăn cũng đc à, cơ bản là trái cây như xoài ngâm xí muội thì cái vị nó cũng ko khác gì mấy e<br>
+<img width="1920" height="2560" alt="1794837387831_355417292016876579_8312341677704101526_9f5ba4a939d588b25d9dd134a417f48e" src="https://github.com/user-attachments/assets/1b97c60e-c63c-46e4-8177-de1337d36a99" /><br>
+;> a xài hơn 2 tháng còn nhiêu đây pin<br>
+;> ko phải mặc định 54 lần cái pin nó tụt 1% đâu e, có khi xài thêm 100 lần nữa nó mới tụt thêm 1% nữa, cũng tùy á e
