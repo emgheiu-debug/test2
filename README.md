@@ -10,4 +10,5 @@
 <img width="120" height="262" alt="1794838479115_355417292016876579_8312341677704101526_f604fcef24e8bc08231de5e1f43082c1" src="https://github.com/user-attachments/assets/6c0dd0ce-4459-43ab-9fc7-8f8eb46e34f4" /><br>
 ;> a xài hơn 2 tháng còn nhiêu đây pin<br>
 ;> ko phải mặc định 54 lần cái pin nó tụt 1% đâu e, có khi xài thêm 100 lần nữa nó mới tụt thêm 1% nữa, cũng tùy á e<br>
-;> nào ngủ chung cho mò vùng kín cái coi e
+;> nào ngủ chung cho mò vùng kín cái coi e<br>
+;> e nghe là khoái lắm
