@@ -4,4 +4,5 @@
 ;> a bùn ngủ quá e<br>
 ;> đi tắm đã xíu a nhắn nhe e<br>
 ;> mới mua ốp hơn củ về giặt 2 lần tại vì ăn đồ ăn xong cầm vô cầm cái ốp thấy rích rích tay<br>
-;> mua ốp xịn xong ko mún mua ốp khác lun đỡ tốn tiền e
+;> mua ốp xịn xong ko mún mua ốp khác lun đỡ tốn tiền e<br>
+;> mua ngay dịp sale đỡ đc 100k e
