@@ -2,4 +2,5 @@
 ;> a thích ăn cá bóp, cá chim, tại nó ít xương nó ngon e, cá bóp ngta hay nấu lẩu ý e<br>
 ;> còn cá chim thì chiên ăn béo ngọt thịt<br>
 ;> a bùn ngủ quá e<br>
-;> đi tắm đã xíu a nhắn nhe e
+;> đi tắm đã xíu a nhắn nhe e<br>
+;> mới mua ốp hơn củ về giặt 2 lần tại vì ăn đồ ăn xong cầm vô cầm cái ốp thấy rích rích tay
