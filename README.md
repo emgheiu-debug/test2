@@ -1,4 +1,2 @@
-;> nãy giờ a luxubu xíu<br>
-;> a tắm ròi nhắn xíu a ngủ<br>
-;> nay a hơi bùn nhẹ, tự dưng bùn z thôi e<br>
-;> thôi a ngủ à e
+;> a nhô e<br>
+;> xíu a cơm nước xong a nhắn nhe e
