@@ -4,4 +4,4 @@
 ;> để côi a hết khúc nghèo khổ ko hay vừa già vừa nghèo e<br>
 ;> a giờ đi tắm nhe e, lát nhắn xíu ròi ngủ<br>
 ;> a giờ skinecare đầy đủ xong ngủ e<br>
-;> 
+;> thôi ngủ đi e, a bùn ngủ ròi, ngủ ngon vợ
