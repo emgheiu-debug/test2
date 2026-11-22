@@ -19,4 +19,7 @@
 ;> còn con già hơn 40 làm giảng viên thì nó ít đi làm lắm nên thành ra nó rảnh vãi đái lun e<br>
 ;> lên mạng xàm lồn, ảo tưởng dạy đời từ năm này qua năm khác mà nó ko biết chán lun e<br>
 ;> trong khi nó càng có tuổi càng già nữa nó bệnh đau mà éo có đồng bạc nào trong người, vay cũng éo ai cho =)))<br>
-;> nữa bệnh nặng quá thì nằm 1 chỗ chet tại phòng trọ lun cũng đc e, cho hàng xóm hửi thúi quá thì ngta đem đi chôn thôi e
+;> nữa bệnh nặng quá thì nằm 1 chỗ chet tại phòng trọ lun cũng đc e, cho hàng xóm hửi thúi quá thì ngta đem đi chôn thôi e<br>
+;> chứ ko lẽ để hửi thúi đến khi nào mà nó hết mùi thì thôi sao e<br>
+;> tầm hơn 40 là hầu như là ngta đều có bệnh hết e, mà bệnh nhẹ ko nghiêm trọng hay nặng thôi e<br>
+;> bệnh sơ sơ cũng có như mỡ nội tạng, huyết áp cao thấp gì đó e,...
