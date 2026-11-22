@@ -23,4 +23,4 @@
 ;> còn giựt thì cả đời này ko vay tiêu dùng đc nữa e, ko trả góp, hay vay tiền góp đc nữa<br>
 ;> cũng ko có tài sản đất đai gì để mà vay ngân hàng, nghèo z mà đợt a nhớ mua quần áo ê hề + đổi con lead vàng trứng gà thành con vision đỏ =)))<br>
 ;> đúng là người ngu tính toán có khác e<br>
-;> 
+;> chắc ý là chê con lead vàng trứng gà cũ quá đổi con xe tầm phân khúc mà nó mới mới xíu để phong bạc ý e
