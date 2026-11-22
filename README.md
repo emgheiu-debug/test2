@@ -1,5 +1,3 @@
-;> sắp tết ròi e<br>
-;> mai a bận chút chiều chiều có rảnh a nhắn nhe e<br>
-;> lễ nghỉ 24/11 ko biết rảnh làm gì e, vô quán nước ngồi cho hết ngày quá<br>
-;> a ăn xoài non giờ hơi đau bụng nhẹ, giờ bùn ngủ nữa e<br>
-;> bth e tự nấu ăn hay ăn tiệm e
+;> black friday gì kìa e, có săn sale hem<br>
+;> chiều a đi chạy bộ nữa<br>
+;> a đủ nhu cầu ròi chắc ko mua nữa, cũng tại nghèo
