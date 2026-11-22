@@ -6,4 +6,5 @@
 ;> 24/11 chắc a chạy buổi sáng quá<br>
 ;> a iu bận xíu nhe e, lát a nhắn<be>
 ;> để năm sau a mua con xe chừng 125cc thôi để đi đường dài cho khỏe e<br>
-;> quan trọng là phải nghỉ chỗ hiện tại tìm chỗ tốt hơn đã e
+;> quan trọng là phải nghỉ chỗ hiện tại tìm chỗ tốt hơn đã e<br>
+;> thu nhập tốt kìa mới sống tốt đc e, ko thì bình bình đủ sống qua ngày nữa già ròi khổ
