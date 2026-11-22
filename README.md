@@ -17,4 +17,10 @@
 ;> học phí hằng năm nữa 2 đứa thì phải X2 lên<br>
 ;> loạn quạng là vay nợ ròi giựt mấy app như con giáo viên già hơn 40 đeo a hồi ngày xưa a học đó e<br>
 ;> nó vay app ròi nó giựt đó e<br>
-;> bị dính nợ xấu ròi, ko có tài sản qq gì nữa cũng éo ai thân thích mà cho nó mượn tiền nữa e
+;> bị dính nợ xấu ròi, ko có tài sản qq gì nữa cũng éo ai thân thích mà cho nó mượn tiền nữa e<br>
+;> đóng trễ thì bị phạt lãi đó e<br>
+;> nếu có đóng tiền thì chắc tiền lãi no lun ấm lun =)))<br>
+;> còn giựt thì cả đời này ko vay tiêu dùng đc nữa e, ko trả góp, hay vay tiền góp đc nữa<br>
+;> cũng ko có tài sản đất đai gì để mà vay ngân hàng, nghèo z mà đợt a nhớ mua quần áo ê hề + đổi con lead vàng trứng gà thành con vision đỏ =)))<br>
+;> đúng là người ngu tính toán có khác e<br>
+;> 
