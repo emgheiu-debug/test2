@@ -11,4 +11,5 @@
 ;> tiền ít quá sống ko có vui vẻ gì hết e, mỗi lần mua cái gì là phải suy nghĩ coi mình có thực sự cần nó hay ko, ròi cân đo đông đếm coi xài có kịp tới tháng lương kế hay ko, ròi làm nhận lương trừ chi phí thấy dư có nhiu đây ròi sao khá,....<br>
 ;> ròi mún mua gì nhìu khi ko có tiền phải đi mượn, nhìu cái a mún có mà ko có khả năng mua,...<br>
 ;> mỗi tháng có cái gì phát sinh thêm là bị hụt tiền<br>
+;> có ngưởi mức sống ngta thấp thì ngta chỉ cần có việc để làm dư chút đỉnh là ngta hài lòng ngta vui ròi, còn a thì ko <br>
 ;>
