@@ -27,4 +27,5 @@
 ;> như a mà là nó thì để con xe cũ chạy lun ko có đổi xe<br>
 ;> làm giảng viên hồi đó chắc làm loanh quanh 5 triệu à e, tại ko có đi làm gì nhìu ý e<br>
 ;> 1 tuần làm như nó dạy có vài tiết còn nhiu nó rảnh ko à, ròi nó lên mạng nó xàm lòn tối ngày<br>
-;> mà ngày xưa a đi học phí trường a rất là thấp, loanh quanh 7 triệu/ kì à, sao mà trả lương cho giảng viên cao đc e, trong khi 1 tuần nó làm chừng có 1-2 ngày =)))
+;> mà ngày xưa a đi học phí trường a rất là thấp, loanh quanh 7 triệu/ kì à, sao mà trả lương cho giảng viên cao đc e, trong khi 1 tuần nó làm chừng có 1-2 ngày =)))<br>
+;> tuần đi làm 1-2 ngày còn nhiu là ở không, không làm gì cả hầu như là z e
