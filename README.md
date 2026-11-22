@@ -31,4 +31,5 @@
 ;> tuần đi làm 1-2 ngày còn nhiu là ở không, không làm gì cả hầu như là z e<br>
 ;> thì con mẹ giảng viên già hơn 40 đó ráng đeo đc cái bằng Thạc sĩ để đi dạy tại trường đại học cho nó ổn định đó e<br>
 ;> thường thường mà công việc nó ổn định thường là làm nhà nước, 2 là văn phòng tại KCN, 3 là doanh nghiệp nó thiếu người khó tuyển<br>
-;> a thấy z, dưới quê a,a thấy mấy bà hơn 40 chục còn làm công nhân phà phà đây e, trong khi đại học thì hơn 35 họ ngại tuyển thích trẻ hơn
+;> a thấy z, dưới quê a,a thấy mấy bà hơn 40 chục còn làm công nhân phà phà đây e, trong khi đại học thì hơn 35 họ ngại tuyển thích trẻ hơn<br>
+;> ròi còn có người công nhân họ làm ở KCN từ lúc nó mới mở làm 19 năm nghỉ xong rút bảo hiểm 1 lần đc loanh quanh 200 triệu gì đó e
