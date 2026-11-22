@@ -7,4 +7,6 @@
 ;> a iu bận xíu nhe e, lát a nhắn<be>
 ;> để năm sau a mua con xe chừng 125cc thôi để đi đường dài cho khỏe e<br>
 ;> quan trọng là phải nghỉ chỗ hiện tại tìm chỗ tốt hơn đã e<br>
-;> thu nhập tốt kìa mới sống tốt đc e, ko thì bình bình đủ sống qua ngày nữa già ròi khổ
+;> thu nhập tốt kìa mới sống tốt đc e, ko thì bình bình đủ sống qua ngày nữa già ròi khổ<br>
+;> tiền ít quá sống ko có vui vẻ gì hết e, mỗi lần mua cái gì là phải suy nghĩ coi mình có thực sự cần nó hay ko, ròi cân đo đông đếm coi xài có kịp tới tháng lương kế hay ko, ròi làm nhận lương trừ chi phí thấy dư có nhiu đây ròi sao khá,....<br>
+;> 
