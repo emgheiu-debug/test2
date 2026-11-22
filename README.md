@@ -28,4 +28,7 @@
 ;> làm giảng viên hồi đó chắc làm loanh quanh 5 triệu à e, tại ko có đi làm gì nhìu ý e<br>
 ;> 1 tuần làm như nó dạy có vài tiết còn nhiu nó rảnh ko à, ròi nó lên mạng nó xàm lòn tối ngày<br>
 ;> mà ngày xưa a đi học phí trường a rất là thấp, loanh quanh 7 triệu/ kì à, sao mà trả lương cho giảng viên cao đc e, trong khi 1 tuần nó làm chừng có 1-2 ngày =)))<br>
-;> tuần đi làm 1-2 ngày còn nhiu là ở không, không làm gì cả hầu như là z e
+;> tuần đi làm 1-2 ngày còn nhiu là ở không, không làm gì cả hầu như là z e<br>
+;> thì con mẹ giảng viên già hơn 40 đó ráng đeo đc cái bằng Thạc sĩ để đi dạy tại trường đại học cho nó ổn định đó e<br>
+;> thường thường mà công việc nó ổn định thường là làm nhà nước, 2 là văn phòng tại KCN, 3 là doanh nghiệp nó thiếu người khó tuyển<br>
+;> a thấy z, dưới quê a,a thấy mấy bà hơn 40 chục còn làm công nhân phà phà đây e, trong khi đại học thì hơn 35 họ ngại tuyển thích trẻ hơn
