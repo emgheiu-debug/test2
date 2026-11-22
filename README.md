@@ -22,4 +22,5 @@
 ;> nữa bệnh nặng quá thì nằm 1 chỗ chet tại phòng trọ lun cũng đc e, cho hàng xóm hửi thúi quá thì ngta đem đi chôn thôi e<br>
 ;> chứ ko lẽ để hửi thúi đến khi nào mà nó hết mùi thì thôi sao e<br>
 ;> tầm hơn 40 là hầu như là ngta đều có bệnh hết e, mà bệnh nhẹ ko nghiêm trọng hay nặng thôi e<br>
-;> bệnh sơ sơ cũng có như mỡ nội tạng, huyết áp cao thấp gì đó e,...
+;> bệnh sơ sơ cũng có như mỡ nội tạng, huyết áp cao thấp gì đó e,...<br>
+;> mà khuya ròi ngủ đi e, ngủ ngon nhe vợ iu
