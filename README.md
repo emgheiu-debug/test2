@@ -12,4 +12,6 @@
 ;> ròi mún mua gì nhìu khi ko có tiền phải đi mượn, nhìu cái a mún có mà ko có khả năng mua,...<br>
 ;> mỗi tháng có cái gì phát sinh thêm là bị hụt tiền<br>
 ;> có ngưởi mức sống ngta thấp thì ngta chỉ cần có việc để làm dư chút đỉnh là ngta hài lòng ngta vui ròi, còn a thì ko <br>
-;>
+;> nhìu khi như z thôi là ngta nghĩ ngta mún gắn bó vs doanh nghiệp đó cả đời lun e<br>
+;> cái đó cũng coi như là sướng trước khổ sau thôi e, nữa già có gia đình con cái ko có lo nổi thôi 1 đứa 1 cái laptop 1 chiếc xe, 1 cái điện thoại<br>
+;> học phí hằng năm nữa 2 đứa thì phải X2 lên
