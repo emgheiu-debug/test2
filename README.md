@@ -12,4 +12,9 @@
 ;> nghèo nhưng mà có ăn lai rai đỡ hơn móm, để a coi chỗ nào thơm hơn nhìu nhìu đi a nghỉ chỗ này<br>
 ;> định mua cái kính cường lực mới mà, cái kính mới dán đây xài có hơn 2 tháng ko nhẽ bỏ cũng phí chắc năm sau a mua<br>
 ;> a sài kính chống nhìn trộm để camera bằng cơm trong cty ko dòm, dặc biệt là những con đàn bà rất là nhìu chuyện lại để ý, đàn ông z chứ nó ít có nhìu chuyện e<br>
-;> nghèo ổn định thì mua đồ góp đc e, để a kiếm chỗ nào giàu mà bất ổn lương cao thì làm trả góp 80% 90% thôi e, chứ góp 10% nó cho thôi việc là nợ xấu thấy mịa
+;> nghèo ổn định thì mua đồ góp đc e, để a kiếm chỗ nào giàu mà bất ổn lương cao thì làm trả góp 80% 90% thôi e, chứ góp 10% nó cho thôi việc là nợ xấu thấy mịa<br>
+;> job ổn định thì trả góp 10% -50% e, còn ko ổn định thì góp 80-90% <br>
+;> mua góp 0% lãi xuất e nói z chứ góp 0% thì nó vẫn hời hơn là mình đợi đủ tiền nó trả thẳng<br>
+;> vs ít bị áp lực thoải mái hơn e, kiểu như là 1 tháng đặt chỉ tiêu là phải để dành 4-5 triệu thì nó áp lực hơn<br>
+;> z mà nó nhẹ đầu vs vui vẻ hơn<br>
+;> a thì a thích mua nhà mặt đất ý e, nữa để dành lại cho con, vs lại nhà mặt đất thì a thấy nó thoải mái hơn chung cư, a coi tóptóp gia dình shipper mua căn nhà 1tỷ8 nhà 12m2 nên a nghĩ z
