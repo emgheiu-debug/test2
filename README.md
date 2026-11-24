@@ -7,4 +7,6 @@
 ;> 12 ngày phép năm + 13 ngày nghĩ lễ có lương hết á e, nếu mà theo đúng luật<br>
 ;> 1 tháng nghỉ ngày nó trừ lương bà nó<br>
 ;> đúng ra là lấy phép năm trừ cho đến khi nào hết mới trừ lương mà có nghỉ là nó trừ á e<br>
-;> bởi z a mún nghỉ chỗ này e, a cũng mún làm ở chổ mà gắn bó tới khi có gia đình tới tuổi nghỉ hưu mà cuộc đời không cho phép =)))
+;> bởi z a mún nghỉ chỗ này e, a cũng mún làm ở chổ mà gắn bó tới khi có gia đình tới tuổi nghỉ hưu mà cuộc đời không cho phép =)))<br>
+;> lương tháp, phúc lợi kém nhưng mà làm rề rề đc, vs cũng ổn định e<br>
+;> nghèo nhưng mà có ăn lai rai đỡ hơn móm, để a coi chỗ nào thơm hơn nhìu nhìu đi a nghỉ chỗ này
