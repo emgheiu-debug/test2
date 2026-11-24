@@ -4,4 +4,7 @@
 ;> nay nghĩ lễ mà tưởng cuối tuần ko á e, tại chỗ a làm nghỉ có 1 ngày à, lại ko có 12 ngày phép năm nữa<br>
 <img width="364" height="71" alt="image" src="https://github.com/user-attachments/assets/c0f4a2a9-e26e-430c-9990-e43046b40284" /><br>
 ;> đáng lẽ nghỉ 25 ngày có lương mà cty loèn này ko có e<br>
-;> 12 ngày phép năm + 13 ngày nghĩ lễ có lương hết á e, nếu mà theo đúng luật
+;> 12 ngày phép năm + 13 ngày nghĩ lễ có lương hết á e, nếu mà theo đúng luật<br>
+;> 1 tháng nghỉ ngày nó trừ lương bà nó<br>
+;> đúng ra là lấy phép năm trừ cho đến khi nào hết mới trừ lương mà có nghỉ là nó trừ á e<br>
+;> bởi z a mún nghỉ chỗ này e, a cũng mún làm ở chổ mà gắn bó tới khi có gia đình tới tuổi nghỉ hưu mà cuộc đời không cho phép =)))
