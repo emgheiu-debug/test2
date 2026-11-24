@@ -17,4 +17,6 @@
 ;> mua góp 0% lãi xuất e nói z chứ góp 0% thì nó vẫn hời hơn là mình đợi đủ tiền nó trả thẳng<br>
 ;> vs ít bị áp lực thoải mái hơn e, kiểu như là 1 tháng đặt chỉ tiêu là phải để dành 4-5 triệu thì nó áp lực hơn<br>
 ;> z mà nó nhẹ đầu vs vui vẻ hơn<br>
-;> a thì a thích mua nhà mặt đất ý e, nữa để dành lại cho con, vs lại nhà mặt đất thì a thấy nó thoải mái hơn chung cư, a coi tóptóp gia dình shipper mua căn nhà 1tỷ8 nhà 12m2 nên a nghĩ z
+;> a thì a thích mua nhà mặt đất ý e, nữa để dành lại cho con, vs lại nhà mặt đất thì a thấy nó thoải mái hơn chung cư, a coi tóptóp gia dình shipper mua căn nhà 1tỷ8 nhà 12m2 nên a nghĩ z<br>
+;> mình ở chung chủ yếu ăn nhà lâu lâu hoặc thỉnh thoảng ăn tiệm e<br>
+;>
