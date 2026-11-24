@@ -8,4 +8,5 @@
 ;> a cũng mún ăn chay lắm mà lỡ ăn mặn ròi e, mốt mình để ý mình ăn chay theo ngta đi e, mấy ngày rằm ý e<br>
 ;> mốt mua vàng đeo đi e, đeo bạc ko có giá trị, a thấy ngta đeo vàng nhìn sang hơn á<br>
 ;> a lu bu xíu nhe e, nhắn sau<br>
-;> a giờ skinecare chuẩn bị ngủ ròi e, thức khuya quá mai dậy bùn ngủ lắm e
+;> a giờ skinecare chuẩn bị ngủ ròi e, thức khuya quá mai dậy bùn ngủ lắm e<br>
+;> a ngủ nhe e, ngủ ngon  e
