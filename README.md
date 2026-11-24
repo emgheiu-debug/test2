@@ -9,4 +9,6 @@
 ;> đúng ra là lấy phép năm trừ cho đến khi nào hết mới trừ lương mà có nghỉ là nó trừ á e<br>
 ;> bởi z a mún nghỉ chỗ này e, a cũng mún làm ở chổ mà gắn bó tới khi có gia đình tới tuổi nghỉ hưu mà cuộc đời không cho phép =)))<br>
 ;> lương tháp, phúc lợi kém nhưng mà làm rề rề đc, vs cũng ổn định e<br>
-;> nghèo nhưng mà có ăn lai rai đỡ hơn móm, để a coi chỗ nào thơm hơn nhìu nhìu đi a nghỉ chỗ này
+;> nghèo nhưng mà có ăn lai rai đỡ hơn móm, để a coi chỗ nào thơm hơn nhìu nhìu đi a nghỉ chỗ này<br>
+;> định mua cái kính cường lực mới mà, cái kính mới dán đây xài có hơn 2 tháng ko nhẽ bỏ cũng phí chắc năm sau a mua<br>
+;> a sài kính chống nhìn trộm để camera bằng cơm trong cty ko dòm, dặc biệt là những con đàn bà rất là nhìu chuyện lại để ý, đàn ông z chứ nó ít có nhìu chuyện e
