@@ -23,4 +23,4 @@
 <img width="308" height="389" alt="image" src="https://github.com/user-attachments/assets/ef472452-176f-421d-ac83-dc47f034be5e" /><br>
 ;> ráng phấn đấu mua căn nhà mặt đất rộng rộng tí cho thoải mái e, ko nhất thiết phải rộng để có ôtô chạy vào e<br>
 ;> rằm e có ăn chay hem e<br>
-;>
+;> a cũng mún ăn chay lắm mà lỡ ăn mặn ròi e, mốt mình để ý mình ăn chay theo ngta đi e, mấy ngày rằm ý e
