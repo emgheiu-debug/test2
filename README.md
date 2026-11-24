@@ -19,4 +19,4 @@
 ;> z mà nó nhẹ đầu vs vui vẻ hơn<br>
 ;> a thì a thích mua nhà mặt đất ý e, nữa để dành lại cho con, vs lại nhà mặt đất thì a thấy nó thoải mái hơn chung cư, a coi tóptóp gia dình shipper mua căn nhà 1tỷ8 nhà 12m2 nên a nghĩ z<br>
 ;> mình ở chung chủ yếu ăn nhà lâu lâu hoặc thỉnh thoảng ăn tiệm e<br>
-;>
+;> nhà mặt đất mới có giá trị e, chung cư thì vài chục năm nó xuống cấp như mấy chung cư cũ ở sài gòn z e
