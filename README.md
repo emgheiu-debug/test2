@@ -6,4 +6,7 @@
 ;> mà cũng chả đáng bao nhiu mà nó thoải mái hơn<br>
 ;> a thì tính a ko thích ng khác tò mò chuyện của mình<br>
 ;> chắc nay a ngủ sớm xíu thức hơi khuya sáng bùn ngủ lắm e<br>
-;> kính chống nhìn trộm thì nó ko đẹp bằng kính trong e
+;> kính chống nhìn trộm thì nó ko đẹp bằng kính trong e<br>
+;> tại lương a ít nên mua đồ phải cân chi phí ý e<br>
+;> a mún dư nhìu nên thành ra a bị trùm sò, tính toán<br>
+;> vật chất quyết định ý thức mà e, lỡ sau này a có tiền a sài sang ròi sao, giờ nghèo mà a cũng sang sang ròi đó e
