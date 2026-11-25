@@ -5,4 +5,5 @@
 ;> a mún đổi cái kính chống nhìn trộm, mà cái kính hiện tại còn mới bỏ thì phí quá e<br>
 ;> mà cũng chả đáng bao nhiu mà nó thoải mái hơn<br>
 ;> a thì tính a ko thích ng khác tò mò chuyện của mình<br>
-;> chắc nay a ngủ sớm xíu thức hơi khuya sáng bùn ngủ lắm e
+;> chắc nay a ngủ sớm xíu thức hơi khuya sáng bùn ngủ lắm e<br>
+;> kính chống nhìn trộm thì nó ko đẹp bằng kính trong e
