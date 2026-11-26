@@ -11,4 +11,5 @@
 ;> mắc nợ thì giựt là xong thôi mà con già này làm thấy ớn hen e<br>
 ;> nó bày ngta giựt app tới giờ nó giựt cái nó stress e<br>
 ;> xạo loèn riết quen, đó a nhớ nó bày giựt tiền app xong xóa app bỏ sim gì gì đó<br>
-;> giựt app thì mốt ko có vay tiền vs góp đồ đc thôi tại bị nợ xấu ròi e
+;> giựt app thì mốt ko có vay tiền vs góp đồ đc thôi tại bị nợ xấu ròi e<br>
+;> a giờ bùn ngủ quá e
