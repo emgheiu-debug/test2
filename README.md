@@ -15,4 +15,5 @@
 ;> a giờ bùn ngủ quá e<br>
 ;> giờ vay tiền là nó lưu lại hết ròi e, tra là ra thôi e<br>
 ;> mua góp giờ đóng trễ thì nó tính lãi thôi e, bởi z e thấy cty nào cho vay giàu vs duy trì cũng có lý do cả e<br>
-;> ai cũng giựt tiền thì nó phá sản mất ròi e
+;> ai cũng giựt tiền thì nó phá sản mất ròi e<br>
+;> đâu ai mở cty tài chính cho vay, ngân hàng cho vay để bị giựt ròi phá sản đâu e
