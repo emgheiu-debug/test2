@@ -1,2 +1,7 @@
 ;> a nhô e<br>
-;> cơm nước xong a iu nhắn nhe e
+;> cơm nước xong a iu nhắn nhe e<br>
+;> a mong hết năm để mau bước sang năm mới e<br>b vb
+;> a ko mua kính nhìn trộm tại a đi đường nhìn góc nghiêng thì ko thấy nên ko mua<br>
+;> kính đang sài cũ trầy đi ròi a mua cái mới<br>
+;> mua là lỏ ròi e đi đường ko có nhìn ggmap đc<br>
+;> 
