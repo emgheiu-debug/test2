@@ -18,4 +18,6 @@
 ;> ai cũng giựt tiền thì nó phá sản mất ròi e<br>
 ;> đâu ai mở cty tài chính cho vay, ngân hàng cho vay để bị giựt ròi phá sản đâu e<br>
 ;> dưới quê a có mấy người giựt tiền bị nhắn tin đe dọa, ròi cho nhân viên xuống kiếm tới nhà á e<br>
-;> e nữa ngủ lượt giờ vs a đi
+;> e nữa ngủ lượt giờ vs a đi<br>
+;> mà e ngủ trễ cũng đc, ngủ lượt cho vui e, chứ người ngủ người thức + yêu xa nữa bị cô đơn<br>
+;> còn ở chung nằm kế thì ngủ lệch giờ nhau cũng đc e
