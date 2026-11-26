@@ -14,4 +14,5 @@
 ;> giựt app thì mốt ko có vay tiền vs góp đồ đc thôi tại bị nợ xấu ròi e<br>
 ;> a giờ bùn ngủ quá e<br>
 ;> giờ vay tiền là nó lưu lại hết ròi e, tra là ra thôi e<br>
-;>
+;> mua góp giờ đóng trễ thì nó tính lãi thôi e, bởi z e thấy cty nào cho vay giàu vs duy trì cũng có lý do cả e<br>
+;> ai cũng giựt tiền thì nó phá sản mất ròi e
