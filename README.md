@@ -20,4 +20,5 @@
 ;> dưới quê a có mấy người giựt tiền bị nhắn tin đe dọa, ròi cho nhân viên xuống kiếm tới nhà á e<br>
 ;> e nữa ngủ lượt giờ vs a đi<br>
 ;> mà e ngủ trễ cũng đc, ngủ lượt cho vui e, chứ người ngủ người thức + yêu xa nữa bị cô đơn<br>
-;> còn ở chung nằm kế thì ngủ lệch giờ nhau cũng đc e
+;> còn ở chung nằm kế thì ngủ lệch giờ nhau cũng đc e<br>
+;> mà thôi khuya ròi ngủ đi e<br>
