@@ -4,4 +4,6 @@
 ;> a ko mua kính nhìn trộm tại a đi đường nhìn góc nghiêng thì ko thấy nên ko mua<br>
 ;> kính đang sài cũ trầy đi ròi a mua cái mới<br>
 ;> mua là lỏ ròi e đi đường ko có nhìn ggmap đc<br>
-;> mong mau hết khúc nghèo đi e
+;> mong mau hết khúc nghèo đi e<br>
+;> mong tới năm 2028 cho nghiệp quật con già a ghép cho lòi lồn nó, nó tuổi khỉ mà e<br>
+;>
