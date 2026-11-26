@@ -12,4 +12,6 @@
 ;> nó bày ngta giựt app tới giờ nó giựt cái nó stress e<br>
 ;> xạo loèn riết quen, đó a nhớ nó bày giựt tiền app xong xóa app bỏ sim gì gì đó<br>
 ;> giựt app thì mốt ko có vay tiền vs góp đồ đc thôi tại bị nợ xấu ròi e<br>
-;> a giờ bùn ngủ quá e
+;> a giờ bùn ngủ quá e<br>
+;> giờ vay tiền là nó lưu lại hết ròi e, tra là ra thôi e<br>
+;>
