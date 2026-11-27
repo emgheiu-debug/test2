@@ -13,4 +13,6 @@
 ;> xíu a rảnh a nhắn nhe e<br>
 ;> đời người sống chừng 80 tuổi đi thì e còn ngủ vs a đc hơn 45 năm thôi e<br>
 ;> thỉnh thoảng a nghĩ lại a nghèo cái a bùn bùn sao á e<br>
-;>
+;> cty hiện tại thì lương thấp a biết là làm lâu cũng éo lên lương đâu e<br>
+;> lương chỗ này nằm ngang á e<br>
+;> còn xin cty ngon giàu thì bây giờ khó
