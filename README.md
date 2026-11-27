@@ -31,4 +31,6 @@
 ;> cơ bản là ngta thiếu ng họ mới tuyển người thôi e, chứ ko lẽ đủ người tuyển vô ngồi ko lãnh lương<br>
 ;> giờ a iu của e nghĩ tới tết là thấy mệt ngang à<br>
 ;> mún mau hết năm hết tháng mà nghỉ tới tết cái tiền đình lun e<br>
-;> tại éo có tiền, đi làm cũng nghèo thôi e
+;> tại éo có tiền, đi làm cũng nghèo thôi e<br>
+;> mỗi lần mà nghỉ tới 1 năm mình làm có nhiu đó tiền là a mún stress tới nơi, nghỉ tới là thấy mệt đầu e<br>
+;> còn ko nghĩ tới thì nhẹ đầu, sống vô tri z mà nó khỏe
