@@ -36,4 +36,6 @@
 ;> mỗi lần mà nghỉ tới 1 năm mình làm có nhiu đó tiền là a mún stress tới nơi, nghỉ tới là thấy mệt đầu e<br>
 ;> còn ko nghĩ tới thì nhẹ đầu, sống vô tri z mà nó khỏe<br>
 ;> nghĩ tới tiền ít là stress thôi e<br>
-;> tiền nhìu thì có lương cái là vui vẻ ngay e
+;> tiền nhìu thì có lương cái là vui vẻ ngay e<br>
+;> bùn vui đồ ảnh hưởng tới tâm trạng ăn uống lắm chứ e, bùn thì đi làm đi thẳng về phòng ko ăn vặt mua đồ ăn ngoài gì nhìu<br>
+;> vui thì mún ăn nhìu chứ e
