@@ -29,4 +29,6 @@
 ;> ví dụ như cty ngta thiếu người, ngta bị dồn việc thì ngta mới tuyển người thôi e<br>
 ;> ví dụ như ngta mún mở rộng cty tăng doanh thu + làm việc vặt + giao hàng thì ngta tuyển sale, bên bộ phận kế toán bị dồn việc thì họ tuyển kế toán, ngta mún chạy quảng cáo, để quảng bá thương hiệu thì ngta tuyển marketing,...<br>
 ;> cơ bản là ngta thiếu ng họ mới tuyển người thôi e, chứ ko lẽ đủ người tuyển vô ngồi ko lãnh lương<br>
-;> giờ a iu của e nghĩ tới tết là thấy mệt ngang à
+;> giờ a iu của e nghĩ tới tết là thấy mệt ngang à<br>
+;> mún mau hết năm hết tháng mà nghỉ tới tết cái tiền đình lun e<br>
+;> tại éo có tiền, đi làm cũng nghèo thôi e
