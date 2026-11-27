@@ -41,4 +41,6 @@
 ;> vui thì mún ăn nhìu chứ e<br>
 ;> hồi đó a đi làm lương thấp quá nhìu khi a đi làm mà lãnh lương nhìn con số thấy mắc cười =)))<br>
 ;> mà ko đi làm thì móm tại làm đủ ăn có nhiu đó ngày à e, nghỉ thì hết tiền móm chứ sao e<br>
-;> ngta đi làm 1 tháng ăn đc 2-3 tháng có bị chậm lương cũng éo nó sốt ruột như mình
+;> ngta đi làm 1 tháng ăn đc 2-3 tháng có bị chậm lương cũng éo nó sốt ruột như mình<br>
+;> thời buổi giờ ko tiền mới khổ e<br>
+;> thôi khuya ròi ngủ đi e, mai a nhắn tiếp
