@@ -19,4 +19,5 @@
 ;> đi làm ở đâu cũng z mình ko làm đc việc hay tạo giá trị gì cho ngta, thì ngta cũng cho mình nghỉ thôi e, phải ngồi ko ngửa tay xin tiền thì mang ơn<br>
 ;> đi làm ko đc việc chưa đc 1 tháng là cho cút ròi e, chứ ở đó mà làm công mà mang ơn<br>
 ;> làm éo đc việc hay éo mang lại giá trị cho ngta thì ngta cũng kì kèo tiền bạc lắm e<br>
-;>
+;> đi làm thì tiền bạc sòng phẳng thôi e, chứ ngta đâu có nghĩa vụ phải nuôi mình hay tạo công ăn chuyện làm cho mình đâu, làm ko đc việc thì cho nghỉ thôi<br>
+;> chứ ai đâu mà thừa tiền vung tiền ra cho mình ngồi ko có tiền e
