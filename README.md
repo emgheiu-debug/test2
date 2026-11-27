@@ -22,4 +22,5 @@
 ;> đi làm thì tiền bạc sòng phẳng thôi e, chứ ngta đâu có nghĩa vụ phải nuôi mình hay tạo công ăn chuyện làm cho mình đâu, làm ko đc việc thì cho nghỉ thôi<br>
 ;> chứ ai đâu mà thừa tiền vung tiền ra cho mình ngồi ko có tiền e<br>
 ;> chứ e ko có việc gì làm cũng đâu có tuyển người vô chi, ko lẽ cho họ ngồi ko ròi hằng tháng mình phải trả tiền, đội chi phí doanh nghiệp lên<br>
-;> e cũng đâu có thuê, ai thất nghiệp kệ họ
+;> e cũng đâu có thuê, ai thất nghiệp kệ họ<br>
+;> mới vô làm nhìu khi chưa quen việc, quen văn hóa công ty còn bị làm khó làm dễ
