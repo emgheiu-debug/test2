@@ -4,4 +4,7 @@
 ;> con già a ghét nay đổ nợ giựt tiền mấy app cho vay ròi e<br>
 ;> sau này éo vay ai đc nữa, cứng ngắc =)))<br>
 ;> bệnh tật hụt tiền cũng éo vay ai đc, chet cũng ko có hòm chôn, đợi ngta từ thiện<br>
-;> nuôi 2 đứa con chưa tới đâu hết mà hết mịa tiền đổ nợ ròi e, chắc do nghiệp
+;> nuôi 2 đứa con chưa tới đâu hết mà hết mịa tiền đổ nợ ròi e, chắc do nghiệp<br>
+;> chắc cho 2 đứa con bán vé số, làm tạp vụ, bưng bê, thu ngân,...<br>
+;> chứ hết khả năng nuôi ròi e<br>
+;> vay app mún hết nợ xấu là phải trả vốn + lãi phát sinh trả trễ, ví dụ tháng đó góp 5 triệu ngày 15 đi mà mãi tới ngày 20 mới đóng là phát sinh lãi 5 ngày phải đóng để lâu lãi còn đẻ dữ nữa
