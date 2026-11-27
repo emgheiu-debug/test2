@@ -23,4 +23,9 @@
 ;> chứ ai đâu mà thừa tiền vung tiền ra cho mình ngồi ko có tiền e<br>
 ;> chứ e ko có việc gì làm cũng đâu có tuyển người vô chi, ko lẽ cho họ ngồi ko ròi hằng tháng mình phải trả tiền, đội chi phí doanh nghiệp lên<br>
 ;> e cũng đâu có thuê, ai thất nghiệp kệ họ<br>
-;> mới vô làm nhìu khi chưa quen việc, quen văn hóa công ty còn bị làm khó làm dễ
+;> mới vô làm nhìu khi chưa quen việc, quen văn hóa công ty còn bị làm khó làm dễ<br>
+;> đi trễ còn bị bắt lỗi<br>
+;> quy định cty rườm rà<br>
+;> ví dụ như cty ngta thiếu người, ngta bị dồn việc thì ngta mới tuyển người thôi e<br>
+;> ví dụ như ngta mún mở rộng cty tăng doanh thu + làm việc vặt + giao hàng thì ngta tuyển sale, bên bộ phận kế toán bị dồn việc thì họ tuyển kế toán, ngta mún chạy quảng cáo, để quảng bá thương hiệu thì ngta tuyển marketing,...<br>
+;> cơ bản là ngta thiếu ng họ mới tuyển người thôi e, chứ ko lẽ đủ người tuyển vô ngồi ko lãnh lương
