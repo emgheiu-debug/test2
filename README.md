@@ -1,24 +1,2 @@
 ;> a nhô e<br>
-;> cơm nước xong a iu nhắn nhe e<br>
-;> a mong hết năm để mau bước sang năm mới e<br>b vb
-;> a ko mua kính nhìn trộm tại a đi đường nhìn góc nghiêng thì ko thấy nên ko mua<br>
-;> kính đang sài cũ trầy đi ròi a mua cái mới<br>
-;> mua là lỏ ròi e đi đường ko có nhìn ggmap đc<br>
-;> mong mau hết khúc nghèo đi e<br>
-;> mong tới năm 2028 cho nghiệp quật con già a ghép cho lòi lồn nó, nó tuổi khỉ mà e<br>
-;> nó giờ đổ nợ ròi e<br>
-;> chắc tới 2028 trổ nợ đó e, chủ nợ dí chém cho lòi lon<br>
-;> mắc nợ thì giựt là xong thôi mà con già này làm thấy ớn hen e<br>
-;> nó bày ngta giựt app tới giờ nó giựt cái nó stress e<br>
-;> xạo loèn riết quen, đó a nhớ nó bày giựt tiền app xong xóa app bỏ sim gì gì đó<br>
-;> giựt app thì mốt ko có vay tiền vs góp đồ đc thôi tại bị nợ xấu ròi e<br>
-;> a giờ bùn ngủ quá e<br>
-;> giờ vay tiền là nó lưu lại hết ròi e, tra là ra thôi e<br>
-;> mua góp giờ đóng trễ thì nó tính lãi thôi e, bởi z e thấy cty nào cho vay giàu vs duy trì cũng có lý do cả e<br>
-;> ai cũng giựt tiền thì nó phá sản mất ròi e<br>
-;> đâu ai mở cty tài chính cho vay, ngân hàng cho vay để bị giựt ròi phá sản đâu e<br>
-;> dưới quê a có mấy người giựt tiền bị nhắn tin đe dọa, ròi cho nhân viên xuống kiếm tới nhà á e<br>
-;> e nữa ngủ lượt giờ vs a đi<br>
-;> mà e ngủ trễ cũng đc, ngủ lượt cho vui e, chứ người ngủ người thức + yêu xa nữa bị cô đơn<br>
-;> còn ở chung nằm kế thì ngủ lệch giờ nhau cũng đc e<br>
-;> mà thôi khuya ròi ngủ đi e<br>
+;> cơm nước đi ròi a nhắn sau nhe e
