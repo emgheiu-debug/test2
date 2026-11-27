@@ -38,4 +38,6 @@
 ;> nghĩ tới tiền ít là stress thôi e<br>
 ;> tiền nhìu thì có lương cái là vui vẻ ngay e<br>
 ;> bùn vui đồ ảnh hưởng tới tâm trạng ăn uống lắm chứ e, bùn thì đi làm đi thẳng về phòng ko ăn vặt mua đồ ăn ngoài gì nhìu<br>
-;> vui thì mún ăn nhìu chứ e
+;> vui thì mún ăn nhìu chứ e<br>
+;> hồi đó a đi làm lương thấp quá nhìu khi a đi làm mà lãnh lương nhìn con số thấy mắc cười =)))<br>
+;> mà ko đi làm thì móm tại làm đủ ăn có nhiu đó ngày à e, nghỉ thì hết tiền móm chứ sao e
