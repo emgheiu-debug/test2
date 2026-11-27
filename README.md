@@ -20,4 +20,6 @@
 ;> đi làm ko đc việc chưa đc 1 tháng là cho cút ròi e, chứ ở đó mà làm công mà mang ơn<br>
 ;> làm éo đc việc hay éo mang lại giá trị cho ngta thì ngta cũng kì kèo tiền bạc lắm e<br>
 ;> đi làm thì tiền bạc sòng phẳng thôi e, chứ ngta đâu có nghĩa vụ phải nuôi mình hay tạo công ăn chuyện làm cho mình đâu, làm ko đc việc thì cho nghỉ thôi<br>
-;> chứ ai đâu mà thừa tiền vung tiền ra cho mình ngồi ko có tiền e
+;> chứ ai đâu mà thừa tiền vung tiền ra cho mình ngồi ko có tiền e<br>
+;> chứ e ko có việc gì làm cũng đâu có tuyển người vô chi, ko lẽ cho họ ngồi ko ròi hằng tháng mình phải trả tiền, đội chi phí doanh nghiệp lên<br>
+;> e cũng đâu có thuê, ai thất nghiệp kệ họ
