@@ -15,4 +15,5 @@
 ;> thỉnh thoảng a nghĩ lại a nghèo cái a bùn bùn sao á e<br>
 ;> cty hiện tại thì lương thấp a biết là làm lâu cũng éo lên lương đâu e<br>
 ;> lương chỗ này nằm ngang á e<br>
-;> còn xin cty ngon giàu thì bây giờ khó
+;> còn xin cty ngon giàu thì bây giờ khó<br>
+;> đi làm ở đâu cũng z mình ko làm đc việc hay tạo giá trị gì cho ngta, thì ngta cũng cho mình nghỉ thôi e, phải ngồi ko ngửa tay xin tiền thì mang ơn
