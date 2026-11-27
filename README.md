@@ -16,4 +16,5 @@
 ;> cty hiện tại thì lương thấp a biết là làm lâu cũng éo lên lương đâu e<br>
 ;> lương chỗ này nằm ngang á e<br>
 ;> còn xin cty ngon giàu thì bây giờ khó<br>
-;> đi làm ở đâu cũng z mình ko làm đc việc hay tạo giá trị gì cho ngta, thì ngta cũng cho mình nghỉ thôi e, phải ngồi ko ngửa tay xin tiền thì mang ơn
+;> đi làm ở đâu cũng z mình ko làm đc việc hay tạo giá trị gì cho ngta, thì ngta cũng cho mình nghỉ thôi e, phải ngồi ko ngửa tay xin tiền thì mang ơn<br>
+;> đi làm ko đc việc chưa đc 1 tháng là cho cút ròi e, chứ ở đó mà làm công mà mang ơn
