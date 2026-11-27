@@ -32,6 +32,7 @@
 ;> giờ a iu của e nghĩ tới tết là thấy mệt ngang à<br>
 ;> mún mau hết năm hết tháng mà nghỉ tới tết cái tiền đình lun e<br>
 ;> tại éo có tiền, đi làm cũng nghèo thôi e<br>
+;> nghĩ tới 1 năm có nhiu đó tiền là a cbị chống mặt nhức đầu bùn, chán ăn à
 ;> mỗi lần mà nghỉ tới 1 năm mình làm có nhiu đó tiền là a mún stress tới nơi, nghỉ tới là thấy mệt đầu e<br>
 ;> còn ko nghĩ tới thì nhẹ đầu, sống vô tri z mà nó khỏe<br>
 ;> nghĩ tới tiền ít là stress thôi e<br>
