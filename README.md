@@ -11,4 +11,6 @@
 ;> 2 vợ chồng nó vay app xong giựt của ngta đó e, bị nợ xấu vs đẻ lãi nhìu quá ko có khả năng trả, lãi mẹ đẻ lãi con<br>
 ;> năm nay đâu phải năm tuổi hay năm tam tai gì của nó đâu e, mà nó đổ nợ ròi, chắc tới năm tuổi xui nữa bị khởi kiện đi tù hay là tai nạn, bệnh tật gì đó<br>
 ;> xíu a rảnh a nhắn nhe e<br>
-;> đời người sống chừng 80 tuổi đi thì e còn ngủ vs a đc hơn 45 năm thôi e
+;> đời người sống chừng 80 tuổi đi thì e còn ngủ vs a đc hơn 45 năm thôi e<br>
+;> thỉnh thoảng a nghĩ lại a nghèo cái a bùn bùn sao á e<br>
+;>
